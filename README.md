@@ -17,6 +17,37 @@
     </tr>
     </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507060016.shtml" target="boxun-mirror">车峰高档会所色情服务大学生伺候部长行长请看博讯热点：反腐打老虎</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>车峰高档会所色情服务大学生伺候部长行长<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507060016" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    【博闻社独家】中国平安、海通证券、数字王国等等「接盘侠」车峰十多年来赚得盆满钵满，除了借岳父在金融界的权利和消息，有指还有赖与他与其他高官和银行高管的沆瀣一气。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       而后者，是通过高级色情服务实现的。本社独家内幕，戴相龙女婿车峰在北京有一高档会所，单是装修花了两亿。会所内养了12个美貌大学生，专门伺候部长级和银行行长级官员。一名女“大学生”，光是佣金和小费，有一年竟高达5000万之巨。<br>
+    <br>
+    车峰在国内政商圈行走，戴相龙的背景固然是关键，然而该会所的服务，使得相关官员被车峰绑上了战车，车峰无论贷款、股票还是项目，无往而不利。<br>
+    <br>
+    车峰的“色”是有迹可循的。他在港时，常租太子党“躲风头”的聚居地四季酒店高级套房，用来办公会客，与神秘大</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507050524.shtml" target="boxun-mirror">河南辉县上千警察镇压上千村民打伤抓捕多人请看博讯热点：突发事件</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -764,25 +795,6 @@
     <br>
     <a href="http://bowenpress.com/news/bowen_4553.html">博</a>
 </td></tr></p>
-<p>
-	<small> ============== 4天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507021341.shtml" target="boxun-mirror">《博讯》杂志:谁将接任梁振英?习近平谈六四</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>《博讯》杂志:谁将接任梁振英?习近平谈六四<br><font color="#000fC0">(<small>博讯北京时间2015年7月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507021341" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     在香港上市的《博讯》杂志7月号独家披露，在六四前的一次维稳会议上，习近平发表看法，大意是：六四平反是早晚和时机的问题。<br>
-    <br>
-    该期杂志还报道，香港政改方案被投票否决后，北京成立专门工作小组应对，不过，习近平认为，香港问题是“茶杯里的风暴”。《博讯》报道还透露了北京对泛民的态度。《博讯》指出，梁振英不可能连任，但谁将是下一个北京中意的特首呢？<br>
-    <img src="/news/images/2015/07/201507021341china1.jpg" alt="《博讯》杂志:谁将接任梁振英?习近平谈六四"><p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507021341" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507012134351.jpg--> 2151341       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 4天前</small>
 </p>
