@@ -41,7 +41,7 @@
 <br>
                        据了解，索罗斯的办公室位于香港国际金融中心(IFC)二期35层，在该层梯拐角处，电梯旁指示牌标注的「SFMHK Management Limited」，即是索罗斯的办公室，亦是索罗斯在亚洲施展「魔力」的新支点。办公室面积约400平方米(4000英</td></tr></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507070927.shtml" target="boxun-mirror">习近平要党内接受党蜕化变质走上亡党毁国危机请看博讯热点：习近平观察</a>
 </h2>
@@ -120,7 +120,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507060016.shtml" target="boxun-mirror">车峰高档会所色情服务大学生伺候部长行长请看博讯热点：反腐打老虎</a>
 </h2>
