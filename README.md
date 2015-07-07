@@ -17,6 +17,32 @@
     </tr>
     </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2015/07/201507070334.shtml" target="boxun-mirror">北京股市保卫战正酣投机大鳄索罗斯悄悄现身香港</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北京股市保卫战正酣 投机大鳄索罗斯悄悄现身香港<br><font color="#000fC0">(<small>博讯北京时间2015年7月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201507070334" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+     【博闻社独家】正当中国政府被A股崩盘式的下泄搞得焦头烂额，倾尽国力与看不见的敌人打一场金融大仗之时，本社获悉，国际著名投机家、曾在1997年亚洲金融危机狙击港元泰铢而兴风作浪的投资大师索罗斯，最近曾悄悄现身香港他的办公室，隔岸观火中国这场金融之仗。暂未知这名国际金融大鳄有何具体举动，但他在这个微妙时刻现身香港，引起香港金融界诸多联想。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       据了解，索罗斯的办公室位于香港国际金融中心(IFC)二期35层，在该层梯拐角处，电梯旁指示牌标注的「SFMHK Management Limited」，即是索罗斯的办公室，亦是索罗斯在亚洲施展「魔力」的新支点。办公室面积约400平方米(4000英</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507060016.shtml" target="boxun-mirror">车峰高档会所色情服务大学生伺候部长行长请看博讯热点：反腐打老虎</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -766,35 +792,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 5天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507020110.shtml" target="boxun-mirror">“凶天组织”主要头目勾结中共统战部官员暗杀达赖喇嘛请看博讯热点：西藏问题</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>“凶天组织”主要头目勾结中共统战部官员暗杀达赖喇嘛<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tibet.shtml">西藏问题
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201507020110" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社】在美国波士顿的一家民间电视节目，最近播放了一个“凶天组织”主要头目曾勾结中共统战部官员计划暗杀达赖喇嘛的消息，引起藏人民众的一片惊呼。该节目名称叫“波士顿西藏事实民间讲座节目”，其工作人员都是藏人，有些是前僧人，有些是曾在西藏坐过牢的政治犯。节目播放后的不到几天，点击率多达六万二千多。<br>
-    <br>
-    在节目中，一位原“凶天组织”主要负责人之一的喇嘛次扎，公开揭发“凶天组织”内幕。此事的发生，一定在绝大多数西藏人的意料之外。喇嘛次扎说，身为一名知情者的我，应该是说清楚，讲明白的时候了。<br>
-    <br>
-    博闻社认为，对于视频内容每个人一定有不同的解读。根据视频，那位僧人讲述的内容，最值得注意的有以下四点：<br>
-    <br>
-    一、喇嘛次扎揭发“凶天组织”主要头目意大利的刚坚喇嘛和纽约的阿塔次仁等在尼泊尔和西藏境内，反复接触中共统战部和西藏自治区安全系统，从那里获取金钱，成为中共的忠实走狗；<br>
-    <br>
-    二、“凶天组织”那些主要头曾勾结中共策划暗杀达赖喇嘛，但是到目前为止，他们的企图未能实现。<br>
-    <br>
-    三、喇嘛次扎发现，“凶天组织”的头目，对于所谓“凶天”护法本身没有虔诚之心，他们以依止“凶天护法”、“维护宗教信仰自由”之名，事实上恶意诋毁达赖喇嘛，其背后真正的意图是，获取中共的人民币。所谓依止“凶天护法”和“维护宗教信仰自由”是假，听从中央统战部诋毁和危害达赖喇嘛安全是真。<br>
-    <br>
-    四、喇嘛次扎说，看到“凶天组织”近年来的极端行为和勾结中央统战部与奉献毕生精力的我们精神领袖达赖喇嘛继续作对，再也无法忍受，因此，决定不顾个人生命危险，揭发“凶天组织”内幕，并通过“波士顿西藏事实民间讲座节目，希望西藏人民要更加紧密团结，认清“凶天组织”和中央统战部的真面目，为维护达赖喇嘛的安全而努力。<br>
-    <br>
-    视频：<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/S3zosv39mDM" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_4553.html">博</a>
-</td></tr></p>
 <p>
 	<small> ============== 5天前</small>
 </p>
