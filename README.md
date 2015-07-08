@@ -53,6 +53,29 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/z_special/2015/07/201507081440.shtml" target="boxun-mirror">纪实《蒋委员长赞》之殇1:秋风万里动</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>纪实 《蒋委员长赞》之殇1:秋风万里动<br><font color="#000fC0">(<small>博讯北京时间2015年7月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=z_special201507081440" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    08奥运之时，北京国家大剧院“引爆” 观众激情的是，十架钢琴同台演奏《喜庆中国》，此乃中国著名作曲家崔世光之作。<br>
+    本篇纪实的主人公崔锦章先生即崔世光之父。70年前，抗战胜利的消息“引爆”了先生的爱国激情，他携妻王澄美女士编印了《中华复兴歌集》。其中《蒋委员长赞》是先生的作词之一。未曾想，中共进城之后，这首歌曲便成了一生命运多舛的祸端。<br>
+    ――写于光复七十周年<br>
+    <br><center><font size="4"><b>《蒋委员长赞》之殇</b></font></center>
+<br>
+    <br>
+    作者：鸿路<br>
+    <br>
+    题记：这是最好的时代，这是最坏的时代；这是智慧的年代,这是愚蠢的年代；这是信仰的时期,这是怀疑的时期；这是光明的季节,这是黑暗的季节；这是希望之春,这是失望之冬；我们的前途拥有一切,我们的前途一无所有；我们正走向天堂,我们也正直下地狱<br>
+    ――狄更斯Charles Dickens（1812―1870）<br>
+    <br><center><font size="4"><b>秋风万里动</b></font></center>
+<br><br><b>  ８月１５日正午１２时，日本东京都中央电台在奏日本国歌《君之代》之后，播出了天皇宣读的投降诏书，日本天皇裕仁宣布大日本帝国接受《波茨坦公告》，无条件投降。</b><br>
+    在长春关东军司令部作战会议室里，司令官山田乙三等一</td></tr></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507081222.shtml" target="boxun-mirror">成都军区情报部长李栋方涉郭伯雄案落马请看博讯热点：郭伯雄</a>
 </h2>
 <p><tr>
@@ -658,32 +681,6 @@
     <br>
     <a href="http://bowenpress.com/news/bowen_4860.html">博闻社报道全文</a>
  [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 701441       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 5天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507032028.shtml" target="boxun-mirror">吴淦预先录制视频：我不会自杀及不会放弃请律师请看博讯热点：白色恐怖</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>吴淦预先录制视频：我不会自杀及不会放弃请律师<br><font color="blue" size="2">请看博讯热点：<a href="/hot/national_terror.shtml">白色恐怖
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507032028" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    <div align="center"><iframe width="600" height="450" src="https://www.youtube.com/embed/2IMv7AcjsTw" frameborder="0" allowfullscreen></iframe></div>
-<br>
-    <br>
-    （博讯独家报道，7月3日）博讯今天收到吴淦先生（网名“超级低俗屠夫”）于三年前预先录制的一段视频并获授权发布。在视频中，吴淦强调他没有犯罪，并声明一旦被失踪或被以莫须有的方式入罪，他不会自杀及不会放弃请律师为自己辩护。<br>
-    <br>
-    视频拍摄于2012年7月10,吴淦在视频中细述了自己从2008年开始的维权经历，包括邓玉娇案、福建三网民案及夏俊峰案等参与的维权事件。吴淦说，如果自己被失踪或被抓，他不会自杀，并不会拒绝请律师。<br>
-    <br>
-    吴淦在视频中强调他爱这个国家，想让国家变得更美好，不希望看到被流氓把持的政权危害这个国家。他呼吁外界关注像他这样“没有安全的一批人”，希望外界支持他为他呼吁，也希望国际社会能为他呼吁。<br>
-    <br>
-    -
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507032028" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 762028       
 <hr>
 <table width="620"><tr><td>
 <b></p>
