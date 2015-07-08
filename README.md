@@ -51,7 +51,7 @@
     <br>
     未经核实的传闻，前国务院总理朱</td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2015/07/201507081524.shtml" target="boxun-mirror">证监会责令大股东增持国资委央企集体承诺请看博讯热点：股市危机</a>
 </h2>
@@ -105,7 +105,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/z_special/2015/07/201507081440.shtml" target="boxun-mirror">纪实《蒋委员长赞》之殇1:秋风万里动</a>
 </h2>
@@ -128,7 +128,7 @@
 <br><br><b>  ８月１５日正午１２时，日本东京都中央电台在奏日本国歌《君之代》之后，播出了天皇宣读的投降诏书，日本天皇裕仁宣布大日本帝国接受《波茨坦公告》，无条件投降。</b><br>
     在长春关东军司令部作战会议室里，司令官山田乙三等一</td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507081222.shtml" target="boxun-mirror">成都军区情报部长李栋方涉郭伯雄案落马请看博讯热点：郭伯雄</a>
 </h2>
@@ -174,7 +174,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">中纪委牵头来美做令完成工作有突破性进展</a>
 </h2>
@@ -184,7 +184,7 @@
 </center>
             <!--bodystart-->      <img src="/news/images/2015/07/201507080012china1.jpg" alt="独家：中纪委大功告成 令完成将回国归案"><br>    <br>   【博闻社独家】中共中央前办公厅主任、全国政协前副主席令计划的弟弟令完成（又名：王诚），疑夹带大量中共机密文件潜逃美国，案件有新进展。本社获悉，一个由中纪委主导，公安部参与的庞大工作组在美国经两个月工作，已与令完成达成初步协议，令完成很可能同意回国配合调查，当局则承诺对其本人及其兄令计划的部份问题从轻发落。<br><br>本社获悉，这次专门为令完成案派出工作组到美国做令本人的工作，是由最高层决定。目前未知美方是否知道这个小组来美。这个小组有30多人，除了中纪委的人，公安部方面则有经济犯罪侦察局、技术侦察局和国内保</td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">独家：中纪委大功告成令完成将回国归案请看博讯热点：反腐打老虎</a>
 </h2>
@@ -200,7 +200,7 @@
     本社获悉，这次专门</p>
 </td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/07/201507070334.shtml" target="boxun-mirror">北京股市保卫战正酣投机大鳄索罗斯悄悄现身香港</a>
 </h2>
@@ -226,7 +226,7 @@
 <br>
                        据了解，索罗斯的办公室位于香港国际金融中心(IFC)二期35层，在该层梯拐角处，电梯旁指示牌标注的「SFMHK Management Limited」，即是索罗斯的办公室，亦是索罗斯在亚洲施展「魔力」的新支点。办公室面积约400平方米(4000英</td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507070927.shtml" target="boxun-mirror">习近平要党内接受党蜕化变质走上亡党毁国危机请看博讯热点：习近平观察</a>
 </h2>
@@ -305,7 +305,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507060016.shtml" target="boxun-mirror">车峰高档会所色情服务大学生伺候部长行长请看博讯热点：反腐打老虎</a>
 </h2>
@@ -336,7 +336,7 @@
     <br>
     车峰的“色”是有迹可循的。他在港时，常租太子党“躲风头”的聚居地四季酒店高级套房，用来办公会客，与神秘大</td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507050524.shtml" target="boxun-mirror">河南辉县上千警察镇压上千村民打伤抓捕多人请看博讯热点：突发事件</a>
 </h2>
@@ -353,7 +353,7 @@
     <br>
     村民“CBB</td></tr></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507050918.shtml" target="boxun-mirror">车峰死党澳门大耳窿纪晓波欧洲落网遣返北京</a>
 </h2>
@@ -393,7 +393,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507050333.shtml" target="boxun-mirror">中共网络沙皇鲁炜开右灯向左转之左“道”</a>
 </h2>
@@ -408,7 +408,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507050333.shtml" target="boxun-mirror">中共网络沙皇鲁炜开右灯向左转之左“道”请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -438,7 +438,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507042221.shtml" target="boxun-mirror">戴相龙让车峰从企业借巨款,给内幕消息炒股狂赚</a>
 </h2>
@@ -478,7 +478,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507042214.shtml" target="boxun-mirror">美前总统布什：达赖喇嘛是中国领导人最应该打交道的人请看博讯热点：西藏问题</a>
 </h2>
@@ -567,7 +567,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507040911.shtml" target="boxun-mirror">戴相龙玩香港女星被博讯曝光，妻子情绪失控死亡</a>
 </h2>
@@ -582,7 +582,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507040911.shtml" target="boxun-mirror">戴相龙玩香港女星被博讯曝光激死发妻</a>
 </h2>
@@ -622,7 +622,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507032028.shtml" target="boxun-mirror">吴淦预先录制视频：我不会自杀及不会放弃请律师</a>
 </h2>
@@ -638,7 +638,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/07/201507032140.shtml" target="boxun-mirror">苏星河：论“超级低俗屠夫”吴淦请看博讯热点：白色恐怖</a>
 </h2>
@@ -689,7 +689,7 @@
     <br>
     一次次的参与就相当于一次次的示范。本来并不为公众所知的恶行，因为参与而被暴露在公众面前；本来不敢主张自己的权利，默认顺从会避免更大损失的民众，因为参与而变得勇敢起来，迈出了主张权利的第一步；本来只是少数人的觉醒，因为参与者的带动，而被当地的民众</p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507032335.shtml" target="boxun-mirror">达赖喇嘛尊者接受美国最大的西班牙语电视台专访</a>
 </h2>
@@ -704,7 +704,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p>
 <table>
     <tr>
