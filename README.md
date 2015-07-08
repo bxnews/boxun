@@ -53,6 +53,52 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507081222.shtml" target="boxun-mirror">成都军区情报部长李栋方涉郭伯雄案落马请看博讯热点：郭伯雄</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>成都军区情报部长李栋方涉郭伯雄案落马<br><font color="blue" size="2">请看博讯热点：<a href="/hot/guoboxiong.shtml">郭伯雄
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507081222" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】本社获悉，成都军区司令部情报部部长李栋方因郭伯雄案被抓。李栋方将以贪污挪用公款罪入罪，预计会判15年。<br>
+    <br>
+     李栋方于今年3月开始被调查，近日被捕。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    自12年王立军事件以来，成都军区师级以上干部死亡、落马人数列各大军区之首：<br>
+    <br>
+    2012年5月，成都军区副司令员阮志柏在京突然病逝，得年62岁；<br>
+    2014年4月，西藏军区副政委卫晋因涉嫌严重违纪，被成都军区纪委立案调查；<br>
+    2014年5月，已到点退役的四川省军区原政委叶万勇被特警于家中带走；<br>
+    成都军区联勤部部长朱和平于2014年8月被军委纪委立案调查，2015年1月移送军事司法机关依法处理；<br>
+    成都军区副司令员杨金山于2014年10月十八届四中全会期间被调查。<br>
+    <br>
+    此外，郭伯雄一案本于5月传达到军级，后因高层博弈，郭案受到阻力，通报不再下发。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_5616.html">博闻社报道全文</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507081222" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1391222       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">中纪委牵头来美做令完成工作有突破性进展</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -638,21 +684,6 @@
     <br>
     -
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507032028" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 762028       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 5天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507032035.shtml" target="boxun-mirror">屠夫吴淦被以煽动颠覆国家政权等两罪正式逮捕</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>屠夫吴淦被以煽动颠覆国家政权等两罪正式逮捕<br><font color="#000fC0"><small>(博讯北京时间2015年7月03日 转载)</small></font>
-</center>
-            <!--bodystart-->      <div align="center"><img src="/news/images/2015/07/201507032035china1.jpg" alt="屠夫吴淦被以煽动颠覆国家政权等两罪正式逮捕"></div>    <br>    （博讯报道，7月3日）据燕文薪律师今天发布的消息，吴淦被以煽动颠覆国家政权和寻衅滋事两罪批准逮捕。<br>    <br>    燕文薪律师今天发布的消息称：“刚刚接到厦门市检察院电话通知，称因之前已收到律师提交的法律意见，故现向律师作出答复，检察院采纳了辩护律师的部分意见，目前对吴淦以煽动颠覆国家政权和寻衅滋事两罪批准逮捕。”<br>    <br>    5月20日因“扰乱单位秩序、公然侮辱他人”被江西公安机关行政拘留的吴淦（网名“超级低俗屠夫”），因“涉嫌寻衅滋事罪、诽谤罪”，5月27日被福建公安机关刑事拘留。<br>    <br>    燕文新在6月27日接到厦门市检察院电话通知，屠夫吴淦被以涉嫌寻衅滋事罪、诽谤罪及煽动颠覆国家政权罪三个罪名报捕。<br>    <br>    -<br><br><!--(Modified on 2015/7/03)--><!--bodyend-->       
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507030434371.jpg--> 2882035       
 <hr>
 <table width="620"><tr><td>
 <b></p>
