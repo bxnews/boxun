@@ -17,6 +17,42 @@
     </tr>
     </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/finance/2015/07/201507080953.shtml" target="boxun-mirror">7月8日继续救市：被吹大的泡沫破了能再吹起？请看博讯热点：股市危机</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>7月8日继续救市：被吹大的泡沫破了能再吹起？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201507080953" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     中国股市突然崩裂，政府频繁出重手救市，但效果甚微。博讯获悉，8日会继续出手救市。据称，有办法救，但代价很大。<br>
+    <br>
+     网文“<a href="http://www.boxun.com/news/gb/finance/2015/07/201507072301.shtml">2015 年股市崩盘，会有什么样的后果？</a>”指出，上周五，央行进行公开市场操作释放流动性，大家都猜测周末就不会降息。但周五市场根本不给面子。可以想见，上周末，应该是地位高于周小川的领导决定降息降准。公开市场操作，降息与降准，央行每次只使用一次，上周末把三样武器全部摆出。 结果，周一依然不给面子。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    文章指出，今天，正是金融危机的前夜。<br>
+    <br>
+    博讯摘录了近几个月的相关报道，回顾一下官方、学者、媒体对中国股市的看法：<br>
+    <br>
+    中国两会期间，证监会主席肖钢公开评论股市，称：“本轮上涨行情是合理的和必然的”，“本轮牛市是改革牛”。一贯出言谨慎的央行行长周小川，也一反常态地说：“资金进股市，也是支持实体经济”，更明显地表露了积极的股市政策，可视为全民炒股的动员令。<br>
+    <br>
+    BBC：中国政府和官员过多干预股市发展，是吸引投机、导致市场暴涨暴跌的根本原因。<br>
+    <br>
+    未经核实的传闻，前国务院总理朱</td></tr></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">中纪委牵头来美做令完成工作有突破性进展</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -620,36 +656,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 5天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507030042.shtml" target="boxun-mirror">戴相龙老婆病逝女婿车峰回国探望被拘</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>戴相龙老婆病逝 女婿车峰回国探望被拘<br><font color="#000fC0">(<small>博讯北京时间2015年7月03日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      【博闻社综合】内地著名媒体人罗昌平在网易报道,6月29日，因肝癌去世的车峰岳母,前央行行长戴相龙之妻柯用珍的遗体在八宝山火化。在岳母确诊后，车峰曾提供药品试图挽回，其本人也回京探望，随即被带走调查。在车峰入股岳母任职的海通证券并攫利23.5亿的过程中，其岳父对车峰的指示至关重要。<br>
-    <br>
-     6月29日早上8时许，八宝山殡仪馆竹厅，一场盛大而低调的遗体告别仪式。灵堂前方的空地停满了各式各样的豪车，吊唁的人在随后一个小时内络绎不绝，有些来者甚至带着随从，敬挽的花圈则从灵堂四周延伸至门外数米。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    “规模太大了，死者应该很有身份。”在殡仪馆已工作多年的张玉强（化名）虽已见惯大场面，还是有些惊讶。享年66岁的逝者柯用珍女士，在公众领域并不知名，其家族却在金融系统有着隐秘而强大的影响力。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_4777.html">博</a>
-</td></tr></p>
 <p>
 	<small> ============== 5天前</small>
 </p>
