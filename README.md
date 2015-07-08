@@ -17,6 +17,32 @@
     </tr>
     </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">中纪委牵头来美做令完成工作有突破性进展</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中纪委牵头来美做令完成工作 有突破性进展<br><font color="#000fC0"><small>(博讯北京时间2015年7月08日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507080012" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->      <img src="/news/images/2015/07/201507080012china1.jpg" alt="独家：中纪委大功告成 令完成将回国归案"><br>    <br>   【博闻社独家】中共中央前办公厅主任、全国政协前副主席令计划的弟弟令完成（又名：王诚），疑夹带大量中共机密文件潜逃美国，案件有新进展。本社获悉，一个由中纪委主导，公安部参与的庞大工作组在美国经两个月工作，已与令完成达成初步协议，令完成很可能同意回国配合调查，当局则承诺对其本人及其兄令计划的部份问题从轻发落。<br><br>本社获悉，这次专门为令完成案派出工作组到美国做令本人的工作，是由最高层决定。目前未知美方是否知道这个小组来美。这个小组有30多人，除了中纪委的人，公安部方面则有经济犯罪侦察局、技术侦察局和国内保</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">独家：中纪委大功告成令完成将回国归案请看博讯热点：反腐打老虎</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：中纪委大功告成 令完成将回国归案<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507080012" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <img src="/news/images/2015/07/201507080012china1.jpg" alt="独家：中纪委大功告成 令完成将回国归案"><p><br>
+    <br>
+    【博闻社独家】中共中央前办公厅主任、全国政协前副主席令计划的弟弟令完成，疑夹带大量中共机密文件潜逃美国，案件有新进展。本社获悉，一个由中纪委和公安部组成的庞大工作`组在美国经两个月工作，已与令完成达成初步协议，令完成同意回国配合调查，当局则对其本人及其兄令计划的部份问题从轻发落。<br>
+    <br>
+    本社获悉，这次专门</p>
+</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/07/201507070334.shtml" target="boxun-mirror">北京股市保卫战正酣投机大鳄索罗斯悄悄现身香港</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -626,238 +652,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 5天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2015/07/201507030022.shtml" target="boxun-mirror">视频：建设民主香港，重夺我城未来：2015七一游行请看博讯热点：占领中环</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：建设民主香港，重夺我城未来：2015七一游行<br><font color="blue" size="2">请看博讯热点：<a href="/hot/hkcentral.shtml">占领中环
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201507030022" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <iframe width="600" height="360" src="https://www.youtube.com/embed/6_pYQ6WQCZ8" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    自主权移交以来，每年的七一这天，香港社团都会发起游行，在特区成立的纪念日向政府发出民间的诉求之声。今年的七一，民间人权阵线（民阵）照常组织游行，以“建设民主香港，重夺我城未来”为主题，推出的口号包括：修改基本法，踢走提委会，追究黑警责任，废除公安条例，梁振英下台，取消功能组别。<br>
-    <br>
-    去年79天的雨伞运动并未能改变香港既有的政治制度。香港议会内非民选的功能组别席位未被取消，又因雨伞运动而增加了如警察滥权等问题；而梁振英带领的特区政府就普选问题始终未能提供一个完全的普选方案，强势推行的政改方案更是于6月18日在立法会被以28：8大比数否决。普选无望之下，民主派人士从起初呼吁公民提名纳入政改方案，到如今要求踢走基本法规定的提委会，甚至直接提出来修改基本法。而因应本土势力的崛起与区隔中港的呼吁，“本土化”似乎成为民主派的政治正确。在命运自主旗号的一脉相承之下，如今香港人发展为要建设民主香港，夺回香港未来。这些呼吁虽然至今颇有争议，并未成为社会共识，但也体现了香港民间的反思与进步：他们不再信任中共，不再寄托民主回归与一国两制保障自治，部分人已经转向了以对抗的角度来思考香港未来的可能性。<br>
-    <br>
-    游行队伍七月一日下午三点从维园出发，终点是政府总部。一路上街站宣传有香港的许多政党组织，他们大都曾支持雨伞运动。各式各样的社会团体，从雨伞运动主力的学联、学民思潮，反对资本主义的左翼团体，济弱锄强的社民连，关注土地分配的土地正义联盟，关注综援低收入联盟，争取全民退休保障联席，工人工会职工盟，关注难民的组织，香港图博民族自决会，国际特赦组织，大爱同盟，法轮功团体，到反对机场第三条跑道，守护大屿山，反对核电，关注网络二次创作权，中学生回收倡议，关怀动物的组织等等，他们都有摊位，以展板吸引民众，并义卖筹款。也有不少组织是因应雨伞运动成立，如撑伞落区运动鸡蛋同盟，六一七民间约章，雨伞基督徒，我们是未来，杏林觉醒，小区公民约章运动，等等。本土派的本土民主前线，热血公民等组织也同样摆出街站宣传自己的理念。<br>
-    <br>
-    游行人数据大会宣布是48000人，是近八年来最低，也是自2003年民阵主办七一游行以来的参加人数历史第三低。因为比起去年七一演习占中之际的51万人数而言跌幅太大，而引发社会的讨论。民阵、工盟等发言人体谅市民近期参与的社会活动太多及政改被否决之后暂时的偃旗息鼓，对游行人数仍表示满意。也有观察到雨伞运动令港人思考社运应采取何种行动才有用，认为从前港人习惯的游行文化可能从此会改变；学民思潮召集人黄之锋则谨慎对待游行人数的减少，他意识到政改否决后社会无明显聚焦，本土议题教育议题或修改基本法都未有共识，提出学民思潮将会反省和检讨接下来如何参与民主运动，九月提出新的纲领。<br>
-    <br>
-    雨伞运动给香港社会带来了许多的改变，一方面非常务实的港人对香港政治及香港前途的关注度显著上升，另一方面许多新的社会思潮开始涌现，传统的泛民主力量在扩大也在分化。在雨伞运动结束后、政改方案被否决而民间暂时喘息的时刻，既是泛民主派争取新支持者的时机，也是迫切需要重建社会共识、扩大民主运动的关口。<br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan1.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"><p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan2.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan3.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan4.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan5.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan6.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan7.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan8.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan9.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan10.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan11.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan12.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan13.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan14.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan15.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan16.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan17.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan18.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan19.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan20.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan21.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan22.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan23.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan24.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan25.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan26.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan27.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan28.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan29.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan30.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan31.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan32.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan33.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan34.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan35.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan36.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan37.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan38.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan39.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan40.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan41.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan42.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan43.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan44.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan45.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan46.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan47.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan48.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan49.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan50.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan51.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan52.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan53.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan54.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan55.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan56.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/07/201507030022taiwan57.jpg" alt="视频：建设民主香港，重夺我城未来：2015七一游行"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201507030022" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507020821521.JPG http://upload.bx.tl/news/temp13/201507020808121.JPG http://upload.bx.tl/news/temp13/201507020808122.JPG http://upload.bx.tl/news/temp13/201507020808123.JPG http://upload.bx.tl/news/temp13/201507020808124.JPG http://upload.bx.tl/news/temp13/201507020808291.JPG http://upload.bx.tl/news/temp13/201507020808292.JPG http://upload.bx.tl/news/temp13/201507020808293.JPG http://upload.bx.tl/news/temp13/201507020808294.JPG http://upload.bx.tl/news/temp13/201507020808411.JPG http://upload.bx.tl/news/temp13/201507020808412.JPG http://upload.bx.tl/news/temp13/201507020808413.JPG http://upload.bx.tl/news/temp13/201507020808414.JPG http://upload.bx.tl/news/temp13/201507020809171.JPG http://upload.bx.tl/news/temp13/201507020809172.JPG http://upload.bx.tl/news/temp13/201507020809173.JPG http://upload.bx.tl/news/temp13/201507020809174.JPG http://upload.bx.tl/news/temp13/201507020809431.JPG http://upload.bx.tl/news/temp13/201507020809432.JPG http://upload.bx.tl/news/temp13/201507020809433.JPG http://upload.bx.tl/news/temp13/201507020809434.JPG http://upload.bx.tl/news/temp13/201507020810131.JPG http://upload.bx.tl/news/temp13/201507020810132.JPG http://upload.bx.tl/news/temp13/201507020810133.JPG http://upload.bx.tl/news/temp13/201507020810134.JPG http://upload.bx.tl/news/temp13/201507020810321.JPG http://upload.bx.tl/news/temp13/201507020810322.JPG http://upload.bx.tl/news/temp13/201507020810323.JPG http://upload.bx.tl/news/temp13/201507020810324.JPG http://upload.bx.tl/news/temp13/201507020810451.JPG http://upload.bx.tl/news/temp13/201507020810452.JPG http://upload.bx.tl/news/temp13/201507020810453.JPG http://upload.bx.tl/news/temp13/201507020810454.JPG http://upload.bx.tl/news/temp13/201507020810541.JPG http://upload.bx.tl/news/temp13/201507020810542.JPG http://upload.bx.tl/news/temp13/201507020810543.JPG http://upload.bx.tl/news/temp13/201507020810544.JPG http://upload.bx.tl/news/temp13/201507020811141.JPG http://upload.bx.tl/news/temp13/201507020811142.JPG http://upload.bx.tl/news/temp13/201507020811143.JPG http://upload.bx.tl/news/temp13/201507020811144.JPG http://upload.bx.tl/news/temp13/201507020811561.JPG http://upload.bx.tl/news/temp13/201507020811562.JPG http://upload.bx.tl/news/temp13/201507020811563.JPG http://upload.bx.tl/news/temp13/201507020811564.JPG http://upload.bx.tl/news/temp13/201507020821522.JPG http://upload.bx.tl/news/temp13/201507020812051.JPG http://upload.bx.tl/news/temp13/201507020812052.JPG http://upload.bx.tl/news/temp13/201507020812053.JPG http://upload.bx.tl/news/temp13/201507020812054.JPG http://upload.bx.tl/news/temp13/201507020811541.JPG http://upload.bx.tl/news/temp13/201507020811542.JPG http://upload.bx.tl/news/temp13/201507020811543.JPG http://upload.bx.tl/news/temp13/201507020811544.JPG http://upload.bx.tl/news/temp13/201507020812181.JPG http://upload.bx.tl/news/temp13/201507020812182.JPG http://upload.bx.tl/news/temp13/201507020812183.JPG--> 2840022       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 5天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507021509.shtml" target="boxun-mirror">安邦吴小晖没离婚，仍是邓小平的驸马请看博讯热点：中共太子党</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>安邦吴小晖没离婚，仍是邓小平的驸马<br><font color="blue" size="2">请看博讯热点：<a href="/hot/taizidang.shtml">中共太子党
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507021509" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】本社获悉,安邦保险集团董事长兼首席执行官吴小晖，仍然是中共前领导人邓小平的驸马,并没有跟邓小平的外孙女卓芮（又名邓卓芮）离婚。今年二月内地财新网曾披露，吴与卓已离婚。<br>
-    <br>
-     吴小晖做过三次“驸马”，岳父的官阶一个比一个高，他本人也越来越富。据报道，吴小晖出身农村，最早在温州平阳县工商局工作，娶当地官员女儿为妻，后攀上温州市长刘锡荣，刘是新四军烈士刘英之子，后官至浙江省委副书记。在刘关照下，吴下海做汽车生意，又攀上时任杭州市长、后任浙江副省长卢文舸，吴与妻子离婚，娶卢副省长女为妻。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    之后，吴又结识中共元帅陈毅之子陈小鲁，经陈的介绍，认识邓小平的二女邓楠的女儿卓苒。2004年，吴小晖与第二任妻子离婚，娶比他小六岁的卓苒为妻，成为中共最有名望和权势家庭的“驸马”。外界相信他靠这层关系创办安邦，且只用短短十年就将安邦资产由最初5亿元人民币变成7000亿，成为中国第二大综合型保险公司。据透露，吴与邓育有一子。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_4650.html">博闻社全文报道点击这里</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507021509" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3671509       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 6天前</small>
 </p>
 <table>
     <tr>
