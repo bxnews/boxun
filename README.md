@@ -14,8 +14,10 @@
         <tr>
         <td><a href="../../raw/master/x/FreeBrowser.apk"><img
         src="../../raw/master/x/fb.qr.png" /></a></td>
-    </tr>
-    </table>
+
+        
+            </tr>
+</table>
 <h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507090130.shtml" target="boxun-mirror">尊者答拉里金：下一世达赖喇嘛应由西藏人民来决定</a>
 </h2>
@@ -770,4 +772,6 @@
         target="boxun-mirror">免翻墙网页版</a></td> -->
     </tr>
     
-    </table>
+    
+            </tr>
+</table>
