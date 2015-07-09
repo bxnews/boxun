@@ -11,7 +11,7 @@
         target="boxun-mirror">免翻墙网页版</a></td> -->
     </tr>
     
-        <tr>
+            <tr>
         <td><a href="../../raw/master/x/FreeBrowser.apk"><img
         src="../../raw/master/x/fb.qr.png" /></a></td>
 
@@ -772,6 +772,6 @@
         target="boxun-mirror">免翻墙网页版</a></td> -->
     </tr>
     
-    
+        
             </tr>
 </table>
