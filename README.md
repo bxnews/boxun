@@ -33,6 +33,39 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507091149.shtml" target="boxun-mirror">公安部国保总局换头目孙立军或接替陈智敏</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>公安部国保总局换头目孙立军或接替陈智敏<br><font color="#000fC0">(<small>博讯北京时间2015年7月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507091149" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】本社获悉，中国公安部高层有异动。现任公安部副部长兼国内安全保卫总局(简称国保)局长陈智敏，将卸国保局长职，该职将由孙立军接任。<br>
+    <br>
+     北京消息人士透露，孙立军长期在公安部工作，曾任现中共政治局委员兼中央政法委书记孟建柱秘书，是孟的心腹爱将。预计他很快将升任公安部长助理，进入副部级行列。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    公安部国保总局是公安部最重要的部门，负责国内政治安全保卫工作，包括情报收集分析，事件处理等，局长一职更是责任重大。<br>
+    <br>
+    现年60岁的陈智敏任国保头目已经多年，亲自指挥处理了国内多宗重大全局性社会危机事件的处理，包括2000年 <a href="http://bowenpress.com/news/bowen_5824.html">博</a>
+</td></tr></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507090404.shtml" target="boxun-mirror">流亡美国的著名“六四”学生领袖熊焱的母亲去世请看博讯热点：六四</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -131,6 +164,48 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507091144.shtml" target="boxun-mirror">美国飞行教官狱中写信给中国使馆以情报换越狱请看博讯热点：间谍情报</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>美国飞行教官狱中写信给中国使馆以情报换越狱<br><font color="blue" size="2">请看博讯热点：<a href="/hot/taihai_spy.shtml">间谍情报
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月09日</small> <small>编译报道</small>)</font>
+</center>
+                <!--bodystart-->      【博闻社编译】丹尼尔・哈里斯上尉（Lt. Daniel Harris）培训飞行员、色诱儿童，之后求助北京救他出狱。<br>
+    <br>
+     博闻据美国媒体报道，丹尼尔・哈里斯2005年毕业于美国海军学院，之后在位于维吉尼亚州的战斗机武器学院做讲师。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    但丹尼尔・哈里斯还是性犯罪者，他虽然已婚有家庭，他在晚上通过因特网寻找未成年女孩。他装作小男生，骗取女孩信任后，让女孩在网络镜头前脱衣赤裸，对女孩性侵后还进行威胁。在2014年，联邦法院认定丹尼尔・哈里斯有罪，在正式判决前，他妻子正办理和他离婚，丹尼尔・哈里斯荒唐地主动写信给中国大使馆，提出给中方美国军事机密，条件是中方帮他逃离牢狱之灾。<br>
+    <br>
+    丹尼尔・哈里斯以同监犯人的名义写信，但信件被狱方察觉。信中列出他可以提供的军事机密，这个信被维吉尼亚飞行员报全文刊登（本报道附后）。<br>
+    <br>
+    他在信中说自己被冤枉，因此请求帮助，如果他越狱成功，他的人就归对方，包括所有机密。在信的背后，他画了监狱地图，标出他的房间和停车场的位置。信的背后还列出了他掌握的机密细节（附在本文后），据称对美国伤害最重的是美国太平洋的详细战略。<br>
+    <br>
+    7月13日（周一）将开庭判决丹尼尔・哈里斯，法官并就他写信给中国使馆添加罪名。即使指控他间谍罪，辩护律师也会称信不是他写的。<br>
+    <br>
+    信件内容：<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_5847.html">博</a>
+</td></tr></p>
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
@@ -680,61 +755,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201507042214" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507040611061.jpg http://upload.bx.tl/news/temp13/201507040611062.jpg http://upload.bx.tl/news/temp13/201507040611063.jpg http://upload.bx.tl/news/temp13/201507040611065.jpg http://upload.bx.tl/news/temp13/201507040611066.jpg http://upload.bx.tl/news/temp13/201507040611067.jpg http://upload.bx.tl/news/temp13/201507040611068.jpg http://upload.bx.tl/news/temp13/201507040611069.jpg http://upload.bx.tl/news/temp13/2015070406110610.jpg http://upload.bx.tl/news/temp13/201507040613061.jpg http://upload.bx.tl/news/temp13/201507040611064.jpg--> 702214       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 5天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507040911.shtml" target="boxun-mirror">戴相龙玩香港女星被博讯曝光，妻子情绪失控死亡</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>戴相龙玩香港女星被博讯曝光，妻子情绪失控死亡<br><font color="#000fC0"><small>(博讯北京时间2015年7月04日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507040911" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->【博闻社独家】中国前央行行长、前天津市长戴相龙的夫人柯用珍，因肝癌不治病逝日前出殡。知情者对本社透露，戴夫人之所以过早离世，与戴相龙本人有直接关系，原因是今年4月海外博讯网爆光戴相龙与香港某著名女星有染，戴妻得悉后气恼交加，情绪失控，要服用镇静剂和安眠药，终至病情加剧，于6月25日宣告不治。戴妻临终前还斥戴被当局调查是「活该」。<br><br>本社早前披露，戴相龙的女婿车峰自从今年初戴被中纪委立案审查后，一直在香港避风头，得悉岳母病情加剧后，车峰5月底从香港偷偷飞回北京探望，顺利回家以为平安，殊料6月2日在北京宴请朋友时被中纪委人马带走。其岳母6月29日在北京八宝山出殡，车峰无缘送别这位为他在资本市场成功赚取20多亿的岳母最后一程。<br><br>戴家虽压低调子举殡，但仍被当地媒体捅了出来。香港苹果日报报道更指，戴夫人出殡那天，戴相龙本人没有出现在告别仪式上。这大大加剧了戴被当局拘查的疑云。老丈人与女婿都身陷囹圄，戴家这场葬礼也凄惨的。尽管民生银行前董事长董文标及不少财经界猛人亲临送别，亦难慰戴夫人在天之灵。<br><br>本社获悉，戴夫人病故与戴相龙有直接关系。原因是今年4月底海外博讯新闻网报道了戴相龙在董XX安排下，以「退休后增加一些康乐活动」为由，与香港某著名女影星搭上关系，两人一来二去，不清不楚，关系十分暧昧，而戴夫人完全被蒙在鼓里。戴相龙是董XX的恩公，是戴一手提携，董才一度当上民X银行掌门人的。<br><br>知情者指，戴夫人得悉戴相龙与女星出轨后，曾在家里大骂戴相龙，情绪失控，要靠安眠药和镇静剂帮助稳定，这样一来加剧了她的肝癌恶化，终告不治，于6月25日去世。有传戴夫人临终还跟戴相龙闹离婚，并怒斥他被中纪委调查是「活该」。<br><br>戴夫人柯用珍有高级经济师职称，曾在央行江苏分行及总行就职，后出任太平洋保险公司资金运用部副总经理、太平洋保险公司驻京办主任。2000年起担任海通证券监事长，就是在这期间，车峰成为她的女婿，并且成为海通证券的实际控制人，2007年通海证券成功上市，车峰和戴家顿时成为富甲一方。柯2010年退休。<br>    <br>    <a href="http://bowenpress.com/news/bowen_5059.html">博闻社报道原文</a><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507040911" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/04)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!----> 4920911       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 5天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507040911.shtml" target="boxun-mirror">戴相龙玩香港女星被博讯曝光激死发妻</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>戴相龙玩香港女星被博讯曝光 激死发妻<br><font color="#000fC0">(<small>博讯北京时间2015年7月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507040911" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】中国前央行行长、前天津市长戴相龙的夫人柯用珍，因肝癌不治病逝日前出殡。知情者对本社透露，戴夫人之所以过早离世，与戴相龙本人有直接关系，原因是今年4月海外博讯网爆光戴相龙与香港某著名女星有染，戴妻得悉后气恼交加，情绪失控，要服用镇静剂和安眠药，终至病情加剧，于6月25日宣告不治。戴妻临终前还斥戴被当局调查是“活该”。<br>
-    <br>
-     本社早前披露，戴相龙的女婿车峰自从今年初戴被中纪委立案审查后，一直在香港避风头，得悉岳母病情加剧后，车峰5月底从香港偷偷飞回北京探望，顺利回家以为平安，殊料6月2日在北京宴请朋友时被中纪委人马带走。其岳母6月29日在北京八宝山出殡，车峰无缘送别这位为他在资本市场成功赚取20多亿的岳母最后一程。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    戴家虽压低调子举殡，但仍被当地媒体捅了出来。香港苹果日报报道更指，戴夫人出殡那天，戴相龙本人没有出现在告别仪式上。这大大加剧了戴被当局拘查的疑云。老丈人与女婿都身陷囹圄，戴家这场葬礼也凄惨的。尽管民生银行前董事长董文标及不少财经界猛人亲临送别，亦难慰戴夫人在天之灵。<br>
-    <br>
-    本社获悉，戴夫人病故与戴相龙有直接关系。原因是今年4月底海外博讯新闻网报道了戴相龙在董文标安排下，以“退休后增加一些康乐活动”为由，与香港某著名女影星搭上关系，两人一来二去，不清不楚，关系十分暧昧，而戴夫人完全被蒙在鼓里。戴相龙是董文标的恩公，是戴一手提携，董才一度当上民生银行掌门人的。<br>
-    <br>
-    知情者指，戴夫人得悉戴相龙与女星出轨后，曾在家里大闹戴相龙，情绪失控，要靠安眠药和镇静剂帮助稳定，这样一来加剧了她的肝癌恶化，终告不治，于6月25日去世。有传戴夫人临终还跟戴相龙闹离婚，并怒斥他被中纪委调查是“活该”。<br>
-    <br>
-    戴夫人柯用珍有高级经济师职称，曾在央行江苏分行及总行就职，后出任太平洋保险公司资金运用部副总经理、太平洋保险公司驻京办主任。2000年起担任海通证券监事长，就是在这期间，车峰成为她的女婿，并且成为海通证券的实际控制人，2007年通海证券成功上市，车峰和戴家顿时成为富甲一方。柯2010年退休。 <br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_5059.html">博闻社报道原文</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507040911" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4920911       
 <hr>
 <table width="620"><tr><td>
 <b></p>
