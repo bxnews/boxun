@@ -31,7 +31,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5分钟前</small>
+	<small> ============== 10分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507090404.shtml" target="boxun-mirror">流亡美国的著名“六四”学生领袖熊焱的母亲去世请看博讯热点：六四</a>
 </h2>
@@ -46,7 +46,7 @@
     <br>
     在获知熊焱母亲去世之后，湖南公民欧彪峰、何家</td></tr></p>
 <p>
-	<small> ============== 5分钟前</small>
+	<small> ============== 10分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507090130.shtml" target="boxun-mirror">尊者答拉里金：下一世达赖喇嘛应有西藏人民来决定请看博讯热点：西藏问题</a>
 </h2>
@@ -132,7 +132,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5分钟前</small>
+	<small> ============== 10分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2015/07/201507080953.shtml" target="boxun-mirror">7月8日继续救市：被吹大的泡沫破了能再吹起？请看博讯热点：股市危机</a>
 </h2>
