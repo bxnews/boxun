@@ -33,7 +33,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507091149.shtml" target="boxun-mirror">公安部国保总局换头目孙立军或接替陈智敏</a>
 </h2>
@@ -66,7 +66,7 @@
     现年60岁的陈智敏任国保头目已经多年，亲自指挥处理了国内多宗重大全局性社会危机事件的处理，包括2000年 <a href="http://bowenpress.com/news/bowen_5824.html">博</a>
 </td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507091200.shtml" target="boxun-mirror">公安部副部长率队到证监会联合排查恶意卖空股票请看博讯热点：股市危机</a>
 </h2>
@@ -106,7 +106,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507090404.shtml" target="boxun-mirror">流亡美国的著名“六四”学生领袖熊焱的母亲去世请看博讯热点：六四</a>
 </h2>
@@ -121,7 +121,7 @@
     <br>
     在获知熊焱母亲去世之后，湖南公民欧彪峰、何家</td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507091412.shtml" target="boxun-mirror">视频：李克强访问美国传销公司安利沈阳分店</a>
 </h2>
@@ -150,7 +150,7 @@
     <a href="http://bowenpress.com/news/bowen_5871.html">博</a></p>
 </td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507090130.shtml" target="boxun-mirror">尊者答拉里金：下一世达赖喇嘛应有西藏人民来决定请看博讯热点：西藏问题</a>
 </h2>
@@ -236,7 +236,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507091144.shtml" target="boxun-mirror">美国飞行教官狱中写信给中国使馆以情报换越狱请看博讯热点：间谍情报</a>
 </h2>
@@ -278,7 +278,7 @@
     <a href="http://bowenpress.com/news/bowen_5847.html">博</a>
 </td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2015/07/201507091028.shtml" target="boxun-mirror">股市财富缩水冲击深圳楼市：多个楼盘出现退房请看博讯热点：股市危机</a>
 </h2>
@@ -357,7 +357,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2015/07/201507080953.shtml" target="boxun-mirror">7月8日继续救市：被吹大的泡沫破了能再吹起？请看博讯热点：股市危机</a>
 </h2>
@@ -393,7 +393,7 @@
     <br>
     未经核实的传闻，前国务院总理朱</td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2015/07/201507081524.shtml" target="boxun-mirror">证监会责令大股东增持国资委央企集体承诺请看博讯热点：股市危机</a>
 </h2>
@@ -447,7 +447,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/z_special/2015/07/201507081440.shtml" target="boxun-mirror">纪实《蒋委员长赞》之殇1:秋风万里动</a>
 </h2>
@@ -470,7 +470,7 @@
 <br><br><b>  ８月１５日正午１２时，日本东京都中央电台在奏日本国歌《君之代》之后，播出了天皇宣读的投降诏书，日本天皇裕仁宣布大日本帝国接受《波茨坦公告》，无条件投降。</b><br>
     在长春关东军司令部作战会议室里，司令官山田乙三等一</td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507081222.shtml" target="boxun-mirror">成都军区情报部长李栋方涉郭伯雄案落马请看博讯热点：郭伯雄</a>
 </h2>
@@ -516,7 +516,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">中纪委牵头来美做令完成工作有突破性进展</a>
 </h2>
@@ -526,7 +526,7 @@
 </center>
             <!--bodystart-->      <img src="/news/images/2015/07/201507080012china1.jpg" alt="独家：中纪委大功告成 令完成将回国归案"><br>    <br>   【博闻社独家】中共中央前办公厅主任、全国政协前副主席令计划的弟弟令完成（又名：王诚），疑夹带大量中共机密文件潜逃美国，案件有新进展。本社获悉，一个由中纪委主导，公安部参与的庞大工作组在美国经两个月工作，已与令完成达成初步协议，令完成很可能同意回国配合调查，当局则承诺对其本人及其兄令计划的部份问题从轻发落。<br><br>本社获悉，这次专门为令完成案派出工作组到美国做令本人的工作，是由最高层决定。目前未知美方是否知道这个小组来美。这个小组有30多人，除了中纪委的人，公安部方面则有经济犯罪侦察局、技术侦察局和国内保</td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">独家：中纪委大功告成令完成将回国归案请看博讯热点：反腐打老虎</a>
 </h2>
@@ -542,7 +542,7 @@
     本社获悉，这次专门</p>
 </td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/07/201507070334.shtml" target="boxun-mirror">北京股市保卫战正酣投机大鳄索罗斯悄悄现身香港</a>
 </h2>
@@ -568,7 +568,7 @@
 <br>
                        据了解，索罗斯的办公室位于香港国际金融中心(IFC)二期35层，在该层梯拐角处，电梯旁指示牌标注的「SFMHK Management Limited」，即是索罗斯的办公室，亦是索罗斯在亚洲施展「魔力」的新支点。办公室面积约400平方米(4000英</td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507070927.shtml" target="boxun-mirror">习近平要党内接受党蜕化变质走上亡党毁国危机请看博讯热点：习近平观察</a>
 </h2>
@@ -647,7 +647,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507060016.shtml" target="boxun-mirror">车峰高档会所色情服务大学生伺候部长行长请看博讯热点：反腐打老虎</a>
 </h2>
@@ -678,7 +678,7 @@
     <br>
     车峰的“色”是有迹可循的。他在港时，常租太子党“躲风头”的聚居地四季酒店高级套房，用来办公会客，与神秘大</td></tr></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507050524.shtml" target="boxun-mirror">河南辉县上千警察镇压上千村民打伤抓捕多人请看博讯热点：突发事件</a>
 </h2>
@@ -695,7 +695,7 @@
     <br>
     村民“CBB</td></tr></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507050918.shtml" target="boxun-mirror">车峰死党澳门大耳窿纪晓波欧洲落网遣返北京</a>
 </h2>
@@ -735,7 +735,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507050333.shtml" target="boxun-mirror">中共网络沙皇鲁炜开右灯向左转之左“道”</a>
 </h2>
@@ -750,7 +750,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p>
 <table>
     <tr>
