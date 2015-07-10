@@ -225,6 +225,24 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507100958.shtml" target="boxun-mirror">北京锋锐律师事务所周世锋等五人遭绑架失联</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北京锋锐律师事务所周世锋等五人遭绑架失联<br><font color="#000fC0"><small>(博讯北京时间2015年7月10日 转载)</small></font>
+</center>
+            <!--bodystart-->    博讯综合报道，2015年7月10日星期五，北京锋锐律师事务所主任周世锋律师今早遭绑架失联。他是继王宇律师后，近日被绑架失联的第二位律师。锋锐律师事务所另有至少三名员工相继失联。<br><br>    据刘晓原律师介绍：“今天早上，周世锋律师在宋庄七天酒店被三个人强行带走。昨晚，周世锋律师到通州区看守所接刚刚获释的张淼。之后，“木木”和张淼、周世锋律师住在七天酒店。“木木”与张淼住在一间，周世锋律师住在她们隔壁房间。早上七时多，“木木”听到服务员敲周世锋律师的房间门。之后，听到周世锋律师喊她的名字，“木木”打开房门，看见周世锋律师被三人强行带走，头部用衣服蒙着。”<br><br>    “上午7时41分，我获知消息后，立即拨打周主任电话。当时还能通，但没有人接听。我现在再打他电话已经关机。”<br><br>    刘晓原律师接锋锐所助理刘四新博士电话说：“不好了，他们来了很多人”。此前一个多小时，周世锋律师被黑头套从宋庄七天酒店带走。锋锐所可能面临查抄。<br><br>据刘晓原律师稍后在推特发布的信息，锋锐所又有多人失联。“8时45分，刘四新博士（行政助理）从家中给我通电话，没说几句话，他突然说“他们来人了，他们来人了”。随后，电话中断至今联系不上。出纳小王从8时25分从家出发去单位上班，至今处于失联状态。上午，李姝云律师在家中，她发微信称有人敲门，害怕不开门，现也联系不上。”<br><br>    在今年五月被刑事拘留并逮捕的吴淦先生（网名超级低俗屠夫）是锋锐律师事务所的员工，王宇律师是吴淦先生的委托律师。<br><br>    此前，周世锋律师曾表示个人将出资800万人民币建立中国律师维权基金，将向全国各地受迫害律师家属提供支助。他任主任的锋锐律所得知维权女士叶洪霞被刑拘没有律师时，决定无偿为她提供法律帮助，他曾亲自去会见叶洪霞。锋锐律所也曾承诺将提供屠妇失去自由期间的所有生活费及妻子和孩子的生活费用。这些事件是否成为周世锋律师今早遭绑架失联的诱因我们将进一步观察。<br><br>-<!--(Modified on 2015/7/10)--> <!--bodyend-->       
+                  
+                  
+                  
+           (博讯 boxun.com) <br><!----> 4420958       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507100031.shtml" target="boxun-mirror">因声援香港占中而被捕的王藏张淼等四人已经获释</a>
 </h2>
 <p><tr>
@@ -817,32 +835,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2015/07/201507070334.shtml" target="boxun-mirror">北京股市保卫战正酣投机大鳄索罗斯悄悄现身香港</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北京股市保卫战正酣 投机大鳄索罗斯悄悄现身香港<br><font color="#000fC0">(<small>博讯北京时间2015年7月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201507070334" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-     【博闻社独家】正当中国政府被A股崩盘式的下泄搞得焦头烂额，倾尽国力与看不见的敌人打一场金融大仗之时，本社获悉，国际著名投机家、曾在1997年亚洲金融危机狙击港元泰铢而兴风作浪的投资大师索罗斯，最近曾悄悄现身香港他的办公室，隔岸观火中国这场金融之仗。暂未知这名国际金融大鳄有何具体举动，但他在这个微妙时刻现身香港，引起香港金融界诸多联想。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       据了解，索罗斯的办公室位于香港国际金融中心(IFC)二期35层，在该层梯拐角处，电梯旁指示牌标注的「SFMHK Management Limited」，即是索罗斯的办公室，亦是索罗斯在亚洲施展「魔力」的新支点。办公室面积约400平方米(4000英</td></tr></p>
-<p>
-	<small> ============== 3天前</small>
 </p>
 <table>
     <tr>
