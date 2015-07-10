@@ -103,6 +103,22 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507101830.shtml" target="boxun-mirror">北京大扫荡：超过十名维权律师被抓</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北京大扫荡：超过十名维权律师被抓<br><font color="#000fC0"><small>(博讯北京时间2015年7月10日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507101830" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->     博讯综合报导，继北京锋锐律师事务所周世锋律师王宇律师等五人遭绑架失联后，北京有至少超过十名维权律师、律师助理或律师事务所工作人员于7月10日被带走，多个律师所被查抄。<br><br>     据李春富律师发布的消息：“刚收到王峭岭的短信：‘李和平律师被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。’请大家关注。”<br>    <br>     目前已确定被抓走的维权律师、律师助理或律师事务所工作人员包括：王宇、包龙军、包卓轩、周世锋、刘四新、李姝云、王芳、、戈平、李和平，此外还有林斌（望云和尚）等人被抓走。<br>                       <br>     此外还有多人处于失联状态：张维玉、王全章、周庆（锋锐所司机）、黄立群。<br><br>     博讯将继续更新汇总报道。<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507101830" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/10)-->  <!--(Modified on 2015/7/10)--> <!--bodyend-->       
+                  
+           (博讯 boxun.com) <br><!----> 471830       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507100335.shtml" target="boxun-mirror">亲历股灾，800万入市的中产阶级直接变贫民请看博讯热点：股市危机</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -814,52 +830,6 @@
     <br><center><font size="4"><b>秋风万里动</b></font></center>
 <br><br><b>  ８月１５日正午１２时，日本东京都中央电台在奏日本国歌《君之代》之后，播出了天皇宣读的投降诏书，日本天皇裕仁宣布大日本帝国接受《波茨坦公告》，无条件投降。</b><br>
     在长春关东军司令部作战会议室里，司令官山田乙三等一</td></tr></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507081222.shtml" target="boxun-mirror">成都军区情报部长李栋方涉郭伯雄案落马请看博讯热点：郭伯雄</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>成都军区情报部长李栋方涉郭伯雄案落马<br><font color="blue" size="2">请看博讯热点：<a href="/hot/guoboxiong.shtml">郭伯雄
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507081222" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】本社获悉，成都军区司令部情报部部长李栋方因郭伯雄案被抓。李栋方将以贪污挪用公款罪入罪，预计会判15年。<br>
-    <br>
-     李栋方于今年3月开始被调查，近日被捕。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    自12年王立军事件以来，成都军区师级以上干部死亡、落马人数列各大军区之首：<br>
-    <br>
-    2012年5月，成都军区副司令员阮志柏在京突然病逝，得年62岁；<br>
-    2014年4月，西藏军区副政委卫晋因涉嫌严重违纪，被成都军区纪委立案调查；<br>
-    2014年5月，已到点退役的四川省军区原政委叶万勇被特警于家中带走；<br>
-    成都军区联勤部部长朱和平于2014年8月被军委纪委立案调查，2015年1月移送军事司法机关依法处理；<br>
-    成都军区副司令员杨金山于2014年10月十八届四中全会期间被调查。<br>
-    <br>
-    此外，郭伯雄一案本于5月传达到军级，后因高层博弈，郭案受到阻力，通报不再下发。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_5616.html">博闻社报道全文</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507081222" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1391222       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 3天前</small>
 </p>
