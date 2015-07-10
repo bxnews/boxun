@@ -303,6 +303,21 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507101830.shtml" target="boxun-mirror">快讯：林斌、戈平等9位维权律师被抓</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>快讯：林斌、戈平等9位维权律师被抓<br><font color="#000fC0"><small>(博讯北京时间2015年7月10日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507101830" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->      李春富律师：刚收到王峭岭的短信：“李和平律师被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”请大家关注。<br>    <br>     目前已确定被抓：王宇、包龙军、包卓轩、周世锋、刘四新、李姝云、王芳、林斌（望云和尚）、戈平、李和平 <br>                       <br>    处于失联状态：张维玉、王全章、周庆（锋锐所司机）、黄立群<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507101830" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/10)--> <!--bodyend-->       
+           (博讯 boxun.com) <br><!----> 471830       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507090130.shtml" target="boxun-mirror">尊者答拉里金：下一世达赖喇嘛应由西藏人民来决定</a>
 </h2>
 <p><tr>
@@ -845,16 +860,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">中纪委牵头来美做令完成工作有突破性进展</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中纪委牵头来美做令完成工作 有突破性进展<br><font color="#000fC0"><small>(博讯北京时间2015年7月08日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507080012" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->      <img src="/news/images/2015/07/201507080012china1.jpg" alt="独家：中纪委大功告成 令完成将回国归案"><br>    <br>   【博闻社独家】中共中央前办公厅主任、全国政协前副主席令计划的弟弟令完成（又名：王诚），疑夹带大量中共机密文件潜逃美国，案件有新进展。本社获悉，一个由中纪委主导，公安部参与的庞大工作组在美国经两个月工作，已与令完成达成初步协议，令完成很可能同意回国配合调查，当局则承诺对其本人及其兄令计划的部份问题从轻发落。<br><br>本社获悉，这次专门为令完成案派出工作组到美国做令本人的工作，是由最高层决定。目前未知美方是否知道这个小组来美。这个小组有30多人，除了中纪委的人，公安部方面则有经济犯罪侦察局、技术侦察局和国内保</td></tr></p>
 <p>
 	<small> ============== 3天前</small>
 </p>
