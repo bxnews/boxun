@@ -19,6 +19,44 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507101409.shtml" target="boxun-mirror">高层决定公布郭伯雄案或在八一前请看博讯热点：郭伯雄</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>高层决定公布郭伯雄案 或在八一前<br><font color="blue" size="2">请看博讯热点：<a href="/hot/guoboxiong.shtml">郭伯雄
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507101409" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】本社获悉，经高层再三研判，决定向全党公布郭伯雄案，公布时间会在八一建军节之前。其主要罪名是卖官及贪腐。<br>
+    <br>
+     如果消息属实，那意味着上届两位中央军委副主席郭伯雄、徐才厚都有问题，中央军委班子“全烂了”。也正因如此，郭伯雄一案在高层受到相当大的阻力。反对对徐才厚和郭伯雄都采取公开方式处理者，他们担心对徐郭两人都公开处置，等于变相全盘否定上届中央军委工作。对郭的调查，于5月传达到军级，之后便不再见诸文件，更不再下达。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    消息指，郭伯雄任军委副主席时分管总参、总装两大块，这两系统的、、、<br>
+    <br>
+    博闻社报道全文，<a href="http://bowenpress.com/news/bowen_6005.html">请点击这里</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507101409" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 831409       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507100339.shtml" target="boxun-mirror">记者问尊者神秘的包包里是什么，达赖喇嘛这样说请看博讯热点：西藏问题</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -817,22 +855,6 @@
                 <br><b></b><center>中纪委牵头来美做令完成工作 有突破性进展<br><font color="#000fC0"><small>(博讯北京时间2015年7月08日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507080012" target="_new">支持此文作者/记者</a>)</small></font>
 </center>
             <!--bodystart-->      <img src="/news/images/2015/07/201507080012china1.jpg" alt="独家：中纪委大功告成 令完成将回国归案"><br>    <br>   【博闻社独家】中共中央前办公厅主任、全国政协前副主席令计划的弟弟令完成（又名：王诚），疑夹带大量中共机密文件潜逃美国，案件有新进展。本社获悉，一个由中纪委主导，公安部参与的庞大工作组在美国经两个月工作，已与令完成达成初步协议，令完成很可能同意回国配合调查，当局则承诺对其本人及其兄令计划的部份问题从轻发落。<br><br>本社获悉，这次专门为令完成案派出工作组到美国做令本人的工作，是由最高层决定。目前未知美方是否知道这个小组来美。这个小组有30多人，除了中纪委的人，公安部方面则有经济犯罪侦察局、技术侦察局和国内保</td></tr></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507080012.shtml" target="boxun-mirror">独家：中纪委大功告成令完成将回国归案请看博讯热点：反腐打老虎</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：中纪委大功告成 令完成将回国归案<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507080012" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="/news/images/2015/07/201507080012china1.jpg" alt="独家：中纪委大功告成 令完成将回国归案"><p><br>
-    <br>
-    【博闻社独家】中共中央前办公厅主任、全国政协前副主席令计划的弟弟令完成，疑夹带大量中共机密文件潜逃美国，案件有新进展。本社获悉，一个由中纪委和公安部组成的庞大工作`组在美国经两个月工作，已与令完成达成初步协议，令完成同意回国配合调查，当局则对其本人及其兄令计划的部份问题从轻发落。<br>
-    <br>
-    本社获悉，这次专门</p>
-</td></tr></p>
 <p>
 	<small> ============== 2天前</small>
 </p>
