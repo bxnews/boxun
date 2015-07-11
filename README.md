@@ -19,6 +19,99 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/finance/2015/07/201507110142.shtml" target="boxun-mirror">中国网友称各地银行已经出现美元现钞枯竭</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中国网友称各地银行已经出现美元现钞枯竭<br><font color="#000fC0"><small>(博讯北京时间2015年7月11日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201507110142" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       <br>    （博讯报道，7月11日）近日，中文社交媒体网站纷纷有网友发现在中国的银行已经没有办法换到美元现钞，或是以较小的限额供应美元现钞。<br>    <br>    G+用户“bill shen”发信息说：“今天（7月10日）去中行预约取美金现钞，南京鼓楼支行的工作人员说，换汇可以，但是取不到现钞，昨天通知的，限领，银行领不到现钞，不是额度问题，预约也没用。”<br>    <br>    <img src="/news/images/2015/07/201507110142finance1.jpg" alt="中国网友称各地银行已经出现美元现钞枯竭"><br>    <br>    认证信息为北京乐钱金融信息服务有限公司开发人员的“黑上老妖五代”发微博说：“银行规定每人每年只能换5万美元，下午去黑市了解了下情况，现在的行情美元价大概是6.30，银行今天的现钞价是6.22，问题是，现在贩子手里没货了，不光是今天没货，这几天都没货，问他原因，回答说都是抛了股票的人来换美元，把他们的美元全买走了，想换的要预约，等有了再电话通知。”<br>    <br>    微博用户“俺就是二爷namely关二爷的魂”发微博说“上海各家银行各种人都在换美金经济危机的节奏吗？人民币不能再缩水了啊。”另一微博用户“妹妹背着小书包”印证了这一说法：“浦发银行，今天柜台说没那么多美元现钞了，大家都来取，每人只给1000-2000。”<br>    <br>    微博用户“kengkeng2013四太子”说：“我到银行领一些美元现钞，银行美元枯竭。”微博用户“李三笑008”称，“今天跑了本市四大银行才换了5千美金！美女说就这两天全部是换美金的。哎！搞毛！崩在眼前！”<br>    <br>    另有推特用户</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507110600.shtml" target="boxun-mirror">安徽数千市民抗议警察抢尸与警冲突掀翻警车请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>安徽数千市民抗议警察抢尸与警冲突掀翻警车<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507110600" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      安徽省安庆市数千市民集会，抗议庸医治死7岁小女孩，抗议警察暴力抢尸殴打抓捕家属，与警察发生激烈冲突，数名市民被抓捕，两辆警车被市民掀翻。<br>
+    <br>
+    7月5日下午，家住安庆市黄土坑附近的7岁小女孩杨雨辰因感冒到张氏中医院就诊，在医生建议下输液治疗，中途出现抽搐、呼吸困难等症状，经两次转院抢救无效死亡。<br>
+    <br>
+    据家属透露，5日当天，因医院拒绝与家属见面并紧锁大门，家属遂砸开医院大门，将小孩尸体放入医院，在医院大门挂上花圈横幅讨说法。由于一直未得到医院满意的说法，家属持续在医院抗议至9日晚上。6日上午，家属一度将医院门口的交通阻断，但被警察暴力驱散。<br>
+    <br>
+    9日晚9点左右，当地政府趁夜出动数百警察、特警到张氏中医院，不顾围观市民抗议，殴打抓捕家属，将小女孩尸体强行抢走。之后，上千围观市民将交通阻断至深夜。<br>
+    <br>
+    目击网友“阿彬大人i”说：由于医院工作人员责任心的问题让一个活泼可爱水灵的生命没了，整个医院人员突然失踪，政府还在欺压小女孩一家人。安庆市政府不竭尽力量法律援助，不认真司法诉讼鉴定客观处理，而是三更半夜的路一封，当着上千群众面，几百人冲上来抢着孩子尸体就跑，无异于自抹一身粪。<br>
+    <br>
+    10日晚，数千市民再次聚集到张氏中医院附近，抗议警察暴力抢尸，与警察发生激烈冲突，数名市民被抓捕，两辆警车被市民掀翻。<br>
+    <br>
+    目击网友“枫色芳草”说：安庆市政府联合一家私人医院草菅人命，引起数千市民公愤，造成恶劣影响，警察随意殴打民众，求扩散！<br>
+    <br>
+    目击网友“用户ay0vvkjq1b”说：今天10号晚上老百姓憋了一肚子火把前来的交警的车辆直接推翻，试问市政府为什么要这样对待老百姓，医院的法人代表一直不露面。<br>
+    <br>
+    目击网友“Jim_Lee-F”说：安庆诊所医死小女孩，政府安排职能部门强制抢尸，已经闹的满城风雨！今晚群众自发聚集，掀翻两辆警车，事态还在继续扩大！<br>
+    <br>
+    之后，市民继续与赶到现场的数百警察对峙到次日凌晨，要求释放被抓捕的市民。<br>
+    <br>
+    目击网友“allen74181”说：有几个人被抓了，特警被困要求放人。<br>
+    <br>
+    目前，事件还在持续中。<br>
+    <br>
+    （网络图片）<br>
+    <img src="/news/images/2015/07/201507110600china1.jpg" alt="安徽数千市民抗议警察抢尸与警冲突掀翻警车"><p><br>
+    <img src="/news/images/2015/07/201507110600china2.jpg" alt="安徽数千市民抗议警察抢尸与警冲突掀翻警车"></p>
+<p><br>
+    <img src="/news/images/2015/07/201507110600china3.jpg" alt="安徽数千市民抗议警察抢尸与警冲突掀翻警车"></p>
+<p><br>
+    <img src="/news/images/2015/07/201507110600china4.jpg" alt="安徽数千市民抗议警察抢尸与警冲突掀翻警车"></p>
+<p><br>
+    <img src="/news/images/2015/07/201507110600china5.jpg" alt="安徽数千市民抗议警察抢尸与警冲突掀翻警车"></p>
+<p><br>
+    <img src="/news/images/2015/07/201507110600china6.jpg" alt="安徽数千市民抗议警察抢尸与警冲突掀翻警车"></p>
+<p><br>
+    <img src="/news/images/2015/07/201507110600china7.jpg" alt="安徽数千市民抗议警察抢尸与警冲突掀翻警车"></p>
+<p><br>
+    <img src="/news/images/2015/07/201507110600china8.jpg" alt="安徽数千市民抗议警察抢尸与警冲突掀翻警车"></p>
+<p><br>
+    <img src="/news/images/2015/07/201507110600china9.jpg" alt="安徽数千市民抗议警察抢尸与警冲突掀翻警车"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507110600" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507101319521.jpg http://upload.bx.tl/news/temp13/201507101319522.jpg http://upload.bx.tl/news/temp13/201507101319523.jpg http://upload.bx.tl/news/temp13/201507101319524.jpg http://upload.bx.tl/news/temp13/201507101320121.jpg http://upload.bx.tl/news/temp13/201507101320122.jpg http://upload.bx.tl/news/temp13/201507101320123.jpg http://upload.bx.tl/news/temp13/201507101320124.jpg http://upload.bx.tl/news/temp13/201507101320131.jpg--> 3190600       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/finance/2015/07/201507110142.shtml" target="boxun-mirror">中国网友称各地银行已经出现美元现钞枯竭请看博讯热点：金融问题</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中国网友称各地银行已经出现美元现钞枯竭<br><font color="blue" size="2">请看博讯热点：<a href="/hot/bank.shtml">金融问题
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201507110142" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    （博讯报道，7月11日）近日，中文社交媒体网站纷纷有网友发现在中国的银行已经没有办法换到美元现钞，或是以较小的限额供应美元现钞。<br>
+    <br>
+    G+用户“bill shen”发信息说：“今天（7月10日）去中行预约取美金现钞，南京鼓楼支行的工作人员说，换汇可以，但是取不到现钞，昨天通知的，限领，银行领不到现钞，不是额度问题，预约也没用。”<br>
+    <br>
+    <img src="/news/images/2015/07/201507110142finance1.jpg" alt="中国网友称各地银行已经出现美元现钞枯竭"><p><br>
+    <br>
+    认证信息为北京乐钱金融信息服务有限公司开发人员的“黑上老妖五代”发微博说：“银行规定每人每年只能换5万美元，下午去黑市了解了下情况，现在的行情美元价大概是6.30，银行今天的现钞价是6.22，问题是，现在贩子手里没货了，不光是今天没货，这几天都没货，问他原因，回答说都是抛了股票的人来换美元，把他们的美元全买走了，想换的要预约，等有了再电话通知。”<br>
+    <br>
+    微博用户“俺就是二爷namely关二爷的魂”发微博说“上海各家银行各种人都在换美金。。。。经济危机的节奏吗？人民币不能再缩水了啊。”另一微博用户“妹妹背着小书包”印证了这一说法：“浦发银行，今天柜台说没那么多美元现钞了，大家都来取，每人只给1000-2000。”<br>
+    <br>
+    微博用户“kengkeng2013四太子”说：“我到银行领一些美元现钞，银行美元枯竭。”微博用户“李三笑008”称，“今天跑了本市四大银行才换了5千美金！美女说就这两天全部是换美金的。哎！搞毛！崩在眼前！”<br>
+    <br>
+    另有推特用户</p>
+</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507101409.shtml" target="boxun-mirror">高层决定公布郭伯雄案或在八一前请看博讯热点：郭伯雄</a>
 </h2>
 <p><tr>
@@ -741,88 +834,6 @@
 <b></p>
 <p>
 	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507091754.shtml" target="boxun-mirror">原《时代周报》驻京记者助手张淼无罪获释请看博讯热点：打压媒体和记者</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>原《时代周报》驻京记者助手张淼无罪获释<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月09日</small> <small>转载</small>)</font>
-</center>
-                <!--bodystart-->       北京市通州区检察院做出决定，对原德国《时代周报》驻京记者助手张淼"涉嫌从事寻衅滋事活动"一案不予起诉。在此之间张淼已经在看守所被关押了9个多月。<br>
-    <img src="/news/images/2015/07/201507091754china1.jpg" alt="原《时代周报》驻京记者助手张淼无罪获释"><p><br>
-    <br>
-    （德国之声中文网）张淼的代理律师周世锋表示，今天（7月9日）上午他接到北京市通州区检察院打来的电话。对方称，通州区检察院对于张淼"涉嫌从事寻衅滋事活动"一案做出不予起诉的决定，并且当晚10点张淼将获得无罪释放。<br>
-    <br>
-    张淼曾是德国《时代周报》 驻京记者安吉拉・科克里茨（Angela Köckritz）的助手。去年10月初，在香港报道"雨伞运动"之后回到北京的张淼遭到警方逮捕。据称，她当时正计划参加几名中国艺术家在宋庄艺术区举办一场声援香港雨伞运动的诗歌朗诵会。<br>
-    <br>
-    事发三个月后，在通过其他管道斡旋无效的情况下，科克里茨在《时代周报》上刊载长文，讲述张淼被捕事件以及她本人遭到中国国安人员连续数天威胁的经过。<br>
-    <br>
-    今年6月，张淼的代理律师周世锋曾向德国之声透露，6月初北京检方曾打算释放张淼。但前提是张淼必须写一份"悔过书"。根据律师所掌握的信息，张淼在"悔过书"中表示"进入看守所后才终于认识到中国人权比美国好五倍"。<br>
-    <br>
-    依照律师的说法，6月25日原本是通州区检察院应该对张淼所涉案件做出是否起诉决定的最终期限。但是这一天检察院方面通知律师周世锋案件再度延期。<br>
-    <br>
-    周世锋说，今天通州区检察院做出不予起诉的决定表明检察机构"还是没有足够的证据证明张淼实施了犯罪"。他说，从结果来看是积极的一面，但是"这样一个案子拖了这么长时间，浪费、滥用国家大量的执法资源，是对国家执法信誉的伤害，并且损害了中国国家形象"。周世锋说："（如果）缺乏监督和制约，任何一个权力机关、任何一个人就会疯掉。"
- <!--bodyend-->(博讯 boxun.com) <br><!----> 4231754       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507091247.shtml" target="boxun-mirror">因声援香港占中而被捕的艺术家追魂与王藏今获释</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>因声援香港占中而被捕的艺术家追魂与王藏今获释<br><font color="#000fC0"><small>(博讯北京时间2015年7月09日 转载)</small></font>
-</center>
-            <!--bodystart-->      <br>     （博讯北京报道，7月9日）据刚从刘卫国律师那里得到的消息，因声援香港占中而被逮捕的北京宋庄著名艺术家刘进兴（网名“追魂”）及诗人王藏，均将于今天获释。<br>                     <br>    据刘卫国律师介绍，他刚接到北京通州区检察院电话，检方称：“对刘进兴做出不起诉决定。” 刘进兴是北京宋庄著名艺术家，网名“追魂”。此外，据从宋庄诗人王藏的太太处获悉，王藏的太太今天也接到张维玉律师的电话，检察院电话通知张律师不予起诉王藏，晚上十时前可能会放人。<br><br>    去年10月，刘进兴及王藏等多名宋庄的艺术家，因声援香港占中被以寻衅滋事罪关押至今。<br>    <br>    -<br><br><!--(Modified on 2015/7/09)--><!--(Modified on 2015/7/09)--><!--bodyend-->       
-                  
-           (博讯 boxun.com) <br><!----> 4311247       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/finance/2015/07/201507080953.shtml" target="boxun-mirror">7月8日继续救市：被吹大的泡沫破了能再吹起？请看博讯热点：股市危机</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>7月8日继续救市：被吹大的泡沫破了能再吹起？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201507080953" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     中国股市突然崩裂，政府频繁出重手救市，但效果甚微。博讯获悉，8日会继续出手救市。据称，有办法救，但代价很大。<br>
-    <br>
-     网文“<a href="http://www.boxun.com/news/gb/finance/2015/07/201507072301.shtml">2015 年股市崩盘，会有什么样的后果？</a>”指出，上周五，央行进行公开市场操作释放流动性，大家都猜测周末就不会降息。但周五市场根本不给面子。可以想见，上周末，应该是地位高于周小川的领导决定降息降准。公开市场操作，降息与降准，央行每次只使用一次，上周末把三样武器全部摆出。 结果，周一依然不给面子。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    文章指出，今天，正是金融危机的前夜。<br>
-    <br>
-    博讯摘录了近几个月的相关报道，回顾一下官方、学者、媒体对中国股市的看法：<br>
-    <br>
-    中国两会期间，证监会主席肖钢公开评论股市，称：“本轮上涨行情是合理的和必然的”，“本轮牛市是改革牛”。一贯出言谨慎的央行行长周小川，也一反常态地说：“资金进股市，也是支持实体经济”，更明显地表露了积极的股市政策，可视为全民炒股的动员令。<br>
-    <br>
-    BBC：中国政府和官员过多干预股市发展，是吸引投机、导致市场暴涨暴跌的根本原因。<br>
-    <br>
-    未经核实的传闻，前国务院总理朱</td></tr></p>
-<p>
-	<small> ============== 3天前</small>
 </p>
 <table>
     <tr>
