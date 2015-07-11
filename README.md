@@ -134,6 +134,21 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507111516.shtml" target="boxun-mirror">视频：少儿不宜</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：少儿不宜<br><font color="#000fC0"><small>(博讯北京时间2015年7月11日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->      <img src="http://www.bowenpress.com/wp-content/uploads/2015/07/f62ccdd6262d62000e62f62626262a62e62e62c6262620062-300x224."><br>    【博闻社】这是本社获得的一段视频，可能是7月9日，地点不详。视频中，一名犯人被拖到枪决地，跪在地上，这时，一名小个子武警（警察？）走上前，用手枪对准脑袋，一枪犯人倒地。<br>    本视频上传Youtube时已经标注仅限于成人观看，并加了警示。如果此视频被人举报，我们将传到其它空间。<br>    <br>    <iframe width="420" height="315" src="https://www.youtube.com/embed/C6SA-Ahstqo" frameborder="0" allowfullscreen></iframe><br>    <br>    <a href="http://www.bowenpress.com/">博闻社更多精彩报道</a><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/11)--> <!--bodyend-->       
+           (博讯 boxun.com) <br><!----> 1681516       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507101409.shtml" target="boxun-mirror">高层决定公布郭伯雄案或在八一前请看博讯热点：郭伯雄</a>
 </h2>
 <p><tr>
@@ -733,48 +748,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507091144.shtml" target="boxun-mirror">美国飞行教官狱中写信给中国使馆以情报换越狱请看博讯热点：间谍情报</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>美国飞行教官狱中写信给中国使馆以情报换越狱<br><font color="blue" size="2">请看博讯热点：<a href="/hot/taihai_spy.shtml">间谍情报
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月09日</small> <small>编译报道</small>)</font>
-</center>
-                <!--bodystart-->      【博闻社编译】丹尼尔・哈里斯上尉（Lt. Daniel Harris）培训飞行员、色诱儿童，之后求助北京救他出狱。<br>
-    <br>
-     博闻据美国媒体报道，丹尼尔・哈里斯2005年毕业于美国海军学院，之后在位于维吉尼亚州的战斗机武器学院做讲师。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    但丹尼尔・哈里斯还是性犯罪者，他虽然已婚有家庭，他在晚上通过因特网寻找未成年女孩。他装作小男生，骗取女孩信任后，让女孩在网络镜头前脱衣赤裸，对女孩性侵后还进行威胁。在2014年，联邦法院认定丹尼尔・哈里斯有罪，在正式判决前，他妻子正办理和他离婚，丹尼尔・哈里斯荒唐地主动写信给中国大使馆，提出给中方美国军事机密，条件是中方帮他逃离牢狱之灾。<br>
-    <br>
-    丹尼尔・哈里斯以同监犯人的名义写信，但信件被狱方察觉。信中列出他可以提供的军事机密，这个信被维吉尼亚飞行员报全文刊登（本报道附后）。<br>
-    <br>
-    他在信中说自己被冤枉，因此请求帮助，如果他越狱成功，他的人就归对方，包括所有机密。在信的背后，他画了监狱地图，标出他的房间和停车场的位置。信的背后还列出了他掌握的机密细节（附在本文后），据称对美国伤害最重的是美国太平洋的详细战略。<br>
-    <br>
-    7月13日（周一）将开庭判决丹尼尔・哈里斯，法官并就他写信给中国使馆添加罪名。即使指控他间谍罪，辩护律师也会称信不是他写的。<br>
-    <br>
-    信件内容：<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_5847.html">博</a>
-</td></tr></p>
 <p>
 	<small> ============== 3天前</small>
 </p>
