@@ -129,7 +129,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 25分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507120040.shtml" target="boxun-mirror">官媒发文抹黑人权律师，周世锋及王宇等六人被刑拘</a>
 </h2>
@@ -148,7 +148,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 25分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507120040.shtml" target="boxun-mirror">中国官媒：摧毁以锋锐所为平台的重大犯罪团伙</a>
 </h2>
@@ -165,7 +165,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 25分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507112242.shtml" target="boxun-mirror">中国持续镇压人权律师，郑恩宠李方平被带走</a>
 </h2>
