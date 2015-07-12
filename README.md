@@ -131,6 +131,59 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507121154.shtml" target="boxun-mirror">网友在白宫请愿网联署要求美国取消习近平访美请看博讯热点：白色恐怖</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>网友在白宫请愿网联署要求美国取消习近平访美<br><font color="blue" size="2">请看博讯热点：<a href="/hot/national_terror.shtml">白色恐怖
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507121154" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    （博讯报道，7月12日）美国东部时间7月11日下午，一则要求美国政府取消中国国家主席习近平对美国的访问的联署被发布到美国白宫请愿网上。按照这个网站规定，如果请愿人数超过十万人，请愿将会被美国政府官员审阅，并获得官方回应。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       请愿信称，中国从7月10起已经有超过60位人权律师被警方强行带走或失踪，呼吁呼吁奥巴马总统及美国政府，尽快关注中国近日发生的这一事件并从人道主义出发采取强有力的干预措施，包括取消中国国家主席习近平原定于今年九月对美国的国事访问及暂停其他与中国政府的官方交流活动。<br>
+    <br>
+    这封请愿信由2011年在中国掀起轩然大波的推特“茉莉花”账号（ @cn220 ）首先在推特上公开。<br>
+    <br>
+    请愿信英文及中文翻译如下：<br>
+    <br>
+    Calling for the U.S. government to cancel Chinese President Xi Jinping’s visit to the U.S.<br>
+    <br>
+    Since the morning of July 10th, the Chinese authorities have begun a large-scale crackdown on human rights lawyers and activists in China. Within two days, over 60 human rights lawyers and activists have been forcefully taken away by the police or “disappeared”. The number is still rising.<br>
+    <br>
+    Since Xi Jinping came to power, China’s human rights record has kept worsening. Under his reign over 1000 dissidents have been arrested. We urge President Obama and the U.S. government to investigate this case of severe human rights infringement, and, on humanitarian ground, take strong measures to intervene. Xi’s state visit to the U.S. scheduled for September this year should be cancelled, and all official exchanges with the Chinese government should be suspended until this matter is resolved.<br>
+    <br>
+    呼吁美国政府取消中国国家主席习近平对美国的访问<br>
+    <br>
+    从北京时间7月10日早上开始，中国当局开始对大陆人权律师、维权人士进行大规模非法抓捕。两天之内已经有超过60位人权律师被警方强行带走或失踪，而这一数字仍在上升。<br>
+    <br>
+    习近平上台执政至今，中国人权状况不断恶化，至少超过一千名异议人士被中国当局拘押。我们呼吁奥巴马总统及美国政府，尽快关注中国近日发生的大规模非法抓捕人权律师这一人道主义灾难事件，并从人道主义出发，立即采取强有力的干预措施，取消中国国家主席习近平原定于今年九月对美国的国事访问及暂停其他与中国政府的官方交流活动，直至危机结束。<br>
+    <br>
+    -
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507121154" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4701154       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507120040.shtml" target="boxun-mirror">官媒发文抹黑人权律师，周世锋及王宇等六人被刑拘</a>
 </h2>
 <p><tr>
@@ -691,21 +744,6 @@
                   
                   
            (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507090829171.jpg--> 1060031       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507101830.shtml" target="boxun-mirror">快讯：林斌、戈平等9位维权律师被抓</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>快讯：林斌、戈平等9位维权律师被抓<br><font color="#000fC0"><small>(博讯北京时间2015年7月10日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507101830" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->      李春富律师：刚收到王峭岭的短信：“李和平律师被天津市公安局带走。家里被彻底搜查了一遍，所有电脑都被带走。涉及刑事案件。有什么好的律师可推荐。”请大家关注。<br>    <br>     目前已确定被抓：王宇、包龙军、包卓轩、周世锋、刘四新、李姝云、王芳、林斌（望云和尚）、戈平、李和平 <br>                       <br>    处于失联状态：张维玉、王全章、周庆（锋锐所司机）、黄立群<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507101830" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/10)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!----> 471830       
 <hr>
 <table width="620"><tr><td>
 <b></p>
