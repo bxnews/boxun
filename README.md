@@ -220,6 +220,21 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507121154.shtml" target="boxun-mirror">网友在白宫请愿网联署要求美国取消习近平访美</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>网友在白宫请愿网联署要求美国取消习近平访美<br><font color="#000fC0"><small>(博讯北京时间2015年7月12日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507121154" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       <br>    （博讯报道，7月12日）美国东部时间7月11日下午，一则要求美国政府取消中国国家主席习近平对美国的访问的联署被发布到美国白宫请愿网上。按照这个网站规定，如果请愿人数超过十万人，请愿将会被美国政府官员审阅，并获得官方回应。<br>      <br>    请愿信称，中国从7月10起已经有超过60位人权律师被警方强行带走或失踪，呼吁呼吁奥巴马总统及美国政府，尽快关注中国近日发生的这一事件并从人道主义出发采取强有力的干预措施，包括取消中国国家主席习近平原定于今年九月对美国的国事访问及暂停其他与中国政府的官方交流活动。<br>    <br>    这封请愿信由2011年在中国掀起轩然大波的推特“茉莉花”账号（ @cn220 ）首先在推特上公开。<br>    <br>    请愿信英文及中文翻译如下：<br>    <br>    Calling for the U.S. government to cancel Chinese President Xi Jinping’s visit to the U.S.<br>    <br>    Since the morning of July 10th, the Chinese authorities have begun a large-scale crackdown on human rights lawyers and activists in China. Within two days, over 60 human rights lawyers and activists have been forcefully taken away by the police or “disappeared”. The number is still rising.<br>    <br>    Since Xi Jinping came to power, China’s human rights record has kept worsening. Under his reign over 1000 dissidents have been arrested. We urge President Obama and the U.S. government to investigate this case of severe human rights infringement, and, on humanitarian ground, take strong measures to intervene. Xi’s state visit to the U.S. scheduled for September this year should be cancelled, and all official exchanges with the Chinese government should be suspended until this matter is resolved.<br>    <br>    呼吁美国政府取消中国国家主席习近平对美国的访问<br>    <br>    从北京时间7月10日早上开始，中国当局开始对大陆人权律师、维权人士进行大规模非法抓捕。两天之内已经有超过60位人权律师被警方强行带走或失踪，而这一数字仍在上升。<br>    <br>    习近平上台执政至今，中国人权状况不断恶化，至少超过一千名异议人士被中国当局拘押。我们呼吁奥巴马总统及美国政府，尽快关注中国近日发生的大规模非法抓捕人权律师这一人道主义灾难事件，并从人道主义出发，立即采取强有力的干预措施，取消中国国家主席习近平原定于今年九月对美国的国事访问及暂停其他与中国政府的官方交流活动，直至危机结束。<br><br>    请愿联署链接：<a href="http://wh.gov/i9RXu" target="_blank">呼吁美国政府取消中国国家主席习近平对美国的访问</a>。<br>    <br>    -<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507121154" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/12)--> <!--bodyend-->       
+           (博讯 boxun.com) <br><!----> 4701154       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507112242.shtml" target="boxun-mirror">中国持续镇压人权律师，郑恩宠李方平被带走</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -376,6 +391,44 @@
 </center>
             <!--bodystart-->      <img src="http://www.bowenpress.com/wp-content/uploads/2015/07/f62ccdd6262d62000e62f62626262a62e62e62c6262620062-300x224."><br>    【博闻社】这是本社获得的一段视频，可能是7月9日，地点不详。视频中，一名犯人被拖到枪决地，跪在地上，这时，一名小个子武警（警察？）走上前，用手枪对准脑袋，一枪犯人倒地。<br>    本视频上传Youtube时已经标注仅限于成人观看，并加了警示。如果此视频被人举报，我们将传到其它空间。<br>    <br>    <iframe width="420" height="315" src="https://www.youtube.com/embed/C6SA-Ahstqo" frameborder="0" allowfullscreen></iframe><br>    <br>    <a href="http://www.bowenpress.com/">博闻社更多精彩报道</a><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/11)--> <!--bodyend-->       
            (博讯 boxun.com) <br><!----> 1681516       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507112242.shtml" target="boxun-mirror">中国持续扫荡人权律师，郑恩宠李方平等80余人被带走</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中国持续扫荡人权律师，郑恩宠李方平等80余人被带走<br><font color="#000fC0"><small>(博讯北京时间2015年7月11日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507112242" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->                            <br>    博讯报道，7月11日下午，上海郑恩宠律师被警方带走并被抄家。身居上海的刘士辉律师也于11日下午被国保带走，羁押在浦东新区合庆派出所。11日晚上7点许，北京李方平律师被江西萍乡市安源区凤凰派出所警察带走，去向不明。11日晚21：20分，广东葛永喜律师被南海黄岐派出所警察带走。11日深夜，广东葛文秀律师被国保带走,广东王全平律师拒写保证书，被送往看守所。<br><br>    7月11日晚间消息，官方媒发文抹黑人权律师，称周世锋、刘四新、黄力群、王宇、王全璋、包龙军等人已被刑事拘留。广东隋牧青律师已经获释，被广州警方涉嫌煽动颠覆国家政权罪为由监视居住。<br><br><div align="center"><img src="http://upload.bx.tl/news/temp13/201507110700411.jpg" width="400"></div>
+<br>      <br>    从7月10日早上开始，中国当局开始对大陆维权律师、人权捍卫者进行大规模抓捕。目前已经有超过81位维权律师、人权捍卫者被捕、失踪、传唤、限制人身自由、约谈，而这一数字仍在上升。<br>    <br>    目前了解的情况显示，全国各地约谈的内容的基本都涉及王宇律师、周世锋律师以及所在的北京锋锐律师事务所以及屠夫案。<br>    <br>据维权网统计，目前已经确认“710抓捕律师事件”共涉及81人，其中7人被明确拘押，（6人遭刑事拘留，1人遭监视居住）；28人仍遭扣押未获释；46人被带走、传唤或约谈后获释。查抄了3家律师事务所和办公室。<br><br>一、7人被明确拘押，其中6人遭刑事拘留，1人遭监视居住<br><br>刑事拘留6人名单：（名单如下）<br>1、王宇律师（北京锋锐所律师）、<br>2、包龙军（王宇律师丈夫）、<br>3、周世锋律师（锋锐所主任）、<br>4、黄力群律师（锋锐所律师）、<br>5、王全璋律师（锋锐所律师）、<br>6、刘四新博士（锋锐所行政助理）、<br><br>监视居住1人名单：（名单如下）<br><br>1、隋牧青律师（广州律师，被控“煽动国家政权”遭监视居住）<br><br>二、28人被带走后仍遭扣押未获释：（名单如下）<br><br>1、李姝云律师（北京锋锐所律师）、2、王芳（锋锐所会计）、3、刘晓原律师（锋锐所律师）、4、周庆（锋锐所司机）、5、左培生（锋锐所工作人员）、 6、李和平律师（北京）、7、赵威（李和平助理、考拉）、8、李金星律师（律所被查抄）、9、河北李威达律师、10、上海秦雷律师、11、湖南吕方芝律师、12、湖南文东海律师、13、上海薛荣民律师、14、湖南谢阳律师、15、湖南胡林政律师、16、河南姬来松律师、17、上海李天天律师、18、湖南罗茜律师、19、上海刘士辉律师、20、北京李方平律师、21、广东葛永喜律师、22、上海郑恩宠律师（被抄家）、23、林斌（望云和尚）、24、北京戈平（基督徒）、25、胡石根长老、26、刘永平（老木）、27、山西李发旺维权人士、28、湖南魏得丰维权人士。<br><br>三、46人被带走、传唤或约谈后获释：（名单如下）<br><br>1、包蒙蒙（王宇律师的未成年孩子）、2、山东张维玉律师、3、北京江天勇律师、4、北京张凯律师、5、北京王成律师、6、广州孙世华律师、<br>7、广东刘正清律师、8、广东王全平律师、9、广东吴魁明律师、<br>10广东陈武权律师、11、广西覃永沛律师、12、湖南王海军律师、<br>13、湖南郭雄伟律师、14、湖南杨金柱律师、15、湖南王海军律师、<br>16、湖南杨璇律师、17、湖南张重实律师、18湖南石伏龙律师、<br>19、湖南陈南石律师、20上海张雪忠律师、21、上海钟颖律师、<br>22、山东刘卫国律师、23、山东付永刚律师、24、云南曾维昶律师、<br>25、云南刘文华律师、26、福建邹丽慧律师、27、河南任全牛律师、<br>28、河南孟猛律师、29、河南马连顺律师、20、重庆付剑波律师、<br>31、重庆何伟律师、32、甘肃李大伟律师、33、甘肃蒋永继律师、<br>34、黑龙江王秋实律师、35、天津刘连贺律师、36、四川王万琼律师、<br>37、四川于全律师、38、苏州张磊律师、39、河南维权人士蓝无忧、<br>40、北京维权人士游豫平、41、湖南维权人士欧彪峰42、重庆游飞翥律师<br>43、广东葛文秀律师44、上海王福磊（渔夫）、45、河南常伯阳律师、<br>46、陕西张鉴康律师<br><br>    参见动态更新： <a href="https://docs.google.com/spreadsheets/d/10sz_XixcwQcLKa9TMZTOtzTTHzlQSf5SNhKHOvAUs0E/edit?usp=sharing" target="_blank">7月10－11日被捕或传唤律师活动人士清单</a><br>    <br>-<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507112242" target="_new">支持此文作者/记者</a> <br><br>-<!--(Modified on 2015/7/12)--> <!--bodyend-->       
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+                  
+           (博讯 boxun.com) <br><!----> 4302242       
 <hr>
 <table width="620"><tr><td>
 <b></p>
@@ -704,46 +757,6 @@
     并且，本社获悉，昨天下午国家安全局召开内部特别会议，已经把金融市场列入国家安全层面，国家安全机器已经开动。
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507102214" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507100613071.jpg--> 3192214       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507100958.shtml" target="boxun-mirror">北京锋锐律师事务所周世锋等五人遭绑架失联</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北京锋锐律师事务所周世锋等五人遭绑架失联<br><font color="#000fC0"><small>(博讯北京时间2015年7月10日 转载)</small></font>
-</center>
-            <!--bodystart-->    博讯综合报道，2015年7月10日星期五，北京锋锐律师事务所主任周世锋律师今早遭绑架失联。他是继王宇律师后，近日被绑架失联的第二位律师。锋锐律师事务所另有至少三名员工相继失联。<br><br>    据刘晓原律师介绍：“今天早上，周世锋律师在宋庄七天酒店被三个人强行带走。昨晚，周世锋律师到通州区看守所接刚刚获释的张淼。之后，“木木”和张淼、周世锋律师住在七天酒店。“木木”与张淼住在一间，周世锋律师住在她们隔壁房间。早上七时多，“木木”听到服务员敲周世锋律师的房间门。之后，听到周世锋律师喊她的名字，“木木”打开房门，看见周世锋律师被三人强行带走，头部用衣服蒙着。”<br><br>    “上午7时41分，我获知消息后，立即拨打周主任电话。当时还能通，但没有人接听。我现在再打他电话已经关机。”<br><br>    刘晓原律师接锋锐所助理刘四新博士电话说：“不好了，他们来了很多人”。此前一个多小时，周世锋律师被黑头套从宋庄七天酒店带走。锋锐所可能面临查抄。<br><br>据刘晓原律师稍后在推特发布的信息，锋锐所又有多人失联。“8时45分，刘四新博士（行政助理）从家中给我通电话，没说几句话，他突然说“他们来人了，他们来人了”。随后，电话中断至今联系不上。出纳小王从8时25分从家出发去单位上班，至今处于失联状态。上午，李姝云律师在家中，她发微信称有人敲门，害怕不开门，现也联系不上。”<br><br>    在今年五月被刑事拘留并逮捕的吴淦先生（网名超级低俗屠夫）是锋锐律师事务所的员工，王宇律师是吴淦先生的委托律师。<br><br>    此前，周世锋律师曾表示个人将出资800万人民币建立中国律师维权基金，将向全国各地受迫害律师家属提供支助。他任主任的锋锐律所得知维权女士叶洪霞被刑拘没有律师时，决定无偿为她提供法律帮助，他曾亲自去会见叶洪霞。锋锐律所也曾承诺将提供屠妇失去自由期间的所有生活费及妻子和孩子的生活费用。这些事件是否成为周世锋律师今早遭绑架失联的诱因我们将进一步观察。<br><br>-<!--(Modified on 2015/7/10)--> <!--bodyend-->       
-                  
-                  
-                  
-           (博讯 boxun.com) <br><!----> 4420958       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507100031.shtml" target="boxun-mirror">因声援香港占中而被捕的王藏张淼等四人已经获释</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>因声援香港占中而被捕的王藏张淼等四人已经获释<br><font color="#000fC0"><small>(博讯北京时间2015年7月10日 转载)</small></font>
-</center>
-            <!--bodystart-->           <br>    <img src="/news/images/2015/07/201507100031china1.jpg" alt="王藏、张淼、追魂、朱雁光已走出看守所" width="600"><br>部分获释者与律师在看守所外合影，左起张淼，朱雁光，周世锋。<br><br>    <img src="http://upload.bx.tl/news/temp13/201507090925551.jpg" alt="王藏、张淼、追魂、朱雁光已走出看守所" width="600"><br>追魂（左二）、王藏（左三）在看守所外与亲人合影<br>    <br>    博讯快报：因声援香港占中而被逮捕的北京艺术家王藏、追魂（刘进兴）、朱雁光及原德国《时代周报》驻京记者助手张淼等四人已于7月9日十一时左右走出看守所。据当事人的律师介绍，四人均获检察院作出不予起诉的决定而无罪释放。<br><br>去年10月，追魂及王藏等多名宋庄的艺术家，因声援香港占中被以寻衅滋事罪关押至今。此外，同样因声援占中被逮捕的广东苏昌兰、谢文飞、张圣雨、王默、叶晓等人都将面临起诉。<br>    <br>    -<br><br><!--(Modified on 2015/7/10)--><!--(Modified on 2015/7/10)--><!--(Modified on 2015/7/10)--><!--(Modified on 2015/7/10)--><!--bodyend-->       
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507090829171.jpg--> 1060031       
 <hr>
 <table width="620"><tr><td>
 <b></p>
