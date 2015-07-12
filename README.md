@@ -129,7 +129,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507121154.shtml" target="boxun-mirror">网友在白宫请愿网联署要求美国取消习近平访美请看博讯热点：白色恐怖</a>
 </h2>
@@ -182,7 +182,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507120040.shtml" target="boxun-mirror">官媒发文抹黑人权律师，周世锋及王宇等六人被刑拘</a>
 </h2>
@@ -201,7 +201,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507120040.shtml" target="boxun-mirror">中国官媒：摧毁以锋锐所为平台的重大犯罪团伙</a>
 </h2>
@@ -218,7 +218,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507121154.shtml" target="boxun-mirror">网友在白宫请愿网联署要求美国取消习近平访美</a>
 </h2>
@@ -233,7 +233,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507112242.shtml" target="boxun-mirror">中国持续镇压人权律师，郑恩宠李方平被带走</a>
 </h2>
