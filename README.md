@@ -56,7 +56,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 25分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507130611.shtml" target="boxun-mirror">上海消息：江李或在习近平9月访美期间发动政变！请看博讯热点：江泽民</a>
 </h2>
@@ -105,7 +105,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 25分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507120040.shtml" target="boxun-mirror">人民日报：摧毁以锋锐所为平台的重大犯罪团伙</a>
 </h2>
