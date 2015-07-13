@@ -310,6 +310,32 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507131259.shtml" target="boxun-mirror">美国国务院发表声明谴责中国政府拘捕“人权卫士”请看博讯热点：白色恐怖</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>美国国务院发表声明谴责中国政府拘捕“人权卫士”<br><font color="blue" size="2">请看博讯热点：<a href="/hot/national_terror.shtml">白色恐怖
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月13日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="/news/images/2015/07/201507131259china1.jpg" alt="美国国务院发表声明谴责中国政府拘捕“人权卫士”"><p><br>
+    <br>
+    （博讯报道，7月13日）美国国务院发言人约翰・柯比周日（7月12日）发表声明，谴责中国政府拘留维权律师及相关人士，并对新颁布的国安法表达关注。声明指近日中国“有组织扣留”一些“和平捍卫他人权益”的人士，尤其是那些合法地挑战政府政策的人。<br>
+    <br>
+    另外，美国国务院指国安法范围广泛，担心中国当局以国安法作借口，侵犯人权。<br>
+    <br>
+    据维权网统计，截止7月13日 8时，“710大抓捕事件”共涉及107人、被刑拘 、监视居住7人、被失踪、带走、失联 15人、被短暂拘留、约谈、传唤已获释85人。获释者均遭到警告，有的律师甚至遭到警方威胁对其子女和父母采取手段。<br>
+    <br>
+    -
+ [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507122056441.jpg--> 381259       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507120040.shtml" target="boxun-mirror">人民日报：摧毁以锋锐所为平台的重大犯罪团伙</a>
 </h2>
 <p><tr>
@@ -741,44 +767,6 @@
 <b></p>
 <p>
 	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507101409.shtml" target="boxun-mirror">高层决定公布郭伯雄案或在八一前请看博讯热点：郭伯雄</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>高层决定公布郭伯雄案 或在八一前<br><font color="blue" size="2">请看博讯热点：<a href="/hot/guoboxiong.shtml">郭伯雄
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507101409" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】本社获悉，经高层再三研判，决定向全党公布郭伯雄案，公布时间会在八一建军节之前。其主要罪名是卖官及贪腐。<br>
-    <br>
-     如果消息属实，那意味着上届两位中央军委副主席郭伯雄、徐才厚都有问题，中央军委班子“全烂了”。也正因如此，郭伯雄一案在高层受到相当大的阻力。反对对徐才厚和郭伯雄都采取公开方式处理者，他们担心对徐郭两人都公开处置，等于变相全盘否定上届中央军委工作。对郭的调查，于5月传达到军级，之后便不再见诸文件，更不再下达。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    消息指，郭伯雄任军委副主席时分管总参、总装两大块，这两系统的、、、<br>
-    <br>
-    博闻社报道全文，<a href="http://bowenpress.com/news/bowen_6005.html">请点击这里</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507101409" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 831409       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 3天前</small>
 </p>
 <table>
     <tr>
