@@ -58,6 +58,23 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507131259.shtml" target="boxun-mirror">美国国务院发表声明谴责中国政府拘捕“人权卫士”</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>美国国务院发表声明谴责中国政府拘捕“人权卫士”<br><font color="#000fC0"><small>(博讯北京时间2015年7月13日 综合报道)</small></font>
+</center>
+            <!--bodystart-->        <br>    <img src="/news/images/2015/07/201507131259china1.jpg" alt="美国国务院发表声明谴责中国政府拘捕“人权卫士”"><br>    <br>    （博讯报道，7月13日）美国国务院发言人约翰・柯比周日（7月12日）发表声明，谴责中国政府拘留维权律师及相关人士，并对新颁布的国安法表达关注。声明指近日中国“有组织扣留”一些“和平捍卫他人权益”的人士，尤其是那些合法地挑战政府政策的人。<br>    <br>    另外，美国国务院指国安法范围广泛，担心中国当局以国安法作借口，侵犯人权。<br><br>    声明英文及中文翻译如下：<br><br><blockquote>U.S. Condemns Detention of Human Rights Defenders in China<br><br>Press Statement<br>John Kirby<br>Department Spokesperson<br>Washington, DC<br>July 12, 2015<br><br>Over the last few days we have noted with growing alarm reports that Chinese public security forces have systematically detained individuals who share the common attribute of peacefully defending the rights of others, including those who lawfully challenge official policies. We are deeply concerned that the broad scope of the new National Security Law is being used as a legal facade to commit human rights abuses. We strongly urge China to respect the rights of all of its citizens and to release all those who have recently been detained for seeking to protect the rights of Chinese citizens.<br><br>美国谴责中国拘押人权捍卫者<br><br>新闻公报<br>John Kirby<br>国务院新闻发言人<br>华盛顿特区<br>2015年7月12日<br><br>最近几天我们注意到中国公安机关成批关押民众的令人惊心的报道。这些人都有一个共同点，那就是他们以和平的方式维护他人的权益，包括那些以合法方式质疑政府的政策。对于新国家安全法被以法律外衣而大规模利用，来对人权进行侵犯，我们深深地表示关注。我们强烈敦促中国，尊重其所有公民的权利，释放所有那些因维护中国公民权益而最近被拘押的人。</blockquote>
+<br>    <br>    据维权网统计，截止7月13日 8时，“710大抓捕事件”共涉及107人、被刑拘 、监视居住7人、被失踪、带走、失联 15人、被短暂拘留、约谈、传唤已获释85人。获释者均遭到警告，有的律师甚至遭到警方威胁对其子女和父母采取手段。<br>    <br>    -<br><br> [博讯综合报道]  <!--(Modified on 2015/7/13)-->  <!--(Modified on 2015/7/13)--> <!--bodyend-->       
+                  
+           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507122056441.jpg--> 381259       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507131009.shtml" target="boxun-mirror">人权律师大扫荡已涉107人请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr>
@@ -724,44 +741,6 @@
             <!--bodystart-->       <img src="http://www.bowenpress.com/wp-content/uploads/2015/07/f62ccdd6262d62000e62f62626262a62e62e62c6262620062-300x224."><br>    【博闻社】这是本社获得的一段视频，可能是7月9日，地点不详。视频中，一名犯人被拖到枪决地，跪在地上，这时，一名小个子武警（警察？）走上前，用手枪对准脑袋，一枪犯人倒地。<br>    本视频上传Youtube时已经标注仅限于成人观看，并加了警示。如果此视频被人举报，我们将传到其它空间。<br>    <br>    <iframe width="420" height="315" src="https://www.youtube.com/embed/C6SA-Ahstqo" frameborder="0" allowfullscreen></iframe><br>    <br>    <a href="http://www.bowenpress.com/">博闻社更多精彩报道</a><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a>  <!--(Modified on 2015/7/12)--> <!--bodyend-->       
                   
            (博讯 boxun.com) <br><!----> 1681516       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507112242.shtml" target="boxun-mirror">中国持续扫荡人权律师，郑恩宠李方平等80余人被带走</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中国持续扫荡人权律师，郑恩宠李方平等80余人被带走<br><font color="#000fC0"><small>(博讯北京时间2015年7月11日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507112242" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->                            <br>    博讯报道，7月11日下午，上海郑恩宠律师被警方带走并被抄家。身居上海的刘士辉律师也于11日下午被国保带走，羁押在浦东新区合庆派出所。11日晚上7点许，北京李方平律师被江西萍乡市安源区凤凰派出所警察带走，去向不明。11日晚21：20分，广东葛永喜律师被南海黄岐派出所警察带走。11日深夜，广东葛文秀律师被国保带走,广东王全平律师拒写保证书，被送往看守所。<br><br>    7月11日晚间消息，官方媒发文抹黑人权律师，称周世锋、刘四新、黄力群、王宇、王全璋、包龙军等人已被刑事拘留。广东隋牧青律师已经获释，被广州警方涉嫌煽动颠覆国家政权罪为由监视居住。<br><br><div align="center"><img src="http://upload.bx.tl/news/temp13/201507110700411.jpg" width="400"></div>
-<br>      <br>    从7月10日早上开始，中国当局开始对大陆维权律师、人权捍卫者进行大规模抓捕。目前已经有超过81位维权律师、人权捍卫者被捕、失踪、传唤、限制人身自由、约谈，而这一数字仍在上升。<br>    <br>    目前了解的情况显示，全国各地约谈的内容的基本都涉及王宇律师、周世锋律师以及所在的北京锋锐律师事务所以及屠夫案。<br>    <br>据维权网统计，目前已经确认“710抓捕律师事件”共涉及81人，其中7人被明确拘押，（6人遭刑事拘留，1人遭监视居住）；28人仍遭扣押未获释；46人被带走、传唤或约谈后获释。查抄了3家律师事务所和办公室。<br><br>一、7人被明确拘押，其中6人遭刑事拘留，1人遭监视居住<br><br>刑事拘留6人名单：（名单如下）<br>1、王宇律师（北京锋锐所律师）、<br>2、包龙军（王宇律师丈夫）、<br>3、周世锋律师（锋锐所主任）、<br>4、黄力群律师（锋锐所律师）、<br>5、王全璋律师（锋锐所律师）、<br>6、刘四新博士（锋锐所行政助理）、<br><br>监视居住1人名单：（名单如下）<br><br>1、隋牧青律师（广州律师，被控“煽动国家政权”遭监视居住）<br><br>二、28人被带走后仍遭扣押未获释：（名单如下）<br><br>1、李姝云律师（北京锋锐所律师）、2、王芳（锋锐所会计）、3、刘晓原律师（锋锐所律师）、4、周庆（锋锐所司机）、5、左培生（锋锐所工作人员）、 6、李和平律师（北京）、7、赵威（李和平助理、考拉）、8、李金星律师（律所被查抄）、9、河北李威达律师、10、上海秦雷律师、11、湖南吕方芝律师、12、湖南文东海律师、13、上海薛荣民律师、14、湖南谢阳律师、15、湖南胡林政律师、16、河南姬来松律师、17、上海李天天律师、18、湖南罗茜律师、19、上海刘士辉律师、20、北京李方平律师、21、广东葛永喜律师、22、上海郑恩宠律师（被抄家）、23、林斌（望云和尚）、24、北京戈平（基督徒）、25、胡石根长老、26、刘永平（老木）、27、山西李发旺维权人士、28、湖南魏得丰维权人士。<br><br>三、46人被带走、传唤或约谈后获释：（名单如下）<br><br>1、包蒙蒙（王宇律师的未成年孩子）、2、山东张维玉律师、3、北京江天勇律师、4、北京张凯律师、5、北京王成律师、6、广州孙世华律师、<br>7、广东刘正清律师、8、广东王全平律师、9、广东吴魁明律师、<br>10广东陈武权律师、11、广西覃永沛律师、12、湖南王海军律师、<br>13、湖南郭雄伟律师、14、湖南杨金柱律师、15、湖南王海军律师、<br>16、湖南杨璇律师、17、湖南张重实律师、18湖南石伏龙律师、<br>19、湖南陈南石律师、20上海张雪忠律师、21、上海钟颖律师、<br>22、山东刘卫国律师、23、山东付永刚律师、24、云南曾维昶律师、<br>25、云南刘文华律师、26、福建邹丽慧律师、27、河南任全牛律师、<br>28、河南孟猛律师、29、河南马连顺律师、20、重庆付剑波律师、<br>31、重庆何伟律师、32、甘肃李大伟律师、33、甘肃蒋永继律师、<br>34、黑龙江王秋实律师、35、天津刘连贺律师、36、四川王万琼律师、<br>37、四川于全律师、38、苏州张磊律师、39、河南维权人士蓝无忧、<br>40、北京维权人士游豫平、41、湖南维权人士欧彪峰42、重庆游飞翥律师<br>43、广东葛文秀律师44、上海王福磊（渔夫）、45、河南常伯阳律师、<br>46、陕西张鉴康律师<br><br>    参见动态更新： <a href="https://docs.google.com/spreadsheets/d/10sz_XixcwQcLKa9TMZTOtzTTHzlQSf5SNhKHOvAUs0E/edit?usp=sharing" target="_blank">7月10－11日被捕或传唤律师活动人士清单</a><br>    <br>-<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507112242" target="_new">支持此文作者/记者</a> <br><br>-<!--(Modified on 2015/7/12)--> <!--bodyend-->       
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-                  
-           (博讯 boxun.com) <br><!----> 4302242       
 <hr>
 <table width="620"><tr><td>
 <b></p>
