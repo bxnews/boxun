@@ -327,6 +327,43 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507132007.shtml" target="boxun-mirror">越南亲华派失势，国防部长等两人出事</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>越南亲华派失势，国防部长等两人出事<br><font color="#000fC0">(<small>博讯北京时间2015年7月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201507132007" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】本社独家消息，据可靠消息源透露，亲华派越南国防部部长冯光青已经出事消失，另外一名国防部官员也在此次事件中失踪。有传闻冯长青此次是遇刺身亡，对此本社正在进一步核实中。<br>
+    <br>
+    <img src="/news/images/2015/07/201507132007intl1.jpg" alt="越南亲华派失势，国防部长等两人出事 "><p><br>
+    越南国防部长冯长青<br>
+    冯光青（越南语：Phùng Quang Thanh，1949年2月2日－，因为翻译的缘故又做冯光清），越南军事人物，生于河内市麋泠县石砣社。1994年晋升少将，1999年晋升中将，2003年晋升上将，2007年6月7日晋升大将。越共九届中央委员（2001年），十届中央政治局委员（2006年），十一届中央政治局委员（2011年）。现任越共中央军事党委副书记，越南人民军大将军衔，2006年6月起任越南国防部部长。<br>
+    <br>
+    冯光青最后一次在媒体上出现的是在2015年6月19日在法国国防部总部，法国国防部部长让-伊夫・勒德里昂亲切会见正在对欧洲进行工作访问的越南国防部部长冯光青一行。<br>
+    <br>
+    观察人士认为越南高层存在着“亲华派”和“亲美派”两种力量。总书记阮富仲往往被描绘为“亲华派”的领导人，支持与中国建立密切关系。而总理阮晋勇被认为是“亲美派”，谋求与美国建立更密切的经济关系――可能还有安全关系。<br>
+    <br>
+    然而，近年来南海局势紧张以后，高层局势发生了变化。阮富仲虽然被认为是越南高层的“亲华派”，是中越友好关系的重要支持者。之前他较多强调中越关系可以缓和，但他最新的表态说明，越南高层已经准备与中国长期纠缠、对峙、对抗。换句话说，越南的高层的“亲华派”摇身一变，已成为了“亲美派”。<br>
+    <br>
+    <img src="/news/images/2015/07/201507132007intl2.jpg" alt="越南亲华派失势，国防部长等两人出事 "></p>
+<p><br>
+    不久前，阮富仲在接受越南《年轻人报》采访时称，“很多人问我，如果（与中国）发生战争怎么办。我们应该为所有的可能做好准备。”阮富仲的话虽然不多，但释放了一个重要信息：越南高层已经就继续强硬对抗中国达成了一定程度的共识。至此，越南的“三驾马车”（越共总书记、国家主席、政府总理）都已就南海局势表示出对中国的强硬立场。<br>
+    <br>
+    这只能让人们相信一点，越南的“亲华派”都投奔“亲美派”去了。<br>
+    <br>
+    2016年，越共领导层将面临换届，亲美派的阮晋勇正试图在选举中获得越共总书记的职位。在这种关键时刻，排除亲华派大佬的干扰已经在越南高层取得共识。冯长青此次出事是越南局势必然的结果。<br>
+    <br>
+    大选以后，假如阮晋勇能如愿以偿，届时，在越南高层“亲美派”将占据绝对优势，而“亲华派”则难有立足地位――要么被以阮晋勇为首的“亲美派”收编，要么被排挤出越南高层，成为政坛边缘化人物，“亲华派”最终会在越南政坛上逐渐消失。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201507132007" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507130406451.jpg http://upload.bx.tl/news/temp13/201507130406452.jpg--> 12007       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507131259.shtml" target="boxun-mirror">美国国务院发表声明谴责中国政府拘捕“人权卫士”请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr>
@@ -724,22 +761,6 @@
                 <br><b></b><center>视频：少儿不宜<br><font color="#000fC0"><small>(博讯北京时间2015年7月11日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a>)</small></font>
 </center>
             <!--bodystart-->      <img src="http://www.bowenpress.com/wp-content/uploads/2015/07/f62ccdd6262d62000e62f62626262a62e62e62c6262620062-300x224."><br>    【博闻社】这是本社获得的一段视频，可能是7月9日，地点不详。视频中，一名犯人被拖到枪决地，跪在地上，这时，一名小个子武警（警察？）走上前，用手枪对准脑袋，一枪犯人倒地。<br>    本视频上传Youtube时已经标注仅限于成人观看，并加了警示。如果此视频被人举报，我们将传到其它空间。<br>    <br>    <iframe width="420" height="315" src="https://www.youtube.com/embed/C6SA-Ahstqo" frameborder="0" allowfullscreen></iframe><br>    <br>    <a href="http://www.bowenpress.com/">博闻社更多精彩报道</a><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/11)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!----> 1681516       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507111516.shtml" target="boxun-mirror">视频：少儿不宜－现场偷拍的中国枪决过程</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：少儿不宜－现场偷拍的中国枪决过程<br><font color="#000fC0"><small>(博讯北京时间2015年7月11日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       <img src="http://www.bowenpress.com/wp-content/uploads/2015/07/f62ccdd6262d62000e62f62626262a62e62e62c6262620062-300x224."><br>    【博闻社】这是本社获得的一段视频，可能是7月9日，地点不详。视频中，一名犯人被拖到枪决地，跪在地上，这时，一名小个子武警（警察？）走上前，用手枪对准脑袋，一枪犯人倒地。<br>    本视频上传Youtube时已经标注仅限于成人观看，并加了警示。如果此视频被人举报，我们将传到其它空间。<br>    <br>    <iframe width="420" height="315" src="https://www.youtube.com/embed/C6SA-Ahstqo" frameborder="0" allowfullscreen></iframe><br>    <br>    <a href="http://www.bowenpress.com/">博闻社更多精彩报道</a><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a>  <!--(Modified on 2015/7/12)--> <!--bodyend-->       
-                  
            (博讯 boxun.com) <br><!----> 1681516       
 <hr>
 <table width="620"><tr><td>
