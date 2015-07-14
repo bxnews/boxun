@@ -28,7 +28,7 @@
 </center>
                 <!--bodystart-->      上周五开始，中国全面非法抓捕维权律师和维权人士，其规模和手段之罕见，粉碎了外界对习近平仅存不多的期望。正如明镜集团总裁何</td></tr></p>
 <p>
-	<small> ============== 20分钟前</small>
+	<small> ============== 25分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507130111.shtml" target="boxun-mirror">军队改革推迟五个月今年不再提政治改革</a>
 </h2>
