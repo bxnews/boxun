@@ -19,6 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507140719.shtml" target="boxun-mirror">股市灾难危及政权，车峰、令完成等疑涉卖空请看博讯热点：股市危机</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>股市灾难危及政权，车峰、令完成等疑涉卖空<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507140719" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      上周五开始，中国全面非法抓捕维权律师和维权人士，其规模和手段之罕见，粉碎了外界对习近平仅存不多的期望。正如明镜集团总裁何</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507130111.shtml" target="boxun-mirror">军队改革推迟五个月今年不再提政治改革</a>
 </h2>
 <p><tr>
@@ -750,21 +761,6 @@
 </center>
             <!--bodystart-->             <br>    博讯报道，7月11日下午，上海郑恩宠律师被警方带走并被抄家。身居上海的刘士辉律师也于11日下午被国保带走，羁押在浦东新区合庆派出所。11日晚上7点许，北京李方平律师被江西萍乡市安源区凤凰派出所警察带走，去向不明。11日晚21：20分，广东葛永喜律师被南海黄岐派出所警察带走。<br><br>    7月11日晚间消息，广东隋牧青律师已经获释，被广州警方涉嫌煽动颠覆国家政权罪为由监视居住。<br><br><div align="center"><img src="http://upload.bx.tl/news/temp13/201507110700411.jpg" width="400"></div>
 <br>      <br>    从7月10日早上开始，中国当局开始对大陆维权律师、人权捍卫者进行大规模抓捕。目前已经有超过63位维权律师、人权捍卫者被捕、失踪、传唤、限制人身自由、约谈，而这一数字仍在上升。<br>    <br>    目前了解的情况显示，全国各地约谈的内容的基本都涉及王宇律师、周世锋律师以及所在的北京锋锐律师事务所以及屠夫案。<br>    <br>    被捕、失踪、传唤、限制人身自由、约谈维权律师、人权捍卫者分类统计如下：<br>    <br>    1. 21名律师被警方强行带走或失踪：<br>    <br>    北京王宇律师、北京周世锋律师、北京李姝云律师、北京李和平律师、广西覃永沛律师、北京刘晓原律师，河南常伯阳律师、甘肃李大伟律师、河北李威达律师、广西南宁覃永沛律师、湖南谢阳律师、胡林政律师 河北李威达律师、北京王全章律师、北京黄力群律师、上海秦雷律师、湖南罗茜律师、上海郑恩宠律师、北京李方平律师、广东葛永喜律师、广东刘士辉律师。<br>    <br>    2. 11 位律所工作人员、人权捍卫者被抓捕或失踪：<br>    <br>    锋锐所会计王方、行政刘四新、司机周庆，李和平律师助理赵威、望云和尚在成都被抓后带往机场、天津戈平被抓、北京基督教家庭教会圣爱团契的胡石根长老、刘永平（网名老木）被抓。李发旺、湖南魏得丰、王福磊、被警察带走。<br>    <br>    3. 31位律师短期限制人身自由、传唤、要求约谈,部分已经获释放：<br>    <br>    北京江天勇律师，北京张凯律师、山东张维玉律师、山东刘卫国律师、河南常伯阳律师、河南任全牛律师、河南姬来松律师、河南孟猛律师、河南马连顺律师、上海张雪忠律师、上海李天天律师、重庆游飞翥律师、重庆付剑波律师、湖南王海军律师、湖南郭雄伟律师、湖南</td></tr></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507111516.shtml" target="boxun-mirror">视频：少儿不宜</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：少儿不宜<br><font color="#000fC0"><small>(博讯北京时间2015年7月11日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->      <img src="http://www.bowenpress.com/wp-content/uploads/2015/07/f62ccdd6262d62000e62f62626262a62e62e62c6262620062-300x224."><br>    【博闻社】这是本社获得的一段视频，可能是7月9日，地点不详。视频中，一名犯人被拖到枪决地，跪在地上，这时，一名小个子武警（警察？）走上前，用手枪对准脑袋，一枪犯人倒地。<br>    本视频上传Youtube时已经标注仅限于成人观看，并加了警示。如果此视频被人举报，我们将传到其它空间。<br>    <br>    <iframe width="420" height="315" src="https://www.youtube.com/embed/C6SA-Ahstqo" frameborder="0" allowfullscreen></iframe><br>    <br>    <a href="http://www.bowenpress.com/">博闻社更多精彩报道</a><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507111516" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/11)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!----> 1681516       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 3天前</small>
 </p>
