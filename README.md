@@ -42,7 +42,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507160201.shtml" target="boxun-mirror">北戴河议题:北京上海人事变动，郭金龙韩正将调离</a>
 </h2>
@@ -81,7 +81,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507161239.shtml" target="boxun-mirror">朱明国联手林强陷害美籍华商胡伟星</a>
 </h2>
@@ -139,7 +139,7 @@
     <br><center><font size="4"><b>胡炜</b></font></center>
 </td></tr></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507160201.shtml" target="boxun-mirror">北戴河议题:北京上海人事变动，郭金龙韩正将调离</a>
 </h2>
@@ -178,7 +178,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507161339.shtml" target="boxun-mirror">传习近平月底前去西藏，实施更为严厉的政策请看博讯热点：西藏问题</a>
 </h2>
@@ -203,7 +203,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507161239.shtml" target="boxun-mirror">朱明国联手林强陷害美籍华商胡伟星</a>
 </h2>
@@ -261,7 +261,7 @@
     <br><center><font size="4"><b>胡炜</b></font></center>
 </td></tr></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507150928.shtml" target="boxun-mirror">纽约各界人士中领馆前抗议中共当局扫荡维权律师</a>
 </h2>
