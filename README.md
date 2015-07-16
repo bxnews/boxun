@@ -56,7 +56,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10分钟前</small>
+	<small> ============== 15分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507150928.shtml" target="boxun-mirror">纽约各界人士中领馆前抗议中共当局扫荡维权律师</a>
 </h2>
