@@ -268,7 +268,7 @@
     129、侯帅（河南)<br>
     130、岳三（河南，15日1800 </td></tr></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507161339.shtml" target="boxun-mirror">传习近平月底前去西藏，实施更为严厉的政策请看博讯热点：西藏问题</a>
 </h2>
