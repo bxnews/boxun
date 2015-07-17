@@ -268,7 +268,7 @@
     129、侯帅（河南)<br>
     130、岳三（河南，15日1800 </td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507161339.shtml" target="boxun-mirror">传习近平月底前去西藏，实施更为严厉的政策请看博讯热点：西藏问题</a>
 </h2>
@@ -293,7 +293,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507160201.shtml" target="boxun-mirror">北戴河议题:北京上海人事变动，郭金龙韩正将调离</a>
 </h2>
@@ -332,7 +332,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507161239.shtml" target="boxun-mirror">朱明国联手林强陷害美籍华商胡伟星</a>
 </h2>
@@ -390,7 +390,7 @@
     <br><center><font size="4"><b>胡炜</b></font></center>
 </td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507160201.shtml" target="boxun-mirror">北戴河议题:北京上海人事变动，郭金龙韩正将调离</a>
 </h2>
@@ -429,7 +429,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507161339.shtml" target="boxun-mirror">传习近平月底前去西藏，实施更为严厉的政策请看博讯热点：西藏问题</a>
 </h2>
@@ -454,7 +454,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507161239.shtml" target="boxun-mirror">朱明国联手林强陷害美籍华商胡伟星</a>
 </h2>
@@ -512,7 +512,7 @@
     <br><center><font size="4"><b>胡炜</b></font></center>
 </td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507150928.shtml" target="boxun-mirror">纽约各界人士中领馆前抗议中共当局扫荡维权律师</a>
 </h2>
@@ -528,7 +528,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507150248.shtml" target="boxun-mirror">在泰全体中国难民紧急求救</a>
 </h2>
@@ -577,7 +577,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507150928.shtml" target="boxun-mirror">纽约各界人士中领馆前抗议中共当局扫荡维权律师</a>
 </h2>
@@ -593,7 +593,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507141446.shtml" target="boxun-mirror">人权律师大扫荡已涉138人请看博讯热点：白色恐怖</a>
 </h2>
@@ -796,7 +796,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/07/201507140007.shtml" target="boxun-mirror">北风：危机将至当局痛下杀手“扫荡”维权律师</a>
 </h2>
@@ -812,7 +812,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507141226.shtml" target="boxun-mirror">著名教授孔杰荣：镇压律师使“依法治国”成世界笑柄</a>
 </h2>
@@ -893,7 +893,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507140719.shtml" target="boxun-mirror">股市灾难危及政权，车峰、令完成等疑涉卖空请看博讯热点：股市危机</a>
 </h2>
@@ -904,7 +904,7 @@
 </center>
                 <!--bodystart-->      上周五开始，中国全面非法抓捕维权律师和维权人士，其规模和手段之罕见，粉碎了外界对习近平仅存不多的期望。正如明镜集团总裁何</td></tr></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507141446.shtml" target="boxun-mirror">人权律师大扫荡已涉138人请看博讯热点：白色恐怖</a>
 </h2>
@@ -1107,7 +1107,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507141226.shtml" target="boxun-mirror">著名教授孔杰荣：镇压律师使“依法治国”成世界笑柄</a>
 </h2>
@@ -1188,7 +1188,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507140719.shtml" target="boxun-mirror">股市灾难危及政权，车峰、令完成等疑涉卖空请看博讯热点：股市危机</a>
 </h2>
@@ -1199,7 +1199,7 @@
 </center>
                 <!--bodystart-->      上周五开始，中国全面非法抓捕维权律师和维权人士，其规模和手段之罕见，粉碎了外界对习近平仅存不多的期望。正如明镜集团总裁何</td></tr></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507130111.shtml" target="boxun-mirror">军队改革推迟五个月今年不再提政治改革</a>
 </h2>
@@ -1238,7 +1238,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507131259.shtml" target="boxun-mirror">美国国务院发表声明谴责中国政府拘捕“人权卫士”</a>
 </h2>
@@ -1255,7 +1255,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507131009.shtml" target="boxun-mirror">人权律师大扫荡已涉107人请看博讯热点：白色恐怖</a>
 </h2>
@@ -1442,7 +1442,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p>
 <table>
     <tr>
