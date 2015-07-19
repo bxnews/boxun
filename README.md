@@ -30,7 +30,7 @@
     <br>
     【博</td></tr></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507190022.shtml" target="boxun-mirror">令计划、令政策获准秘密返乡为父母送终请看博讯热点：令计划</a>
 </h2>
@@ -68,7 +68,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507180208.shtml" target="boxun-mirror">北戴河会议：军队改革问题已经摆入会议议程</a>
 </h2>
