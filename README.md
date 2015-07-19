@@ -19,6 +19,57 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507190249.shtml" target="boxun-mirror">视频：习近平视察延边，坦克布局防暗杀请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：习近平视察延边，坦克布局防暗杀<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507190249" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <iframe width="420" height="315" src="https://www.youtube.com/embed/CGzYqZVa4YU" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    【博</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507190022.shtml" target="boxun-mirror">令计划、令政策获准秘密返乡为父母送终请看博讯热点：令计划</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>令计划、令政策获准秘密返乡为父母送终<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507190022" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】上海官方澎湃新闻网透露，中共落马大老虎令计划的父亲令狐野和母亲王黎明，在令计划几兄弟相继出事后，于今年3月先后去世，其中令父享寿105岁，令母95岁。另据本社获悉，已被关押的令计划和长兄令政策均获准为父母送别。<br>
+    <br>
+     报道指，2014年12月21日，令家身份最显赫的人物令计划因涉嫌严重违纪违法接受调查。紧跟着，谷丽萍的弟弟谷源旭、弟媳罗芳华相继被带走。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    而令计划的妹妹令狐路线是令家难得没有受到太多影响的人。担任运城市中心医院副院长的她愈发低调，跟昔日同学几乎断了联系。平时除了工作，她的主要精力就是照料年事已高的父母。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_6824.html">博闻社报道全文</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507190022" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4910022       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507180208.shtml" target="boxun-mirror">北戴河会议：军队改革问题已经摆入会议议程</a>
 </h2>
 <p><tr>
@@ -1249,62 +1300,6 @@
                 <!--bodystart-->      上周五开始，中国全面非法抓捕维权律师和维权人士，其规模和手段之罕见，粉碎了外界对习近平仅存不多的期望。正如明镜集团总裁何</td></tr></p>
 <p>
 	<small> ============== 5天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507130111.shtml" target="boxun-mirror">军队改革推迟五个月今年不再提政治改革</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>军队改革推迟五个月 今年不再提政治改革<br><font color="#000fC0">(<small>博讯北京时间2015年7月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507130111" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】据可靠消息来源，原计划6月份开始的中共军队改革推迟五个月以后进行，同时中央今年不再提政治改革议题。<br>
-    <br>
-     今年5月初，本社独家披露郭伯雄案或会在5月底之前公布，之后开始军队改革。但最新的消息表明，当局对郭案的处置出现变异。军队喉舌《解放军报》和新华社军事部等，中央级媒体的有关负责人已接到上头指示，暂停了准备报道郭案的工作。因此，军队改革只能顺延。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    之所以一定要把军队改革放在郭案公布以后进行，包涵着习近平对军队掌控的筹算：改革必定要动人事，动人事起码要有一个基本的理由，而这个理由对于习近平来说，就是以郭案划线，肃清郭伯雄在军内的党羽。<br>
-    <br>
-    据可靠消息透露，已经被掌握犯罪线索的将军级别以上的人员共有190多名，这些都属于可以抓捕的对象，其中有四名是上将。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_6304.html">博闻社报道全文</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507130111" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4160111       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 6天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507131259.shtml" target="boxun-mirror">美国国务院发表声明谴责中国政府拘捕“人权卫士”</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>美国国务院发表声明谴责中国政府拘捕“人权卫士”<br><font color="#000fC0"><small>(博讯北京时间2015年7月13日 综合报道)</small></font>
-</center>
-            <!--bodystart-->        <br>    <img src="/news/images/2015/07/201507131259china1.jpg" alt="美国国务院发表声明谴责中国政府拘捕“人权卫士”"><br>    <br>    （博讯报道，7月13日）美国国务院发言人约翰・柯比周日（7月12日）发表声明，谴责中国政府拘留维权律师及相关人士，并对新颁布的国安法表达关注。声明指近日中国“有组织扣留”一些“和平捍卫他人权益”的人士，尤其是那些合法地挑战政府政策的人。<br>    <br>    另外，美国国务院指国安法范围广泛，担心中国当局以国安法作借口，侵犯人权。<br><br>    声明英文及中文翻译如下：<br><br><blockquote>U.S. Condemns Detention of Human Rights Defenders in China<br><br>Press Statement<br>John Kirby<br>Department Spokesperson<br>Washington, DC<br>July 12, 2015<br><br>Over the last few days we have noted with growing alarm reports that Chinese public security forces have systematically detained individuals who share the common attribute of peacefully defending the rights of others, including those who lawfully challenge official policies. We are deeply concerned that the broad scope of the new National Security Law is being used as a legal facade to commit human rights abuses. We strongly urge China to respect the rights of all of its citizens and to release all those who have recently been detained for seeking to protect the rights of Chinese citizens.<br><br>美国谴责中国拘押人权捍卫者<br><br>新闻公报<br>John Kirby<br>国务院新闻发言人<br>华盛顿特区<br>2015年7月12日<br><br>最近几天我们注意到中国公安机关成批关押民众的令人惊心的报道。这些人都有一个共同点，那就是他们以和平的方式维护他人的权益，包括那些以合法方式质疑政府的政策。对于新国家安全法被以法律外衣而大规模利用，来对人权进行侵犯，我们深深地表示关注。我们强烈敦促中国，尊重其所有公民的权利，释放所有那些因维护中国公民权益而最近被拘押的人。</blockquote>
-<br>    <br>    据维权网统计，截止7月13日 8时，“710大抓捕事件”共涉及107人、被刑拘 、监视居住7人、被失踪、带走、失联 15人、被短暂拘留、约谈、传唤已获释85人。获释者均遭到警告，有的律师甚至遭到警方威胁对其子女和父母采取手段。<br>    <br>    -<br><br> [博讯综合报道]  <!--(Modified on 2015/7/13)-->  <!--(Modified on 2015/7/13)--> <!--bodyend-->       
-                  
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507122056441.jpg--> 381259       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 6天前</small>
 </p>
 <table>
     <tr>
