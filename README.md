@@ -19,6 +19,42 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507201152.shtml" target="boxun-mirror">占中幕后：北京曾准备用六个师接管香港请看博讯热点：占领中环</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>占中幕后：北京曾准备用六个师接管香港<br><font color="blue" size="2">请看博讯热点：<a href="/hot/hkcentral.shtml">占领中环
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507201152" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】香港社会反抗全国人大“8.31”决定而掀起的占中运动早已结束，但北京如何准备策应这场香港有史以来最大规模社会运动的，外界一直不得而知。本社获悉，在北京当局众多应变方案中，最坏的方案是，一旦占中出现特区政府无法控制的混乱局面，可动用六个师解放军和武警接管香港，恢复秩序。而该方案由习近平拍板制定。<br>
+    <br>
+     北京的消息透露，早于2014年初占中运动紧锣密鼓之时，中共中央国家安全委员会曾两度召开会议，专题研究香港占中问题，会上，中联办、港澳办、公安部、国安部、外交部、解放军总参、统战部和广东省等相关部门，均支持以软、硬并备的手段，应对香港即将到来的占中事件。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    <a href="http://bowen.press/news/bowen_6988.html">博闻社报道全文</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507201152" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1741151       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507190249.shtml" target="boxun-mirror">视频：习近平视察延边，坦克布局防暗杀请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -1287,17 +1323,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 6天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507140719.shtml" target="boxun-mirror">股市灾难危及政权，车峰、令完成等疑涉卖空请看博讯热点：股市危机</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>股市灾难危及政权，车峰、令完成等疑涉卖空<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507140719" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      上周五开始，中国全面非法抓捕维权律师和维权人士，其规模和手段之罕见，粉碎了外界对习近平仅存不多的期望。正如明镜集团总裁何</td></tr></p>
 <p>
 	<small> ============== 6天前</small>
 </p>
