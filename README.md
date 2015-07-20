@@ -53,7 +53,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507190249.shtml" target="boxun-mirror">视频：习近平视察延边，坦克布局防暗杀请看博讯热点：习近平观察</a>
 </h2>
