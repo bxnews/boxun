@@ -48,7 +48,7 @@
                        <br>
     博讯曾披露令计划六大罪状，媒体对令计划的报道中，一直缺乏绯闻。<a href="/news/gb/china/2015/05/201505020029.shtml">《博讯》杂志5月号报道</a>，令</td></tr></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507202314.shtml" target="boxun-mirror">令计划被开除党籍开除公职，移交司法机关处理</a>
 </h2>
