@@ -19,6 +19,24 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507240943.shtml" target="boxun-mirror">胡锦涛撇清和令计划关系江泽民将去北戴河请看博讯热点：令计划</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>胡锦涛撇清和令计划关系 江泽民将去北戴河<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507240943" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_7505.html">博闻社独家</a>】中共元老万里遗体7月22日在京火化。习近平、李克强、张德江、刘云山、王岐山、张高丽、胡锦涛等到八宝山革命公墓送别。而江泽民在外地送花圈表示哀悼，没有亲自送别万里，有个别媒体称江泽民“不妙”，更有传言称令计划是江泽民安排在胡锦涛身边的卧底。《博讯》杂志5月号曾披露，令计划通过收买、控制江泽民的司机等手段，监视江泽民，因此，有关令计划是“江泽民安排卧底”的说法是谣言。而博讯也在2014年12月指出，胡锦涛对令计划、周永康等相关事件不知情，以上信息应该是有人搅局。在令计划公子车祸后，博讯曾披露，车祸事件对胡锦涛隐瞒，事后胡锦涛很生气。<br>
+    <br>
+    博闻社获悉，胡锦涛高调露面送别万里，意在撇清和令计划的关系。而江泽民未露面，也并不是“出了问题”，相反，江泽民目前在上海，预计下周会启程去北戴河。中共每年一次的北戴河会议仍未召开，而江泽民近几年每年都在这个高度敏感和重要的会议期间到北戴河“度假”，巧合的是，2014年北戴河会议期间也有江泽民身体出状况的传闻，博讯当时报道，江泽民在北戴河，还下水游泳。中共退休前国家领导人到北戴河，自然让外界认为是“干政”，但博闻社了解到，随着习近平权力的稳固，江泽民话语权已经大不如前。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507240943" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4190943       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507230334.shtml" target="boxun-mirror">股市风波“金融市长”黄奇帆入习近平慧眼</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -869,22 +887,6 @@
                                                                                                    2015年7月14日<br>
     此呈：联合国总部、联合国难民署各分支机构、相关国际人权机构
  [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 4900248       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507150928.shtml" target="boxun-mirror">纽约各界人士中领馆前抗议中共当局扫荡维权律师</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>纽约各界人士中领馆前抗议中共当局扫荡维权律师<br><font color="#000fC0"><small>(博讯北京时间2015年7月15日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201507150928" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       <br>    博讯纽约报道，纽约民运团体及各界人士一行数十人，今天（7月14日）下午在中国驻纽约总领事馆前集会，抗议中共当局扫荡维权律师和活动人士。<br>    <br>    集会人士在中领馆对面及签证办公室门前高举被中共当局拘押人士的头像，高喊“释放维权律师”、“打倒共产党”等口号。有示威人士将习近平比喻为“习特勒”，并在中领馆大门前竖起了中指。<br>    <div align="center">
-<br>    <img src="/news/images/2015/07/201507150928intl1.jpg" alt="纽约各界人士中领馆前抗议中共当局扫荡维权律师"><br>    <img src="/news/images/2015/07/201507150928intl2.jpg" alt="纽约各界人士中领馆前抗议中共当局扫荡维权律师"><br>    <img src="/news/images/2015/07/201507150928intl3.jpg" alt="纽约各界人士中领馆前抗议中共当局扫荡维权律师"><br>    <img src="/news/images/2015/07/201507150928intl4.jpg" alt="纽约各界人士中领馆前抗议中共当局扫荡维权律师"><br>    <br>    <iframe width="600" height="400" src="https://www.youtube.com/embed/R0nMdTlSaFI" frameborder="0" allowfullscreen></iframe><br>    </div>    <br>    纽约城市大学政治学教授夏明表示，中共已经乱了阵脚，在经济上及政治上没办法用正常途径解决问题，只能用法西斯的方式来强行打压。，他一方面为维权律师的遭遇而难过，但他认为，这种打压也正说明新的时代即经开始，维权律师可以真正发挥作用的时候已经为期不远。<br>    <br>    中国民主党全国委员会及中国社会民主党成员参加了抗议，组织抗议的中国民主党全国委员会主席王军涛 认为，这轮针对维权律师及维权人士的镇压，是中共精心策划的行动。中共选择在习近平出访前的时候作出这样的举动，说明维权律师与访民协调行动，对当局造成比较大的压力和广泛的社会影响，中共不得不出手严加打击，防止这种模式蔓延。另外就是中共现在是风雨飘摇，于是对政治危机发生时可能成为反对运动的核心人物的人士进行预防性打击。<br>    <br>    王军涛还表示，当习近平九月访问美国时，还将组织浩大的抗议活动，让中共当局为镇压维权律师的举动付出代价。<br>    <br>    据不完全统计，截止至北京时间7月15日凌晨，在这轮扫荡中被拘捕、传唤的中国的维权律师及活动人士已经有186人，被正式刑事拘留6人，超过20名律师被带走后失联。<br>    <br>    -<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201507150928" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/15)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507141715181.JPG http://upload.bx.tl/news/temp13/201507141715182.JPG http://upload.bx.tl/news/temp13/201507141715183.JPG http://upload.bx.tl/news/temp13/201507141715184.JPG--> 1450928       
 <hr>
 <table width="620"><tr><td>
 <b></p>
