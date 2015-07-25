@@ -19,6 +19,183 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507250033.shtml" target="boxun-mirror">致国际奥委会公开信：反对北京申办2022年冬奥会</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>致国际奥委会公开信：反对北京申办2022年冬奥会<br><font color="#000fC0">(<small>博讯北京时间2015年7月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507250033" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    博讯报道，7月24日，以中国人为主的一群人发出<a href="https://www.change.org/p/international-olympic-committee-to-reject-beijing-s-bid-to-host-the-2022-winter-olympics">致国际奥委会的公开信</a>，并征集全球联署，反对北京申办2022年冬奥会。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       公开信认为，中国正在发生广泛和严重的人权迫害，包括最近发生的超过250名维权律师及人权卫生被打压事件。公开信说，“如果国际社会同意北京申办2022年冬奥会，那么一场基于团结、兄弟情谊和人类发展的盛事将再次服务于一个腐败的独裁政权，支持一个无耻侵犯人权的政府，这将和奥林匹克宪章中‘增进社会和平、促进人类尊严’的宗旨矛盾。”<br>
+    <br>
+    公开信称，中国政府并未兑现主办2008年夏季奥运会关于改善人权的承诺，人权状况更加恶化。公开信认为，“如果（国际奥委会）赞同北京举办2022年冬奥会，将给世界传达这样一个信息：国际奥委会支持中国政府侵犯人权。”<br>
+    <br>
+    7月31日，国际奥委会将在马来西亚吉隆坡举行全体会议，投票产生2022年冬奥会举办城市。<br>
+    <br>
+    以下为公开信全文：<br>
+    <br>
+    致国际奥委会公开信：反对北京申办2022年冬奥会<br>
+    <br>
+    尊敬的国际奥委会委员：<br>
+    <br>
+    我们敦促您投票反对北京申办2022年冬奥会，因为2008年以来，中国人权史无前例的恶化。<br>
+    <br>
+    我们在写这封信的时候，中国政府正对公民社会展开一场全面进攻。自从7月9日，超过250名维权律师、法律助理、活动人士和他们的家庭成员被逮捕、审问、软禁和或失踪，年龄最小的只有16岁，最年长的81岁。<br>
+    <br>
+    北京已将奥运会用于宣传中国共产党。如果国际社会同意北京申办2022年冬奥会，那么一场基于团结、兄弟情谊和人类发展的盛事将再次服务于一个腐败的独裁政权，支持一个无耻侵犯人权的政府，这将和奥林匹克宪章中“增进社会和平、促进人类尊严”的宗旨矛盾。<br>
+    <br>
+    2008年夏季奥运会对奥林匹克原则是一次嘲讽，给中国民众带来的羞辱多过尊严、悲伤多过喜悦。<br>
+    <br>
+    以奥运之名，北京强拆了150万居民的住宅，并将几千个”钉子户“赶出家门。在为奥运”清理“首都的行动中，数百上访者和残疾人被拘留在秘密地点。为了办奥运的面子，北京掩盖了全国性毒奶粉丑闻――而毒奶粉到2008年为止导致36万婴幼儿患病。北京禁止金牌选手方政参加残奥会，因为在”八九六四“被坦克碾断了双腿，从而成为天安门屠杀的活见证。<br>
+    <br>
+    为了获得08年夏季奥运会主办权，中国政府承诺为公民在比赛期间的抗议活动提供场地。政府的确提供了，但申请抗议的公民仍然被逮捕，这等于把政府自己对国际奥委会的承诺开了个玩笑。如果北京取得2022年冬奥会主办权，类似的滥权还会发生。<br>
+    <br>
+    我们对如此恶劣的人权纪录感到极其羞愧――它们不但和北京的承诺相矛盾，而且严重玷污了奥运的声誉，损坏了奥运精神。<br>
+    <br>
+    为了获得08年夏季奥运会主办权，中国政府承诺改善新闻自由。然而，中国媒体经历了更严厉的审查和打压。政府拒绝给一些外国记者发放工作签证，只因他们报道了“敏感”话题。据保护记者委员会记录，全世界关押记者人数最多的国家正是中国。<br>
+    <br>
+    如果赞同北京举办2022年冬奥会，将给世界传达这样一个信息：国际奥委会支持中国政府侵犯人权。这样，2022年冬奥会将与1936年柏林奥运会和1980年莫斯科奥运会极其相似。<br>
+    <br>
+    我们相信，纯洁的奥林匹克梦决不应服务于主办国政府严重的对内镇压。我们梦想着有一天，奥运圣火将照亮一个自由的中国。然而在当前、在现政府统治下，在北京再次举办奥运会将成为耻辱载入史册，也将使国际奥委会成为以奥运之名侵犯人权的帮凶。<br>
+    <br>
+    Contacts （联系人）:<br>
+    <br>
+    Yi Gu (古懿), slmngy@uga.edu<br>
+    <br>
+    Rose Tang (唐路),  rosetangy@gmail.com <br>
+    <br>
+    Signatures (签名):<br>
+    <br>
+    Tony Chang (张上), Australia (澳大利亚)   <br>
+    <br>
+    CHEN Chuangchuang (陈闯创): USA (美国)<br>
+    <br>
+    CHEN Guangcheng  (陈光诚):  USA（美国）      <br>
+    <br>
+    CHEN Kuide (陈奎德): USA (美国)       <br>
+    <br>
+    CHEN Liqun (陈立群), USA (美国)<br>
+    <br>
+    CHENG Qiubo  (成秋波): USA (美国) <br>
+    <br>
+    DU Yanlin  (杜延林): China (中国)<br>
+    <br>
+    FANG Yong  (方勇):  USA (美国)             <br>
+    <br>
+    FANG Zheng  (方政):  USA (美国)<br>
+    <br>
+    FENG Yun  (封云): UK (英国)<br>
+    <br>
+    George GE (葛洵): USA (美国)<br>
+    <br>
+    Yi GU (古懿): USA (美国)<br>
+    <br>
+    HE Qinglian  (何清涟): USA (美国)<br>
+    <br>
+    HU Jia (胡佳): China (中国)<br>
+    <br>
+    HU Yunfei (胡云飞):  USA (美国).<br>
+    <br>
+    LI Juan (李隽): Australia (澳大利亚)<br>
+    <br>
+    LIAO Yiwu (廖亦武), Germany (德国)<br>
+    <br>
+    LIU Shasha  (刘沙沙): Canada (加拿大)<br>
+    <br>
+    SHEN Liangqing  (沈良庆): China (中国）<br>
+    <br>
+    SHI Yi  (施毅): USA (美国)<br>
+    <br>
+    SU Yutong  (苏雨桐): Germany (德国)<br>
+    <br>
+    Rose TANG (唐路): USA (美国)<br>
+    <br>
+    TENG Biao (腾彪): USA（美国）<br>
+    <br>
+    WANG Lihong (王荔蕻): China (中国)<br>
+    <br>
+    WU Lebao (吴乐宝):  Australia（澳大利亚）<br>
+    <br>
+    WU Qiang  (吴强): China (中国)<br>
+    <br>
+    WU Renhua (吴仁华): USA (美国)<br>
+    <br>
+    Wu’erkaixi (吾尔开希), Taiwan (台湾)<br>
+    <br>
+    XIA Ming (夏明): USA (美国)<br>
+    <br>
+    XIA Yeliang  (夏业良): USA (美国)<br>
+    <br>
+    YAN Kefu (颜柯夫): Taiwan (台湾)<br>
+    <br>
+    YANG Jianli (杨建利), USA (美国)<br>
+    <br>
+    YANG Kuang  (杨匡): Canada (加拿大)<br>
+    <br>
+    ZHOU Fengsuo  (周锋锁): USA (美国) <br>
+    <br>
+    <b>Reject Beijing’s bid to host the 2022 Winter Olympics</b><br>
+    <br>
+    Dear International Olympic Committee Members:<br>
+    <br>
+    We urge you to reject Beijing’s bid for the 2022 Winter Olympics as China is now facing a human rights crisis with a scale of violations that is unprecedented since 2008.<br>
+    <br>
+    As we write this letter, the Chinese government is carrying out an unparalleled attack on civil society. More than 250 Chinese human-rights lawyers, legal assistants, activists and their family members have been arrested, interrogated, put under house arrest and made to disappear since July 9. The youngest is 16 and the oldest 81.<br>
+    <br>
+    Beijing has been using the Olympic Games to promote the Chinese Communist Party. If the International Olympic Committee awards Beijing the 2022 Winter Olympics, a great event intended to promote solidarity, brotherhood and human development will once again serve a corrupt dictatorship. It will endorse a government that blatantly violates human rights. Awarding Beijing the Olympics is a contradiction of the Olympics’ goal of “promoting a peaceful society concerned with the preservation of human dignity.”<br>
+    <br>
+    The 2008 Summer Olympics made a mockery of the fine principles that the Olympics stands for, and brought more humiliation than dignity and more sadness than joy to the people in China.<br>
+    <br>
+    In the name of the Olympics, Beijing forcibly relocated 1.5 million residents and evicted thousands of households. Hundreds of petitioners―as well as handicapped people―were detained in secret detention centers as part of the government’s effort to “clean up” the capital for the games. To put forth a good face for the Olympics, Beijing covered up a nationwide powdered milk scandal, which seriously affected the health of some 360,000 babies in China by 2008. The government also banned record-holding athlete Fang Zheng from the Paralympics because his legs were crushed by a tank in the 1989 Tiananmen Massacre.  <br>
+    <br>
+    To win the 2008 Olympics, China promised to allow space for Chinese citizens to protest during the games. Spaces were allocated, but those that applied for permission to hold protests were actually arrested, making a mockery of China’s promises to the IOC. We expect similar abuses to take place should you award China the 2022 Winter Olympics.<br>
+    <br>
+    We feel utterly ashamed of such a notorious human rights record, which not only contradicts Beijing’s own promises, but also severely tarnishes the reputation and spirit of the Olympic Games.<br>
+    <br>
+    Beijing promised to improve press freedom in order to win the 2008 Olympics. Instead, the Chinese media have experienced even more censorship and crackdowns. China has been denying work visas to a number of foreign journalists who cover “sensitive” issues. The country is the world’s largest jailer of journalists, according to the Committee to Protect Journalists.<br>
+    <br>
+    Allowing Beijing to host the 2022 Winter Olympics would send the world a message that China’s human rights abuses are being endorsed by the IOC, making the 2022 Games look strikingly similar to the 1936 Berlin Olympics and the 1980 Moscow Olympics.<br>
+    <br>
+    We believe that the pure Olympic dream should never serve political oppression by a host government. We dream that one day the sacred Olympic flame will cast a light on a free China. For now, under this government, any more Olympic games would go down in history as the Shame Games, and make the IOC an accomplice in the abuse of human rights in the name of the Olympics.<br>
+    <br>
+    -
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507250033" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4860033       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507250514.shtml" target="boxun-mirror">周本顺落马内幕:服侍周永康介入令计划公子案请看博讯热点：令计划</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>周本顺落马内幕:服侍周永康介入令计划公子案<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507250514" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     【博</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507240943.shtml" target="boxun-mirror">胡锦涛撇清和令计划关系江泽民将去北戴河请看博讯热点：令计划</a>
 </h2>
 <p><tr>
@@ -827,71 +1004,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507150928.shtml" target="boxun-mirror">纽约各界人士中领馆前抗议中共当局扫荡维权律师</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>纽约各界人士中领馆前抗议中共当局扫荡维权律师<br><font color="#000fC0"><small>(博讯北京时间2015年7月15日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201507150928" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       <br>    博讯纽约报道，纽约民运团体及各界人士一行数十人，今天（7月14日）下午在中国驻纽约总领事馆前集会，抗议中共当局扫荡维权律师和活动人士。<br>    <br>    集会人士在中领馆对面及签证办公室门前高举被中共当局拘押人士的头像，高喊“释放维权律师”、“打倒共产党”等口号。有示威人士将习近平比喻为“习特勒”，并在中领馆大门前竖起了中指。<br>    <div align="center">
-<br>    <img src="/news/images/2015/07/201507150928intl1.jpg" alt="纽约各界人士中领馆前抗议中共当局扫荡维权律师"><br>    <img src="/news/images/2015/07/201507150928intl2.jpg" alt="纽约各界人士中领馆前抗议中共当局扫荡维权律师"><br>    <img src="/news/images/2015/07/201507150928intl3.jpg" alt="纽约各界人士中领馆前抗议中共当局扫荡维权律师"><br>    <img src="/news/images/2015/07/201507150928intl4.jpg" alt="纽约各界人士中领馆前抗议中共当局扫荡维权律师"><br>    <br>    <iframe width="600" height="400" src="https://www.youtube.com/embed/R0nMdTlSaFI" frameborder="0" allowfullscreen></iframe><br>    </div>    <br>    纽约城市大学政治学教授夏明表示，中共已经乱了阵脚，在经济上及政治上没办法用正常途径解决问题，只能用法西斯的方式来强行打压。，他一方面为维权律师的遭遇而难过，但他认为，这种打压也正说明新的时代即经开始，维权律师可以真正发挥作用的时候已经为期不远。<br>    <br>    中国民主党全国委员会及中国社会民主党成员参加了抗议，组织抗议的中国民主党全国委员会主席王军涛 认为，这轮针对维权律师及维权人士的镇压，是中共精心策划的行动。中共选择在习近平出访前的时候作出这样的举动，说明维权律师与访民协调行动，对当局造成比较大的压力和广泛的社会影响，中共不得不出手严加打击，防止这种模式蔓延。另外就是中共现在是风雨飘摇，于是对政治危机发生时可能成为反对运动的核心人物的人士进行预防性打击。<br>    <br>    王军涛还表示，当习近平九月访问美国时，还将组织浩大的抗议活动，让中共当局为镇压维权律师的举动付出代价。<br>    <br>    据不完全统计，截止至北京时间7月15日凌晨，在这轮扫荡中被拘捕、传唤的中国的维权律师及活动人士已经有186人，被正式刑事拘留6人，超过20名律师被带走后失联。<br>    <br>    -<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201507150928" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/15)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507141715181.JPG http://upload.bx.tl/news/temp13/201507141715182.JPG http://upload.bx.tl/news/temp13/201507141715183.JPG http://upload.bx.tl/news/temp13/201507141715184.JPG--> 1450928       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/07/201507150248.shtml" target="boxun-mirror">在泰全体中国难民紧急求救</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>在泰全体中国难民紧急求救<br><font color="#000fC0">(<small>博讯北京时间2015年7月15日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社综合】2015年07月08日，泰国政府强行遣返109名在泰国申请政治庇护的维吾尔族中国公民以后，引起世界各国的高度重视。美国、欧盟以及土耳其等国反响激烈。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       据悉，泰国政府下一步将遣返前来向联合国申请政治避难的受迫害的中国民运人士、宗教人士和法轮功习练者。<br>
-    <br>
-    7月14日，寄居在泰国各地的受中国政府迫害民运人士、法轮功学员、宗教人士举行聚会声讨中共的违反国际法的行为，呼吁国际社会重视中国人权和联合国公约的普遍约束力。<br>
-    <br>
-    紧急求救文电如下：<br>
-                  在泰全体中国难民紧急求救<br>
-    <br>
-    2015年07月08日，泰国政府不顾全世界人民的反对，屈从于中共的压力和收买，强行遣返109名在泰国申请政治庇护的维吾尔族中国公民。随之，中共动用其宣传机器，对世界高调宣称被遣返的中国维吾尔族公民是“犯罪人员”、“恐怖分子”甚至说他们“企图加入ISIS圣战”等等，其目的就是要将这些被遣返回中国的维吾尔族公民治以重罪。可以想象，这些被遣返的中国难民回国之后必将遭受中共更加残酷的迫害甚至直接处决。如果联合国难民署和国际社会不加以坚决制止，中共当局还会以所谓的“加强国际合作”，“打击非法移民”等理由要挟泰国政府把更多的在泰国申请避难的中国公民遣送回国，这无疑将是人类历史上的又一次人道主义灾难。<br>
-    <br>
-    这些来到泰国申请庇护的中国公民，都是在中国境内因为种族、信仰、政治理念或者参加了政治团体等原因不堪中共的残酷迫害而逃亡出来，为了追求基本人权的合法公民，也是维护人类正义良心的公义人士。他们舍弃亲人故土来到异国他乡是为了追求自由，获得基本的人权。不幸的是中共这个邪恶的专制政权，为了达到目的无所不用其极，所有的国际准则对于邪恶的中共都没有任何约束力，它的宣传和承诺都是欺骗和陷阱。中共不仅仅在境内迫害被他统治的人民，（近期中共大规模抓捕维权律师，震惊世界），而且，他们还频频将黑手伸向海外，通过收买、恫吓泰国政府企图变本加厉地迫害从中国境内逃亡出来的中国公民。<br>
-    <br>
-    面对中共黑手的操纵和离我们越来越近的恐怖现实，我们的危险迫在眉睫。为此，我们在泰国的法轮功受难者、政治异议人士、种族 (主要是维吾尔族) 和宗教等受迫害者近300人 ， 特向联合国难民署以及全世界发出紧急求救：请关注我们的生命权、自由权，信仰权等基本人权，拯救我们于危难之中。<br>
-    <br>
-                                                                                                 滞留泰国的中国难民<br>
-                                                                                                   2015年7月14日<br>
-    此呈：联合国总部、联合国难民署各分支机构、相关国际人权机构
- [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 4900248       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
