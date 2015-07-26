@@ -19,6 +19,46 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507261234.shtml" target="boxun-mirror">李小琳遁入佛门求大师为父李鹏祈福延寿请看博讯热点：李鹏家族</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>李小琳遁入佛门求大师为父李鹏祈福延寿<br><font color="blue" size="2">请看博讯热点：<a href="/hot/lipeng.shtml">李鹏家族
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507261234" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     【博闻社独家】中国藏传佛教著名高僧金刚法王・满自喜日布扎赤・仁波切，前天(24日)在微信透露，前总理李鹏的大女儿李小琳专程到内蒙古寺院，拜访赤・仁波切上师，并和大师一同参拜佛祖。而本社获悉，李小琳已遁入佛门受戒，并获赐法号“格丹央金措姆”，她此程参拜大师，是求大师为其病危的父亲李鹏祈福延命的。<br>
+    <br>
+     凤凰网昨日转发了赤.仁波切大师有关李小琳参拜的微信，以及大师所发的多张照片，但很快就删除。报道没指李小琳是在哪个寺庙参拜、为父亲祈福，但大唐集团官网的报道显示，李小琳23日在大唐国际托克托发电公司调研，该公司位于内蒙古，显示她参拜的有可能是位于内蒙锡林郭勒盟境内的哈音哈尔瓦广益寺，赤・仁波切大师是该寺的荣誉主持。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+     消息人士对本社透露，李小琳此程参拜赤.仁波切上师，是求大师为她的父亲李鹏祈福延寿的，同时，已出家受戒并有法号“格丹央金措姆”的李小琳，也和大师一道，亲自向佛祖上香、献哈达和叩头，为父亲李鹏祈福。本社早前曾披露，李鹏现已病危住院，院方至少已两次下病危通知。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_7802.html">博闻社报道全文</a><br>
+    <br>
+    --
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507261234" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3281234       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507260443.shtml" target="boxun-mirror">广州白云机场疑有乘客带汽油火机企图在机舱纵火</a>
 </h2>
 <p><tr>
@@ -945,31 +985,6 @@
     <br>
     <a href="http://bowenpress.com/news/bowen_6622.html">博闻社报道全文</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507160201" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3950201       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507161339.shtml" target="boxun-mirror">传习近平月底前去西藏，实施更为严厉的政策请看博讯热点：西藏问题</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>传习近平月底前去西藏，实施更为严厉的政策<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tibet.shtml">西藏问题
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507161339" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <a href="/news/gb/china/2014/11/201411121440.shtml">博讯记者2014年拍摄的藏区检查点</a>：<br>
-    <img src="/news/images/2014/11/201411121440china1.jpg"><br>
-    【博闻社独家】本社独家获悉，习近平本月底前可能去西藏视察，如果此次成行，将是习近平第二次到藏区。<br>
-    来自藏区信息显示，西藏近日明显增加了警备力量，进藏线路上检查点多，还有带机枪的装甲车巡逻，概括起来就是：西藏有更多的军警，更多的武装力量，实施更严格的出入藏区统计和登记。<br>
-    <br>
-    消息人士表示，西藏正酝酿推行新政策，号称要“彻底消除达赖喇嘛的影像”。此迹象显示，中共除了对内地民众加强镇压和管控，对已经缺乏自由的少数民族地区可能会采取更为严厉的政策。目前还不清楚是否意味着中共将中断与达赖喇嘛的私下沟通。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_6664.html">博闻社报道全文</a><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/8-L3SlToiZQ" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507161339" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1431339       
 <hr>
 <table width="620"><tr><td>
 <b></p>
