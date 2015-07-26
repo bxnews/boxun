@@ -57,7 +57,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507260443.shtml" target="boxun-mirror">广州白云机场疑有乘客带汽油火机企图在机舱纵火</a>
 </h2>
@@ -86,7 +86,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507250033.shtml" target="boxun-mirror">致国际奥委会公开信：反对北京申办2022年冬奥会</a>
 </h2>
