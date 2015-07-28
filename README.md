@@ -36,6 +36,32 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507282231.shtml" target="boxun-mirror">中电国际发布公告称，李小琳辞任所有职务请看博讯热点：李鹏家族</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中电国际发布公告称，李小琳辞任所有职务<br><font color="blue" size="2">请看博讯热点：<a href="/hot/lipeng.shtml">李鹏家族
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月28日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="/news/images/2015/07/201507282231china1.jpg" alt="中电国际发布公告称，李小琳辞任所有职务"><p><br>
+    <br>
+    博讯据中国电力国际发展有限公司消息，中国电力国际7月28日晚间发布公告称，李小琳辞任本公司执行董事、董事局主席、董事局辖下执行委员会主席及首席执行官职务。<br>
+    <br>
+    公告称，王炳华接任董事局主席，余兵接任总裁。<br>
+    <br>
+    此前李小琳未列名中电投和国家核电技术公司新整并的国家电力集团要职，被认为是被边缘化。调任新单位大唐集团后只排第3，未分管具体业务。博讯此前报道过，李鹏家族包括李小琳因贪腐问题已遭调查，并被限制出境。<br>
+    <br>
+    -
+ [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507280626321.jpg--> 3932231       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507280425.shtml" target="boxun-mirror">重大人事:传王沪宁调任上海书记、肖钢调重庆</a>
 </h2>
 <p><tr>
@@ -905,45 +931,6 @@
     <br>
     <iframe width="560" height="315" src="https://www.youtube.com/embed/8-L3SlToiZQ" frameborder="0" allowfullscreen></iframe>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507161339" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1431339       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507160201.shtml" target="boxun-mirror">北戴河议题:北京上海人事变动，郭金龙韩正将调离</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北戴河议题:北京上海人事变动，郭金龙韩正将调离<br><font color="#000fC0">(<small>博讯北京时间2015年7月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507160201" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】据可靠来源消息，这次北戴河会议的重要议题之一，是关于北京市和上海市这两个直辖市的第一把手的人事安排。可以确定的是北京现任市委书记郭金龙以及现任上海市委书记韩正将变动岗位。<br>
-    <br>
-     据可靠消息透露，韩正此次调离上海已成定局。今后的去向已经确定往国务院任职。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    至于，北京市、上海市的空缺由谁接替，估计在北戴河会议上有争夺，目前尚未有明确定论。但是，此前有消息表明栗战书和王沪宁都是可能的人选。<br>
-    <br>
-    博闻社陆续会有更多内幕曝光。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_6622.html">博闻社报道全文</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507160201" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3950201       
 <hr>
 <table width="620"><tr><td>
 <b></p>
