@@ -19,6 +19,45 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507280425.shtml" target="boxun-mirror">重大人事:传王沪宁调任上海书记、肖钢调重庆</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>重大人事:传王沪宁调任上海书记、肖钢调重庆<br><font color="#000fC0">(<small>博讯北京时间2015年7月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507280425" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社】对中共极为重要的北戴河会议正在召开，署名罗大卫的微博发出信息称，北戴河会议确认，韩正调往北京，任中央深改办公室主任、中央政策研究室主任。王沪宁调上海任上海市委书记。<br>
+    <br>
+     该微博还称，肖钢不再担任证监会主席，调任重庆市委副书记（正部级），下届调出中央委员。重庆市委副书记张国清升任重庆市长，重庆市长黄启帆调任证监会主席。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    对有关任命传闻，消息人士对本社表示，以上传闻基本属实。博闻社在7月15日曾披露，韩正已经确定往国务院任职。原报道指出北京市长郭金龙也会调离，本社最新获悉，郭金龙可能暂时不动。<br>
+    <br>
+    本社日前还披露，江泽民本周将启程去北戴河。<br>
+    <br>
+    博闻社最新独家：<a href="http://bowenpress.com/news/bowen_8079.html">王岐山又动太子党奶酪 高铁取消赠矿泉水内幕曝光</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507280425" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3640424       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507261234.shtml" target="boxun-mirror">李小琳遁入佛门求大师为父李鹏祈福延寿请看博讯热点：李鹏家族</a>
 </h2>
 <p><tr>
@@ -949,45 +988,6 @@
     巨额贿赂朱明国等人，买通惠州公安，借“假举报”，动用惠州警方“押人索证”、“制造证据”，“构陷罪名”的典型运动式打黑，将一位长期努力团结侨胞，积极参加反独促统活动的爱国侨领、长期为中国慈善事业而热心付出的美国华侨爱国商人胡伟星包装成“黑社会老大”。<br>
     <br><center><font size="4"><b>胡炜</b></font></center>
 </td></tr></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507160201.shtml" target="boxun-mirror">北戴河议题:北京上海人事变动，郭金龙韩正将调离</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北戴河议题:北京上海人事变动，郭金龙韩正将调离<br><font color="#000fC0">(<small>博讯北京时间2015年7月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507160201" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】据可靠来源消息，这次北戴河会议的重要议题之一，是关于北京市和上海市这两个直辖市的第一把手的人事安排。可以确定的是北京现任市委书记郭金龙以及现任上海市委书记韩正将变动岗位。<br>
-    <br>
-     据可靠消息透露，韩正此次调离上海已成定局。今后的去向已经确定往国务院任职。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    至于，北京市、上海市的空缺由谁接替，估计在北戴河会议上有争夺，目前尚未有明确定论。但是，此前有消息表明栗战书和王沪宁都是可能的人选。<br>
-    <br>
-    博闻社陆续会有更多内幕曝光。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_6622.html">博闻社报道全文</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507160201" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3950201       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
