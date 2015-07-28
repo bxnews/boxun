@@ -56,7 +56,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507261234.shtml" target="boxun-mirror">李小琳遁入佛门求大师为父李鹏祈福延寿请看博讯热点：李鹏家族</a>
 </h2>
