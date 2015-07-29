@@ -62,7 +62,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507290207.shtml" target="boxun-mirror">王岐山又动太子党奶酪:高铁取消赠矿泉水内幕请看博讯热点：中共太子党</a>
 </h2>
@@ -95,7 +95,7 @@
     <br>
     消息指，5100矿泉水背后绝非一般利益集团，而是由中共太子党利用中国高铁疯狂</td></tr></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507282123.shtml" target="boxun-mirror">高瑜狱中病情恶化，被要求解聘律师和认罪</a>
 </h2>
