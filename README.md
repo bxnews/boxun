@@ -91,7 +91,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507300842.shtml" target="boxun-mirror">北戴河暗涌：意识形态搅局鼓动为薄熙来翻案请看博讯热点：王立军、薄熙来</a>
 </h2>
@@ -117,7 +117,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/07/201507290057.shtml" target="boxun-mirror">9月习近平访美：刘云山唱反调暗斗？</a>
 </h2>
