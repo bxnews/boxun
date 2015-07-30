@@ -43,7 +43,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5分钟前</small>
+	<small> ============== 10分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/07/201507290057.shtml" target="boxun-mirror">9月习近平访美：刘云山唱反调暗斗？</a>
 </h2>
