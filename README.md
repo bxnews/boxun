@@ -19,6 +19,32 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/07/201507300842.shtml" target="boxun-mirror">北戴河暗涌：意识形态搅局鼓动为薄熙来翻案请看博讯热点：王立军、薄熙来</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北戴河暗涌：意识形态搅局鼓动为薄熙来翻案<br><font color="blue" size="2">请看博讯热点：<a href="/hot/wangjilun.shtml">王立军、薄熙来
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507300842" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】一年一度北戴河会议即将举行，中共政坛并不平静。本社日前已披露，习近平要在北戴河会议推行他的“领导干部能上能下”大计，调整部份高官，尤其是掌管意识形态的主官。而那些命运危在旦夕的政要也不甘束手就范，想方设法给习近平制造麻烦，图混搅北戴河的水，做法包括利用他们所操控的海内外宣传工具，煽起一股为薄熙来喊冤的浪潮，以及明知习近平9月要出访美国，却让一些喉舌媒体无端发起新一轮抹黑和攻击美国的口舌战，破壤出访气氛。<br>
+    <br>
+    京城知情者对本社透露，大约在今年的五、六月份，海外一些中资背景的媒体突然“怀念”起薄熙来，以打“擦边球”方式刊播与薄熙来和薄家有关的一些历史，大有为薄熙来叫好之势。而这些媒体都掌控在外宣系统手中，有些在薄熙来倒台前曾是最热心为“重庆模式”吹鼓抬轿的，并且从重庆当局获得巨大经济利益。<br>
+    <br>
+    更有甚者，山东省外宣部门近日组织一批外媒到山东采访，其中日本经济新闻社摄制队在当局安排下，到曾经审判薄熙来的济南市街头采访普通市民，不料这些市民竟当着外宣官员、便衣国安、公安国保的面，在日本记者的镜头面前公开为薄熙来鸣不平，高声质问薄熙来案“到底是政治问题还是经济问题”，直接批评习近平主政下的国家，依然是贪污腐败横行，贫富悬殊严重；表示薄熙来在重庆所创造的社会，才是人民所追求的，是符合中国国情的社会主义。<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/tDH3LGVH0GI" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_8388.html">博闻社报道全文</a><br>
+    <br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507300842" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4730842       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/07/201507290057.shtml" target="boxun-mirror">9月习近平访美：刘云山唱反调暗斗？</a>
 </h2>
 <p><tr>
@@ -689,55 +715,6 @@
 <b></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507180208.shtml" target="boxun-mirror">北戴河会议：军队改革问题已经摆入会议议程</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北戴河会议：军队改革问题已经摆入会议议程<br><font color="#000fC0">(<small>博讯北京时间2015年7月18日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507180208" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】据北京方面可靠消息，这次北戴河会议的重要议题之一，是关于酝酿已久的军队改革问题。<br>
-    <br>
-     本社此前独家报道，原计划在今年五月份展开的军队改革，因为种种因素而被推迟五个月以后进行。这些因素包括郭伯雄案件的影响、军队多达190多名的将军（其中有四名是上将）被查出有明显的犯罪证据，以及此前多达39名军级以上级以上军被查处，导致领导班子青黄不接等等问题。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    中共政治治理结构从来将军务与政务、党务分开，军队的重大事务一般情况下只在中央军委内部进行决策，甚至有时排除中共总书记的染指（如赵紫阳、胡耀邦时代）。即使是江、胡集党政军大权于一体的时代，也基本上不在北戴河会议上讨论军队事务的具体细节。<br>
-    <br>
-    然而诡异的是，此次北戴河会议已将军队改革问题明确列入会议的议程。<br>
-    <br>
-    分析人士认为，这表明军队改革的问题已经遇到空前的阻力。这些阻力的主体主要来自前二十年军纪池废时期盘踞在军队高位的将校一级。在这种情况下，习只能借助军外的力量推动军内改革的进行。<br>
-    <br>
-    本社此前已经独家公布了军队改革的布局，即：破体系壁垒，谋三军转型。其中引述习近平的话“深化军区部队改革，要放在陆军转型这个大背景下来考虑。” 改革内容之一是济南军区将被整编为陆军总部，其他军区微调后改称方向战区。<br>
-    <br>
-    济南军区是中国人民解放军主管山东、河南两省军事事务的大军区，也是所有大军区的战略总预备队。<br>
-    <br>
-    主要作战使命为为北京军区提供战略掩护，并作为全军预备队使用。下辖3个集团军(20、26、54集团军），1个武警机动师（武警128师）。<br>
-    <br>
-    <a href="http://bowen.press">博闻社更多精彩报道</a><br>
-    <br>
-    .
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507180208" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3610207       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
