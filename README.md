@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508011145.shtml" target="boxun-mirror">首长接连出事还患绝症，八一大楼变凶宅无人敢入请看博讯热点：郭伯雄</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>首长接连出事还患绝症，八一大楼变凶宅无人敢入<br><font color="blue" size="2">请看博讯热点：<a href="/hot/guoboxiong.shtml">郭伯雄
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508011145" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】博闻社自开张试业以来，虽未成大气，不敢与海内外众多名牌大店看齐，但是也有些产品倒是受到读者垂注，有些还被某些大厂撕去原产地，贴牌转售。小编无所谓，乐得其所，因为好东西总要有人</p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507310433.shtml" target="boxun-mirror">无名小兵爬上军委副主席，郭伯雄崛起之谜请看博讯热点：郭伯雄</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -1012,23 +1024,6 @@
     <br>
     据该文作者透露，这只是《起底周小川》的第一部分，第二部分将更有爆炸性，其中有周小川疑为美国间谍的内幕。
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507220721" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4550721       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507220647.shtml" target="boxun-mirror">刘云山儿子刘乐飞辞去新华保险职务，疑涉车峰案</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>刘云山儿子刘乐飞辞去新华保险职务，疑涉车峰案<br><font color="#000fC0"><small>(博讯北京时间2015年7月22日 综合报道)</small></font>
-</center>
-            <!--bodystart-->        <br>    <div align="center">
-<br>    <img src="/news/images/2015/07/201507220647china1.jpg" alt="刘云山儿子刘乐飞辞去新华保险职务，疑涉车峰案"><br>    </div>   <br>    博讯报道，新华保险周二晚间披露，因工作原因，公司董事刘乐飞近日提出辞去公司非执行董事、董事会战略与投资委员会委员、董事会提名薪酬委员会委员职务。刘乐飞是政治局常委刘云山的儿子。<br>    <br>    <a href="/news/gb/china/2015/06/201506250639.shtml">博闻社此前曾披露</a>，中国前央行行长、天津市长戴相龙女婿车峰案越滚越大，案涉中共现任政治局常委刘云山家人。刘的夫人李素芳和大儿子刘乐飞与车峰关系密切，母子经常“借用”车峰私人飞机，其中李素芳几乎每年「借用」30多次，刘乐飞更借专机去欧洲看球赛，车峰的私人飞机俨如刘家的专机般。<br>    <br>    新华保险的公告称，刘乐飞的辞职自其辞职报告送达董事会之日起生效。刘乐飞确认其与公司董事会并无意见分歧，亦无任何需要通知公司股东的事项。<br>    <br>    新华保险2014年年报显示，刘乐飞自2014年7月起担任新华保险非执行董事。现任中信产业投资基金管理有限公司董事长兼首席执行官，并担任中信证券董事、副董事长，中国人寿资产管理有限公司独立董事。<br>    <br>    -<br><br> [博讯综合报道]  <!--(Modified on 2015/7/22)-->  <!--(Modified on 2015/7/22)--> <!--bodyend-->       
-                  
-           (博讯 boxun.com) <br><!----> 3890647       
 <hr>
 <table width="620"><tr><td>
 <b></p>
