@@ -40,7 +40,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508011145.shtml" target="boxun-mirror">首长接连出事还患绝症，八一大楼变凶宅无人敢入请看博讯热点：郭伯雄</a>
 </h2>
@@ -52,7 +52,7 @@
 </center>
                 <!--bodystart-->      【博闻社独家】博闻社自开张试业以来，虽未成大气，不敢与海内外众多名牌大店看齐，但是也有些产品倒是受到读者垂注，有些还被某些大厂撕去原产地，贴牌转售。小编无所谓，乐得其所，因为好东西总要有人</p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/07/201507310433.shtml" target="boxun-mirror">无名小兵爬上军委副主席，郭伯雄崛起之谜请看博讯热点：郭伯雄</a>
 </h2>
