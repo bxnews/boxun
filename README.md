@@ -19,6 +19,29 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508011323.shtml" target="boxun-mirror">《博讯》杂志：令计划案公布后，令完成发声请看博讯热点：令计划</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>《博讯》杂志：令计划案公布后，令完成发声<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508011323" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     今天香港上市的《博讯》杂志8月号发出重磅独家消息：令计划案19日晚宣布后，令完成在7月25日从加州隐居的地点和友人通电话，他的谈话可能是过去一年多，唯一一次直接对事态发表看法。<br>
+    <br>
+    虽然他的友人并非采访，但《博讯》辗转获得的对话内容非常重要。《博讯》杂志选择几个要点公布，例如，中纪委是否真的派出人员来美国和令完成谈判？令完成在美身份是否合法？他有无掌握政治核炸弹？如果他手中握有机密，打算怎么使用？他对官方有关令计划的指控有什么看法？<br>
+    <img src="/news/images/2015/08/201508011323china1.jpg" alt="《博讯》杂志：令计划案公布后，令完成发声"><p><br>
+    另外，博讯出版社8月初将推出《刺杀马英九》一书，敬请关注。<br>
+    <img src="/news/images/2015/08/201508011323china2.jpg" alt="《博讯》杂志：令计划案公布后，令完成发声"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508011323" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507312115011.jpg http://upload.bx.tl/news/temp13/201507312115012.jpg--> 3911323       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508011145.shtml" target="boxun-mirror">首长接连出事还患绝症，八一大楼变凶宅无人敢入请看博讯热点：郭伯雄</a>
 </h2>
 <p><tr>
@@ -984,51 +1007,6 @@
     作为“上海帮”的重要成员之一，黄奇帆早就深得朱</td></tr></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507220721.shtml" target="boxun-mirror">《起底周小川》：股市、金融搞砸，与多美女通奸</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>《起底周小川》：股市、金融搞砸，与多美女通奸<br><font color="#000fC0">(<small>博讯北京时间2015年7月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507220721" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     7月股灾对中共和股民的重创仍在扩散中，引发股灾的罪魁之一就是人民银行行长周小川。在8月1日即将出版的《博讯》杂志将发布长篇报道：《起底周小川》，其中详细披露了周小川升迁、后台和腐败丑闻。除了经济上的巨大腐败，他在生活上也很糜烂，用流行的话说，就是和很多美女通奸。<br>
-    <br>
-     博闻社曾报道，车峰在北京的这所私人会所位于东城区一条胡同内，为一古色四合院，外表普通但内里堂皇，据悉单装修费就花了两亿人民币，车峰没出事前，只要在北京多是在此宴请款待客人，除了狐朋狗友，更多是高官政要、金融界猛人，如现职省市长、部长，银行行长、证券行老板等。接受性贿赂的高官之一自然缺不了周小川。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    消息指，车峰生意和社交最忙时，会所请有12位女大学生做“管家”，名义是服务员，实则为公关员，这些女大学生可不是普通女子，全是舞蹈学院、电影学院、戏剧学院等艺术院校的美女，她们以独特的魅力为领导们提供服务，常常使首长们流连忘返，欲罢不能。<br>
-    <br>
-    以下是《博讯》杂志《起底周小川》的详细内容：<br>
-    一、起底红色家族的仕途升迁之路<br>
-    二、有长袖却并不善舞 是温家宝死对头<br>
-    三、江泽民对周小川多有提携<br>
-    四、起底周小川和他的家族<br>
-    1、“商而优则仕”首先进入大众视野的是周小川的外甥周云帆<br>
-    2、闷声发财连娘舅周小川居然也不认<br>
-    3、周小川以国家的名义和马云勾结做大自己的股份<br>
-    4、腐朽糜烂的私生活<br>
-    五、周小川的错误施政导致此轮股灾集中爆发<br>
-    <br>
-    据该文作者透露，这只是《起底周小川》的第一部分，第二部分将更有爆炸性，其中有周小川疑为美国间谍的内幕。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507220721" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4550721       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
