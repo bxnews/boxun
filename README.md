@@ -127,7 +127,7 @@
      所以，呵呵</p>
 </td></tr></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508011323.shtml" target="boxun-mirror">《博讯》杂志：令计划案公布后，令完成发声请看博讯热点：令计划</a>
 </h2>
