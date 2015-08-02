@@ -19,6 +19,116 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508021022.shtml" target="boxun-mirror">北京冬奥会赛场将在自然保护区的核心区域建</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北京冬奥会赛场将在自然保护区的核心区域建<br><font color="#000fC0">(<small>博讯北京时间2015年8月02日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    编者按：网友通过分析，认为北京冬奥会高山滑雪赛场在松山国家级自然保护区的核心区域建设，将破坏自然资源，而北京在申报材料中仅称赛场和奥运村“邻近”保护区。此前新浪微博账号“无穷小亮”发布的科普文章获得两千多名网友转发后遭到删除。<br>
+    <br>
+    近期，某个刚刚获得举办资格的大型冰雪运动会（编者注，作者为了降低文章敏感度而采取的说法，指2022北京冬奥运）的场馆建设地址引起了不少关注，本人也发出了一组微博，对该场馆建设位置给出了自己的判读。不过为了更加明确的表明我的判读依据，更加便于讨论和指正，故用长微博详细介绍下判读的依据。<br>
+    <br>
+    根据该运动会官方文件《REPORT OF THE 2022 EVALUATION COMMISSION》（地址“：http://159.226.251.229/videoplayer/ioc_evaluation_commission_report_sp_lr_eng.pdf），第130页右图展示了滑雪速降赛道和雪橇赛道的设计位置和路线。为了方便后续判读，我在该图上打上了ABCDE5个标记点。其中A位于图中所示山峰顶峰，B位于所谓的”finish area“处，C位于与B点所在山脊平行的另一条山脊上，D为雪橇场地，E为一村落。<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china1.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"><p><br>
+    （图1） <br>
+    <br>
+    这个是最原始资料，接下来开始通过卫星图（感谢google map 和百度地图支持），进行位置判读。<br>
+    <br>
+    在卫星图判读之前，有一个背景小tips，那就是如何判定山脊和山谷。因为卫星map是2维图像，因此山脊和山谷存在混淆的现象。小窍门是，溪流或冰雪一定存在于山谷处，因此有显著溪流、冰雪存在的位置，一定是山谷，那么两侧就是山脊，例如：<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china2.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    （图2）<br>
+    <br>
+     图中，紫色箭头为一存留的冰雪（白色），因此紫色标出的一线是一条山谷，那么相应的红色标出的就是一条山脊。<br>
+    <br>
+    在确定山脊后，我们就可以将这一地区的山脊大致走向有了了解。<br>
+    <br>
+    那么下一步，需要开始进行地形匹配。在图1中，B和C点所在的两条平行山脊十分明显，而且具有”人字形“结构。而且从太阳光影关系可以判断，这两条山脊应大致呈现东-西走向，这样才能让一个坡面被完全照亮而另一坡面则背阴。<br>
+    <br>
+    其次，D点所在的是一个山谷间的小平地，中间有一条颜色较深的线，可能为溪流或沟渠。这也是一个较有标志性的地标。<br>
+    <br>
+    再次，E点存在村落，而这一地区村落不多，也是一个较有标志性的地标。<br>
+    <br>
+    因此，使用google map在延庆县西北部山区搜索，不难发现类似的山脉形态：<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china3.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    （图3）<br>
+    <br>
+    图3中请注意，由于国内google map有人为偏移，因此道路和卫星图并不重合，不能作为判读直接证据使用。<br>
+    <br>
+    墙外的同学使用google earth将这一地区三维画后，可见地形吻合：<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china4.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    （图4）  <br>
+    <br>
+    因此通过以上判读，可以确定，图3（图4）中所示位置，即为图1中场馆建设所在位置。5点位置亦可以相互对应<br>
+    <br>
+    那么，人们所关系的和某保护区的关系是怎么样的呢？接下来我们对该地区的区划进行判断。<br>
+    <br>
+    依照该保护区官网（www.shongshan.org.cn）介绍，该保护区位置和区划如下：<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china5.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    （图6） <br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china6.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    （图7）<br>
+    <br>
+     我们知道，保护区通常依照地理特征进行边界和区划划分。一个有意思的细节是：<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china7.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+     （图8）<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china8.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    （图9）<br>
+    <br>
+     保护区北界与这条东西走向的W形山脊的形态，几乎完全一致。<br>
+    <br>
+    另一方面，从官方消息可知，该保护区北界，也是河北省与延庆县的交界线。<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china9.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    （图10） <br>
+    <br>
+    打上同样的标记，可见：<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china10.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    （图11）<br>
+    <br>
+     其中需要提醒的是，大haituo，位于图中A点的北侧约2公里处，即图中的A1点，有实地照片（从haituo山向大haituo望）可证：<br>
+    <br>
+    因此，将保护区区划图和图3进行重叠，可得：<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china11.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    <br>
+     与图11重叠可得：<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china12.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    <br>
+     综上，该速降赛道和保护区核心区一重合。<br>
+    <br>
+    然而，在开头提到的官方文件中，提交审核时却有这么一段意味深长的话：<br>
+    <br>
+    <img src="/news/images/2015/08/201508021022china13.jpg" alt="北京冬奥会赛场将在自然保护区的核心区域建"></p>
+<p><br>
+    <br>
+     所以，呵呵</p>
+</td></tr></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508011323.shtml" target="boxun-mirror">《博讯》杂志：令计划案公布后，令完成发声请看博讯热点：令计划</a>
 </h2>
 <p><tr>
@@ -979,34 +1089,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507230334.shtml" target="boxun-mirror">股市风波“金融市长”黄奇帆入习近平慧眼</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>股市风波“金融市长”黄奇帆入习近平慧眼<br><font color="#000fC0">(<small>博讯北京时间2015年7月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507230334" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社独家】每年一度的中共高层北戴河会议将会“协商”一批重要的人事安排。北京消息人士对本社指，重庆市长黄奇帆可能会成为“协商”名单中的一员，尤其是此轮中国股市崩盘式震荡，习近平迫切需要懂金融的专业高官，帮助打理中国的金融经济，使有“金融市长”之誉的黄奇帆仕途行情看涨。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       “真金不怕火炼”，被喻为“金融市长”的黄奇帆，先后在贺国强、黄镇东、汪洋、薄熙来、张德江、孙政才等六名重庆市委书记的“阴影”下，终显“发光”本色，似乎已列习近平能“上”的名单。<br>
-    <br>
-    作为“上海帮”的重要成员之一，黄奇帆早就深得朱</td></tr></p>
-<p>
-	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
