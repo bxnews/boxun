@@ -19,6 +19,67 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508100129.shtml" target="boxun-mirror">广西博白村民与警激烈冲突掀翻警车多人伤请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>广西博白村民与警激烈冲突掀翻警车多人伤<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508100129" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      广西博白数百村民抗议政府占地建火葬场，与数百警察激烈冲突，多名村民被打伤，一辆警车被掀翻。广西玉林市博白县博白镇护双村，当地政府强占村民山林、土地3000亩，拟在村子附近修建一座火葬场，遭村民集体抵制，曾于6月份围困政府人员进行抗议，之后村民遭当地政府持续打压，先后有8名村民被抓捕。本月5日起，当地政府出动数百警察进村，欲强行动工。<br>
+    <br>
+    8月9日上午，数百村民相约到施工现场抗议，与施工现场的数百警察发生激烈冲突，期间，包括妇女、小孩、老人在内的多名村民遭警察使用铁通、石头、电警棍等砸伤。<br>
+    <br>
+    村民“陌语”发帖说：看看村民手里什么都没拿，而我们的人民警察手里拿着石头使劲扔向村民、小孩，一路拿着电棒追着打。<br>
+    <br>
+    另一名村民“大当家”说：村民们手无寸铁，是吧？而我们的人民警察手持什么？打的村民老至七十多岁，幼至十一二岁。把村民满山遍野强追猛打，场面惨不忍睹。<br>
+    <br>
+    多名村民上传了现场图片到网络，图片显示，大量持长棍、盾牌，携带警犬的警察与村民在施工现场发生冲突，多名妇女、小孩受伤头破血流，在施工现场附近的公路上，有大量持棍棒、戴着口罩的村民在抗议，一辆警车被愤怒的村民掀翻在路边，还有一些施工车辆的玻璃被砸坏。<br>
+    <br>
+    在此前的抗议中，先后有8名村民被抓捕关押，并遭到警察刑讯逼供。<br>
+    <br>
+    村民“沙龙V”发帖说：县政府规划该项目要在今年九月份完工，照目前情形几次施工没有什么进展，担心自己揽下的项目以及获得资金到时是煮熟的鸭子飞了，不由得心急起来，就在之前拍照的人群中挑出了又20多名村民作为抓捕对象。<br>
+    <br>
+    “沙龙V”说：不料在7月22日凌晨3点钟只抓到了6名村民，后来觉得太少又不断地去抓捕，至今共抓了8位无辜村民，还使用了刑供诱逼等方法进行逼供，识字的不愿意在早已杜撰好的口供上签字的就会被粗暴对待。<br>
+    <br>
+    （网络图片）<br>
+    <img src="/news/images/2015/08/201508100129china1.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"><p><br>
+    <img src="/news/images/2015/08/201508100129china2.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
+<p><br>
+    <img src="/news/images/2015/08/201508100129china3.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
+<p><br>
+    <img src="/news/images/2015/08/201508100129china4.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
+<p><br>
+    <img src="/news/images/2015/08/201508100129china5.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
+<p><br>
+    <img src="/news/images/2015/08/201508100129china6.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
+<p><br>
+    <img src="/news/images/2015/08/201508100129china7.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
+<p><br>
+    <img src="/news/images/2015/08/201508100129china8.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
+<p><br>
+    <img src="/news/images/2015/08/201508100129china9.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508100129" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201508090913191.jpg http://upload.bx.tl/news/temp13/201508090913192.jpg http://upload.bx.tl/news/temp13/201508090913193.jpg http://upload.bx.tl/news/temp13/201508090913194.jpg http://upload.bx.tl/news/temp13/201508090913441.jpg http://upload.bx.tl/news/temp13/201508090913442.jpg http://upload.bx.tl/news/temp13/201508090913443.jpg http://upload.bx.tl/news/temp13/201508090913444.jpg http://upload.bx.tl/news/temp13/201508090913471.jpg--> 820129       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508070200.shtml" target="boxun-mirror">北戴河来鸿：军情大改组总参二三部合并</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北戴河来鸿：军情大改组总参二三部合并<br><font color="#000fC0"><small>(博讯北京时间2015年8月07日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508070200" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       【博闻社独家】前天本社透露江泽民在北戴河的一些情况，有网民批评本社为江涂脂抹粉，质疑有政治目的甚至是编造。其实博闻社自创立即开宗明义：不党不群，中立公正，是其是，非其非，不管姓江姓胡姓习，概莫能外。今天又收到北戴河来鸿，这回的料也够猛，本编辑不敢藏掖，拿出来与大家</p>
+<p>
+	<small> ============== 3天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508021022.shtml" target="boxun-mirror">北京冬奥会赛场将在自然保护区的核心区域建</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -1060,35 +1121,6 @@
 <b></p>
 <p>
 	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507250514.shtml" target="boxun-mirror">周本顺落马内幕:服侍周永康介入令计划公子案请看博讯热点：令计划</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>周本顺落马内幕:服侍周永康介入令计划公子案<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507250514" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【博</td></tr></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507240943.shtml" target="boxun-mirror">胡锦涛撇清和令计划关系江泽民将去北戴河请看博讯热点：令计划</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>胡锦涛撇清和令计划关系 江泽民将去北戴河<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507240943" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_7505.html">博闻社独家</a>】中共元老万里遗体7月22日在京火化。习近平、李克强、张德江、刘云山、王岐山、张高丽、胡锦涛等到八宝山革命公墓送别。而江泽民在外地送花圈表示哀悼，没有亲自送别万里，有个别媒体称江泽民“不妙”，更有传言称令计划是江泽民安排在胡锦涛身边的卧底。《博讯》杂志5月号曾披露，令计划通过收买、控制江泽民的司机等手段，监视江泽民，因此，有关令计划是“江泽民安排卧底”的说法是谣言。而博讯也在2014年12月指出，胡锦涛对令计划、周永康等相关事件不知情，以上信息应该是有人搅局。在令计划公子车祸后，博讯曾披露，车祸事件对胡锦涛隐瞒，事后胡锦涛很生气。<br>
-    <br>
-    博闻社获悉，胡锦涛高调露面送别万里，意在撇清和令计划的关系。而江泽民未露面，也并不是“出了问题”，相反，江泽民目前在上海，预计下周会启程去北戴河。中共每年一次的北戴河会议仍未召开，而江泽民近几年每年都在这个高度敏感和重要的会议期间到北戴河“度假”，巧合的是，2014年北戴河会议期间也有江泽民身体出状况的传闻，博讯当时报道，江泽民在北戴河，还下水游泳。中共退休前国家领导人到北戴河，自然让外界认为是“干政”，但博闻社了解到，随着习近平权力的稳固，江泽民话语权已经大不如前。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507240943" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4190943       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
 </p>
 <table>
     <tr>
