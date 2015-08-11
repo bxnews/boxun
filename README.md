@@ -46,7 +46,7 @@
     <br>
     博</td></tr></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508100129.shtml" target="boxun-mirror">广西博白村民与警激烈冲突掀翻警车多人伤请看博讯热点：突发事件</a>
 </h2>
