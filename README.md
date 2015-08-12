@@ -55,7 +55,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508111345.shtml" target="boxun-mirror">北戴河来鸿：经济形势严峻高层弥漫悲观气氛</a>
 </h2>
