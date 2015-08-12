@@ -19,6 +19,44 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508121211.shtml" target="boxun-mirror">中新社记者投书明报捅鲁玮传蔡名照是幕后请看博讯热点：令计划</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中新社记者投书明报捅鲁玮 传蔡名照是幕后<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508121211" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     明报发表题为“网络大总管鲁炜被举报”的报道，引起关注，有媒体推测鲁玮要玄。博讯据熟悉北京政情的人士透露，京官估计个个都有被举报，看点是为什么发到了明报。更值得关注的是，署名“锺仕”的记者是来自中新社或者新华社在北京的记者，该记者多次为明报投稿。京城记者放这种消息，一定是得到上级的授意。消息人士称，这是新华社社长蔡名照的指使。博讯曾多次曝光蔡名照和令计划的密切关系，博讯近日获悉，蔡名照是宣传系统将要拿下的老虎之一，此举很可能是蔡名照的最后一击。<br>
+    <br>
+     明报报道称，有关中央网信办兼国信办主任鲁炜的负面消息近日在京城流传。消息人士透露，鲁炜被人举报涉嫌严重违纪违法，且确有实据。举报鲁炜的相关资料，在前年底中央第二巡视组进驻新华社时即已收到。而中纪委亦收到对鲁炜的举报资料。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    明报的新闻稿件重提鲁玮的「人奶宴」等负面新闻，报道还指，鲁炜主掌的国信办，虚化了国务院新闻办此前对互联网的管制权；而网信办以「国平」为笔名的写作班子，频频给外界「国家评论」的错觉。由于内地传统媒体几乎都已进军新媒体领域，鲁炜对传媒的影响力，某种程度上也削弱了中宣部的权威。 <br>
+    <br>
+    最后一段似乎透露出中宣部对鲁玮的不满。消息人士表示，鲁玮一直受到最高层的信任和重视，因此，其仕途不会受“举报”传闻的影响。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508121211" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4411211       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508111345.shtml" target="boxun-mirror">北戴河来鸿：经济形势严峻高层弥漫悲观气氛</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -950,35 +988,6 @@
     <br>
     --
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507261234" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3281234       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507260443.shtml" target="boxun-mirror">广州白云机场疑有乘客带汽油火机企图在机舱纵火</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>广州白云机场疑有乘客带汽油火机企图在机舱纵火<br><font color="#000fC0">(<small>博讯北京时间2015年7月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507260443" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <div align="center">
-<br>
-    <img src="/news/images/2015/07/201507260443china1.jpg" alt="广州白云机场疑有乘客带汽油火机企图在机舱纵火"><p><br>
-    </p>
-</div>
-<br>
-    <br>
-    博讯报道，新浪微博认证为民航自媒体的 @航空物语 26日凌晨发布消息称，白云机场1架飞机舱内出现烟雾，导致滑行道被占用，目前有消防车停在跑道上。有网友称，该航班为深航ZH9648台州飞广州，机上有人带汽油和打火机，在舱内点火，并有刀，已被制服；航班报了mayday（紧急事件信号），做了乘客的紧急撤离。<br>
-    <br>
-    后续起飞航班延误，有延误航班上的乘客报告说，远处的消防车仍然在跑道上。<br>
-    <br>
-    博讯新闻网将更新后续报道，敬请留意。<br>
-    <br>
-    -
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507260443" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507251242551.jpg--> 3100443       
 <hr>
 <table width="620"><tr><td>
 <b></p>
