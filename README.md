@@ -94,6 +94,52 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508132202.shtml" target="boxun-mirror">北戴河来鸿：「意义超前朝」习办演练下月习奥会</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北戴河来鸿：「意义超前朝」 习办演练下月习奥会<br><font color="#000fC0">(<small>博讯北京时间2015年8月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508132202" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】北戴河会期进入尾声，中共大佬们名义在度假，实则不停在「磋商」党国大事。尤其是依山傍海的那栋戒备森严的0号别墅，这两晚灯火通明，习近平和他的智囊们在为下月出访美国举行「习奥会」进行最后的演练。为了让习这次对美的国事访问影响力超过前两任总书记，习班子几乎是「豁出去」了。<br>
+    知情者向本社透露，早在七月份，习近平就亲自审定了由外交部与美方共同确定了习奥会和习访美大致的行程安排，但最近一个月中美之间发生不少新情况，南海争端、网络安全、人民币汇率调整等，都有可能成为习奥会的新话题。为策万全，习敦促中办会同外交部、军方和商务部等，与美方密切协调。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       据了解，网路安全、南海争端和人权问题，为近年来横亘在中美之间的三座大山；为营造习近平美国之行的良好氛围，中方已经在人权问题上，向美方示好并且做出让步，其中包括放宽某些政治异见人士的监控、准许他们出国、旅游等。南海问题，军方已暂停了一些太明显的填海工程。<br>
+    <br>
+    中国外长王毅早前已就习奥会安排与美国务卿克里商谈确定<br>
+    中国外长王毅早前已就习奥会安排与美国务卿克里商谈确定<br>
+    不料北戴河会议期间半路杀出个程咬金，美媒忽然热炒令计划的胞弟令完成的事情，证实令完成藏身美国，并且携中共绝密资料有意向美方投诚，迫使美国政府不得不就事件表态。本社曾披露，中方早前曾派团队去美国「拆弹」，想游说令完成回国，惜未成事。让中方始料未及的是，美媒竟然在节骨眼炒作此事，“令”习近平访美蒙上不明朗的一层阴影。<br>
+    <br>
+    雪上加霜的是，美国前国务卿希拉莉.克林顿的「电邮门」事件未了，近日，美国国务卿克里又声称，中方确实可以「随时查阅」其私人电邮；再度挑起舆论对中国网络黑客的关注。尽管中方矢口否认，但美方已放狠话，要对中国官方主导的骇客行为采取报复行动。<br>
+    <br>
+    就在中美网路大战一触即发之际，中方又另外扣响了货币战争的板机―-主动大幅贬值人民币；此举虽动机是为了救国内经济，但人民币汇率涉及众多方面，尤其是美方，一直批评中方控制汇率，现在人民币突然贬值，美方已表示高度关注，但如何应战未知，美国会不会在习到访时拿这个做话题，为难习，尚未可知。<br>
+    <br>
+    北戴河来鸿透露，习近平的金秋美国之旅原本目标明确：争取达到1979年中国改革开放总设计师邓小平访美、开创中美关系新局面的效果；影响力必须全面超越前总书记江泽民、上任总书记胡锦涛对美国的国事访问。而且这是美国总统奥巴马任期内最后一次在白宫款待习近平，要为下任美国总统以更高规格款待习打下基础。<br>
+    <br>
+    今夜，也许是习近平在北戴河的最后一夜；但该亮的灯一直会亮到天明。今夜，北戴河有人无法入眠；因为下月登场的习奥会注定是貌合神离，旧结未解，又添新乱，为了万无一失，习大大和助手们，只好少睡一点，多下功夫准备。<br>
+    <br>
+    <strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）<br>
+     
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508132202" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2402202       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508130134.shtml" target="boxun-mirror">天津滨海新区发生猛烈爆炸，大批伤者等待救援</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -968,32 +1014,6 @@
 <br>    <img src="/news/images/2015/07/201507282123china1.jpg" alt="高瑜狱中病情恶化，被要求解聘律师和认罪"><br>    </div>
 <br>    知名媒体人苏雨桐今天在推特上发布了一份手书的律师会见高瑜的会见记录，记录显示，7月28日，尚宝军律师会见了高瑜，获悉高瑜刚刚因为病情恶化到安贞医院进行了体检。发现结果非常不乐观：脖子一侧有很多淋巴结，另一侧有白色肿块，医生无法确诊是否为恶性肿瘤，需要进行活体检查。心血管一处明显堵塞，高老师有心梗史，医生认为已经现心梗痕迹。<br><br>    会见记录还显示：1.国保天天提审高瑜，要求她认罪并许以“放人”“想办法让你出去”等虚假承诺；2.要求高瑜解除与莫少平尚宝军两位律师的代理关系。高瑜认为两位律师专业且辩护有力，不愿接受当局不合理的要求。<br>  <br>    苏雨桐同时还呼吁“紧急营救”高瑜。“请各位紧急联系各国际机构、政府驻华使馆，营救随时有生命危险的高瑜。”<br>    <br>    -<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507282123" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/28)--> <!--bodyend-->       
            (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507280521161.jpg--> 1082123       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507282231.shtml" target="boxun-mirror">中电国际发布公告称，李小琳辞任所有职务请看博讯热点：李鹏家族</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中电国际发布公告称，李小琳辞任所有职务<br><font color="blue" size="2">请看博讯热点：<a href="/hot/lipeng.shtml">李鹏家族
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月28日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="/news/images/2015/07/201507282231china1.jpg" alt="中电国际发布公告称，李小琳辞任所有职务"><p><br>
-    <br>
-    博讯据中国电力国际发展有限公司消息，中国电力国际7月28日晚间发布公告称，李小琳辞任本公司执行董事、董事局主席、董事局辖下执行委员会主席及首席执行官职务。<br>
-    <br>
-    公告称，王炳华接任董事局主席，余兵接任总裁。<br>
-    <br>
-    此前李小琳未列名中电投和国家核电技术公司新整并的国家电力集团要职，被认为是被边缘化。调任新单位大唐集团后只排第3，未分管具体业务。博讯此前报道过，李鹏家族包括李小琳因贪腐问题已遭调查，并被限制出境。<br>
-    <br>
-    -
- [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507280626321.jpg--> 3932231       
-</p>
 <hr>
 <table width="620"><tr><td>
 <b></p>
