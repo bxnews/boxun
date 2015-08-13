@@ -19,6 +19,91 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/editorial/2015/08/201508130138.shtml" target="boxun-mirror">博讯网就转载李和平律师妻子文章被传唤的声明请看博讯热点：白色恐怖</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>博讯网就转载李和平律师妻子文章被传唤的声明<br><font color="blue" size="2">请看博讯热点：<a href="/hot/national_terror.shtml">白色恐怖
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=editorial201508130138" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart--> <center><font size="4"><b>博讯新闻网就转载王峭岭女士文章的声明</b></font></center>
+<br>
+    <br>
+     我们留意到北京搴旗律师事务所李国蓓律师以网络形式公开致送的致“博讯网”律师函（全文附后）。博讯新闻网（即律师函中的“博讯网”）就转载王峭岭女士文章一事，作出如下声明： 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    1.博讯新闻网转载的《天津，继续寻找李和平律师》及王峭岭女士以原告身份起诉新华通讯社、人民日报社等九名被告名誉权纠纷案的《民事起诉书》，均是博讯新闻网从第三方渠道获取，忠于原文。<br>
+    <br>
+    2.博讯新闻网高度关注王峭岭女士及其先生李和平律师的遭遇及目前的处境。我们认为，在李和平律师被强迫失踪至今下落不明的情况下，王峭岭女士依正常途径寻找丈夫，并将过程公开，以及因名誉权受到侵害而起诉新华通讯社、人民日报社等九名被告，合情合理合法。<br>
+    <br>
+    3.博讯新闻网每天刊发、转发很多署名文章，也时常转发中共领导人习近平、公安部长郭声琨等官员的讲话、指示，天津公安以博讯刊发相关文章而传唤王峭岭女士，荒唐到不可理喻，我们强烈谴责中国司法当局对王峭岭女士进行刑事传唤。如果以博讯网刊发当事人文章为由传唤当事人，天津公安是否也要传唤习近平和郭声琨？我们强烈谴责对包括李和平律师在内的中国维权律师群体的违法传唤、关押，近期的行为是中国法制的严重倒退。<br>
+    <br>
+    博讯新闻网<br>
+    2015年8月12日<br>
+    <br><center><font size="4"><b> 北京搴旗律师事务所律师函</b></font></center>
+<br>
+    <br>
+    （2015）搴律函字第0812号<br>
+    <br>
+    致“博讯网”：<br>
+        北京搴旗律师事务所李国蓓律师受王峭岭女士委托，就王峭岭女士因中国天津市公安局河西分局警方称其文章《天津，继续寻找李和平律师》和王峭岭女士以原告身份起诉新华通讯社、人民日报社等九名被告名誉权纠纷案的《民事起诉书》一文，被境外网站“博讯网”转载，天津警方以涉嫌“寻衅滋事”为由对王峭岭女士进行刑事传唤，讯问“博讯网”的转载行为并限制人身自由达5小时一事特发表如下声明：<br>
+    <br>
+        1、据警方所述，你“博讯网”是境外网站，因我国境内无法登陆“博讯网”查询是否确实转载了前述文章，对此，受托律师既无法判断转载行为是否真实存在，也无法委托公证机构取证。<br>
+    <br>
+        2、王峭岭女士因其丈夫李和平律师于2015年7月10日被警方从家中带走后，至本律师发函之日止，警方尚未给付王峭岭女士任何法律文书，其委托刑事辩护律师找寻李和平、委托民事诉讼律师起诉九被告新闻侵权均是在法律框架之内，绝无挑衅、滋事之意。<br>
+    <br>
+        3、《天津，继续寻找李和平律师》和诉九被告新闻侵权《民事起诉书》作者均非王峭岭女士，但文章内容与王峭岭女士的合法权益有重大关联。<br>
+    <br>
+        4、《天津，继续寻找李和平律师》和诉九被告新闻侵权《民事起诉书》均首次发表在中国境内的合法网站上，内容是王峭岭女士委托律师依法维权客观情况的真实再现，无任何丑化他人的言论。<br>
+    <br>
+        基于上述理由，本律师受王峭岭女士之托，敬告“博讯网”：<br>
+    <br>
+        1、如“博讯网”确有转载行为存在，促请你网转载内容忠于原文，并于见本律师函后即刻向中国警方澄清事实，以免因你网转载失真（如有）行为导致王峭岭女士继续背负“寻衅滋事”之嫌疑。<br>
+    <br>
+        2、如王峭岭女士因你网的转载行为后续遭受刑事追责，希望你网能在第一时间给予客观评价和高度关注，以促进中国警方充分保障王峭岭女士在被采取强制措施期间的合法权益。<br>
+    <br>
+    因博讯网境外地址不详，本律师函以网络形式公开致送。<br>
+    <br>
+    特此致函！<br>
+    <br>
+    北京搴旗律师事务所<br>
+    <br>
+    李国蓓律师<br>
+    <br>
+    2015年08月12日
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=editorial201508130138" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1150138       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508130134.shtml" target="boxun-mirror">天津滨海新区发生猛烈爆炸，大批伤者等待救援</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>天津滨海新区发生猛烈爆炸，大批伤者等待救援<br><font color="#000fC0"><small>(博讯北京时间2015年8月13日 综合报道)</small></font>
+</center>
+            <!--bodystart-->               <br>    博讯报道，当地时间8月12日晚11时许，天津滨海新区发生至少多次猛烈爆炸，据开发区应急办透露，爆炸系天津港瑞海危险品物流仓库。天津消防消息称，天津滨海新区第五大街与跃进路交叉口的一处集装箱码头发生爆炸，发生爆炸的是集装箱内的易燃易爆物品。新华社消息，爆炸喷发火球同时引发周边多家企业二次爆炸。事故已致至少数百人受伤，目前附近各大医院人员爆满，大量人员受伤等待救援，尚无遇难报告。<br><br>    天津市民称，11时30分许，东北方向出现明亮红光，此后一声巨响，约三秒后感受到强烈冲击波。十秒钟以后，火光更大更亮，又一声巨响后迎来更强大的冲击波，天上腾起了一片白色的蘑菇云。另有市民反映，一股气浪直接冲碎了玻璃，整栋楼都晃了一下，震感特别强烈。另据网友“愚大象”称，附近小区家中的门被震掉了好几个，巨大的冲浪、火光。<br><br>    天津消防消息称，8月12日23:30左右，天津滨海新区第五大街与跃进路交叉口的一处集装箱码头发生爆炸，发生爆炸的是集装箱内的易燃易爆物品。现场火光冲天，附近居民能听到巨大的爆炸声，有强烈震感。受伤人员被送往附近医院急救，伤亡情况尚不清楚。<br><br>    据网友称，附近多处建筑物受到爆炸冲击波致门窗等掉落，另由于天降玻璃渣，已致至少数百人受伤。目前附近各大医院人员爆满。天津港口医院工作人员称，截至目前，已送进300至400名伤员，均在急救室内进行紧急处理。目前距爆炸点较近的泰达医院已收治了超过50名伤者，还未见死亡病例，但伤者人数仍在不断增加。天津第五中心医院大夫称“没法统计接受了多少伤员，伤者太多了，很多被高温灼伤的。”<br><br>    微博消息称，在天津塘沽的天滨公寓，有很多伤员需要去医院救治。伤者多在永旺附近，附近泰达医院已经过渡拥挤。网友</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508121211.shtml" target="boxun-mirror">中新社记者投书明报捅鲁玮传蔡名照是幕后请看博讯热点：令计划</a>
 </h2>
 <p><tr>
@@ -914,85 +999,6 @@
 <b></p>
 <p>
 	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507280425.shtml" target="boxun-mirror">重大人事:传王沪宁调任上海书记、肖钢调重庆</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>重大人事:传王沪宁调任上海书记、肖钢调重庆<br><font color="#000fC0">(<small>博讯北京时间2015年7月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507280425" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社】对中共极为重要的北戴河会议正在召开，署名罗大卫的微博发出信息称，北戴河会议确认，韩正调往北京，任中央深改办公室主任、中央政策研究室主任。王沪宁调上海任上海市委书记。<br>
-    <br>
-     该微博还称，肖钢不再担任证监会主席，调任重庆市委副书记（正部级），下届调出中央委员。重庆市委副书记张国清升任重庆市长，重庆市长黄启帆调任证监会主席。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    对有关任命传闻，消息人士对本社表示，以上传闻基本属实。博闻社在7月15日曾披露，韩正已经确定往国务院任职。原报道指出北京市长郭金龙也会调离，本社最新获悉，郭金龙可能暂时不动。<br>
-    <br>
-    本社日前还披露，江泽民本周将启程去北戴河。<br>
-    <br>
-    博闻社最新独家：<a href="http://bowenpress.com/news/bowen_8079.html">王岐山又动太子党奶酪 高铁取消赠矿泉水内幕曝光</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507280425" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3640424       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507261234.shtml" target="boxun-mirror">李小琳遁入佛门求大师为父李鹏祈福延寿请看博讯热点：李鹏家族</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>李小琳遁入佛门求大师为父李鹏祈福延寿<br><font color="blue" size="2">请看博讯热点：<a href="/hot/lipeng.shtml">李鹏家族
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507261234" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【博闻社独家】中国藏传佛教著名高僧金刚法王・满自喜日布扎赤・仁波切，前天(24日)在微信透露，前总理李鹏的大女儿李小琳专程到内蒙古寺院，拜访赤・仁波切上师，并和大师一同参拜佛祖。而本社获悉，李小琳已遁入佛门受戒，并获赐法号“格丹央金措姆”，她此程参拜大师，是求大师为其病危的父亲李鹏祈福延命的。<br>
-    <br>
-     凤凰网昨日转发了赤.仁波切大师有关李小琳参拜的微信，以及大师所发的多张照片，但很快就删除。报道没指李小琳是在哪个寺庙参拜、为父亲祈福，但大唐集团官网的报道显示，李小琳23日在大唐国际托克托发电公司调研，该公司位于内蒙古，显示她参拜的有可能是位于内蒙锡林郭勒盟境内的哈音哈尔瓦广益寺，赤・仁波切大师是该寺的荣誉主持。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-     消息人士对本社透露，李小琳此程参拜赤.仁波切上师，是求大师为她的父亲李鹏祈福延寿的，同时，已出家受戒并有法号“格丹央金措姆”的李小琳，也和大师一道，亲自向佛祖上香、献哈达和叩头，为父亲李鹏祈福。本社早前曾披露，李鹏现已病危住院，院方至少已两次下病危通知。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_7802.html">博闻社报道全文</a><br>
-    <br>
-    --
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507261234" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3281234       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 18天前</small>
 </p>
 <table>
     <tr>
