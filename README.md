@@ -19,6 +19,44 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508142205.shtml" target="boxun-mirror">数百人死亡天津大爆炸涉张高丽和何立峰请看博讯热点：天津大爆炸</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>数百人死亡 天津大爆炸涉张高丽和何立峰<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tianjinbaozha.shtml">天津大爆炸
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508142205" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】天津大爆炸致至少数百人死亡、700多人受伤，其中70多人危殆，举世震惊。本社获悉，出事化工品仓库之所以可绕过环保评测违规在居民区设立，因其背后是中共政治局现任常委张高丽的亲家所控制，由天津滨海新区前书记、现为国家发改委副主任河立峰特批。另据透露，大爆炸是由一辆汽车引发的，怀疑有人为因素，公安部己派员调查是否涉嫌恐怖阴谋。<br>
+    <br>
+     知情者对本社指，发生爆炸的天津滨海新区瑞海公司危险品仓库，所属公司法人董事长等，表面上都是一些普通的自然人，但真正掌控者是中共政治局常委、常务副总理张高丽的亲家，张高丽主政天津其间，其亲家获得在该区设立化工品仓库的许可，而该许可不但绕开了环保部门的审评监监，甚至连环保部门置喙的可能性都没有，因为它是由时任天津滨海新区书记、现国家发改委副主任何立峰直接批准的，而何立峰的弟弟一直在天津承建工程项目。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    <a href="http://bowenpress.com/news/bowen_11859.html">博闻社全文报道</a><br>
+    <br>
+    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508142205" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4302205       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2015/08/201508130138.shtml" target="boxun-mirror">博讯网就转载李和平律师妻子文章被传唤的声明请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr>
@@ -1002,23 +1040,6 @@
     消息指，5100矿泉水背后绝非一般利益集团，而是由中共太子党利用中国高铁疯狂</td></tr></p>
 <p>
 	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507282123.shtml" target="boxun-mirror">高瑜狱中病情恶化，被要求解聘律师和认罪</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>高瑜狱中病情恶化，被要求解聘律师和认罪<br><font color="#000fC0"><small>(博讯北京时间2015年7月28日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507282123" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       <br>    博讯获释，被判入狱7年、年龄高达71岁的前记者高瑜终获准全面身体检查，但医生说发现高瑜有淋巴肿瘤，暂时还没确定是良性还是恶性，另医生说她心脏血管“有明显堵塞。” 据高瑜律师说，高瑜被要求解聘律师和认罪。<br>    <div align="denter">
-<br>    <img src="/news/images/2015/07/201507282123china1.jpg" alt="高瑜狱中病情恶化，被要求解聘律师和认罪"><br>    </div>
-<br>    知名媒体人苏雨桐今天在推特上发布了一份手书的律师会见高瑜的会见记录，记录显示，7月28日，尚宝军律师会见了高瑜，获悉高瑜刚刚因为病情恶化到安贞医院进行了体检。发现结果非常不乐观：脖子一侧有很多淋巴结，另一侧有白色肿块，医生无法确诊是否为恶性肿瘤，需要进行活体检查。心血管一处明显堵塞，高老师有心梗史，医生认为已经现心梗痕迹。<br><br>    会见记录还显示：1.国保天天提审高瑜，要求她认罪并许以“放人”“想办法让你出去”等虚假承诺；2.要求高瑜解除与莫少平尚宝军两位律师的代理关系。高瑜认为两位律师专业且辩护有力，不愿接受当局不合理的要求。<br>  <br>    苏雨桐同时还呼吁“紧急营救”高瑜。“请各位紧急联系各国际机构、政府驻华使馆，营救随时有生命危险的高瑜。”<br>    <br>    -<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507282123" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/7/28)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507280521161.jpg--> 1082123       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 18天前</small>
 </p>
 <table>
     <tr>
