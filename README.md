@@ -57,7 +57,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508142205.shtml" target="boxun-mirror">数百人死亡天津大爆炸涉张高丽和何立峰请看博讯热点：天津大爆炸</a>
 </h2>
