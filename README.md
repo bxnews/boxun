@@ -19,6 +19,46 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508151501.shtml" target="boxun-mirror">天津大爆炸：至少1400死失踪700多请看博讯热点：天津大爆炸</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>天津大爆炸：至少1400死 失踪700多<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tianjinbaozha.shtml">天津大爆炸
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月15日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508151501" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】本社得到独家内部消息：天津大爆炸死亡人数不完全统计已达1400多。<br>
+    <br>
+     据来自武警高层的消息显示，武警消防从现场以及第一线医院得到的数字截至到本社15日中午发稿时确认死亡已达1400多人，失踪700多人。消息人士指，这个数字不包括防化部队处理尸体的数字，以及远离现场的医院的死亡数字。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    防化部队对尸体处理过程回避消防以及治安现场警察。<br>
+    <br>
+    由于大量的人员失踪，官方公布的数字仅仅限定于消防部队统计医院的数字计五十多人，引起了众多下落不明者家属的愤怒，昨天天津市政府第四次新闻发布会遭到愤怒的死难者家属的冲击，不得不中断。<br>
+    <br>
+    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508151501" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1421501       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508142205.shtml" target="boxun-mirror">数百人死亡天津大爆炸涉张高丽和何立峰请看博讯热点：天津大爆炸</a>
 </h2>
 <p><tr>
@@ -1005,39 +1045,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507290207.shtml" target="boxun-mirror">王岐山又动太子党奶酪:高铁取消赠矿泉水内幕请看博讯热点：中共太子党</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>王岐山又动太子党奶酪:高铁取消赠矿泉水内幕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/taizidang.shtml">中共太子党
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507290207" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】7月26日，中国铁路总公司通告，全国各高铁站即日起将不再向乘坐动车组列车的旅客提供免费矿泉水(即西藏5100矿泉水)。这意味着铁道部从2008年开始推行的这项表面益旅客、实为与车票捆绑式销售的霸道做法告终。外界有所不知的是，5100矿泉水的背后其实是前铁道部长刘志军送给中共太子党集团的一道隐形大餐，现在这道美味大餐终被中纪委书记王岐山叫停。<br>
-    <br>
-     从2008年铁道部推出免费赠送“西藏5100冰川矿泉水”开始，内地就有媒体不断起底，欲探究铁道部如此慷慨之举背后的秘密，但全都浅偿辄止，欲言又罢。即便前天宣告停止供应，内地媒体兴高彩烈之余，仍不敢踢穿事件背后的黑幕，官方则解释称，原因是全国高铁网络逐步建成，各车站服务设备和配套设施的完善，车站和列车能够满足旅客的饮水需求，因此不再赠送矿泉水。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    本社获悉，铁道部和后来的铁路总公司在”免费赠送西藏5100矿泉水”，其实费用都加在车票之中，这一做法其实早被举报到中纪委，原铁道部长刘志军落马后当局没有马上叫停，是源于当局对铁道部为发展高铁欠下数万亿巨债的考量，以及权衡5100矿泉水公司背后利益集团的问题。随着反腐败的深入，解决高铁5100矿泉水背后的腐败问题逼在眉睫，由王岐山拍板作出决定。<br>
-    <br>
-    消息指，5100矿泉水背后绝非一般利益集团，而是由中共太子党利用中国高铁疯狂</td></tr></p>
 <p>
 	<small> ============== 17天前</small>
 </p>
