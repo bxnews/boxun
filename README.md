@@ -55,7 +55,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508151501.shtml" target="boxun-mirror">天津大爆炸：至少1400死失踪700多请看博讯热点：天津大爆炸</a>
 </h2>
