@@ -19,6 +19,44 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508161452.shtml" target="boxun-mirror">天津爆炸涉惊天阴谋？常委原定去塘沽行程取消请看博讯热点：天津大爆炸</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>天津爆炸涉惊天阴谋？常委原定去塘沽行程取消<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tianjinbaozha.shtml">天津大爆炸
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508161452" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】天津大爆炸威力巨大，仿如3级地震，死伤达数千。事件至今已4天，但中共七常委无一露面，以至外界传猜纷纭，甚至有“常委出事”之说。本社独家获悉，中共常委确有去塘沽考察之计划，但原计划是8月16日，而非发生爆炸的12日。但大爆炸亦足以震惊高层，中办紧急取消七常委所有外出考察安排。习近平就爆炸事件多次做批示。当局已成立调查组进行秘密调查。另外，再有消息证实本社早前独家披露，肇事仓库背后老板，与现中共常委张高丽有关，且涉前常委李瑞环。<br>
+    <br>
+     来自北京的知情者告诉本社，按照中办原计划，至少有一名常委会在北戴河会议后，去天津塘沽考察，但时间是16日，想不到12日发生大爆炸，而且是爆炸加剧毒化学物共同作用。负责安保的中办中央警卫局大为震惊，已立即取消七常委所有外出考察安排及活动，以至七常委的外出活动至今未能恢复正常。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社全文报道：<a href="http://bowenpress.com/news/bowen_12408.html">点击这里</a><br>
+    <br>
+    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508161452" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4101452       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508151501.shtml" target="boxun-mirror">天津大爆炸：至少1400死失踪700多请看博讯热点：天津大爆炸</a>
 </h2>
 <p><tr>
@@ -1002,51 +1040,6 @@
 <b></p>
 <p>
 	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2015/07/201507290057.shtml" target="boxun-mirror">9月习近平访美：刘云山唱反调暗斗？</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>9月习近平访美：刘云山唱反调暗斗？<br><font color="#000fC0">(<small>博讯北京时间2015年7月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201507290057" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     自官方7月21日表示习近平与奥巴马热线敲定9月访美以来，目前行程安排已经大致底定，北京方面在美国本地也开始营造习近平访美前的合作气氛，但是国内却有人在唱反调。<br>
-    7月26日喉舌媒体《人民日报》在5版整版刊文谈“美国民主遭遇困境”，这是该系列文章的第三篇，不过内容雷同前两篇，唯一不同的是这次4位作者全部换上“外国专家”。<br>
-     文章大批“美国政治运作被金钱左右”所编造的论证主要是，受资金支持的美国选举，有钱才能竞选议员 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br><center><font size="4"><b>正文</b></font></center>
-<br>
-    <br>
-    自官方7月21日表示习近平与奥巴马热线敲定9月访美以来，目前行程安排已经大致底定，北京方面在美国本地也开始营造习近平访美前的合作气氛，但是国内却有人在唱反调。<br>
-    7月26日喉舌媒体《人民日报》在5版整版刊文谈“美国民主遭遇困境”，这是该系列文章的第三篇，不过内容雷同前两篇，唯一不同的是这次4位作者全部换上“外国专家”。<br>
-    文章大批“美国政治运作被金钱左右”所编造的论证主要是，受资金支持的美国选举，有钱才能竞选议员，政治体系的本质并非一人一票，而是财富主导，在这一制度下，美国民众的收入和财富逐渐减少，政客却变得越来越富有。文章晒出数据称，美国立法机构中有69%是坐拥超过100万美元资产的人，美国国会大部分议员也大都拥有超过100万美元的资产。<br>
-    文章指责美国议会是大资本家的俱乐部，那么美国议员相比中共两会代表，谁的钱更多？<br>
-    今年5月媒体资料，官员不论，单说富豪，在富豪榜追踪的1,200名中国富豪当中，有203人是中共本届两会的代表或委员，创历史纪录，据公开资料，他们的净资产达2.9万亿元人民币，比奥地利一年的经济产出还高，其中36位顶级富豪个人财富就超过1.2万亿元人民币，比越南2014年GDP还多。<br>
-    无论从富豪总量、比例还是个人财富和资产总量来看，中共两会的富豪与美国比较，有过之而无不及。美国排行居首位的最富有议员，个人财产仅相等于中共代表委员富豪榜的第166位，反观排在头18位的中共两会代表，净资产超过了美国国会全部535名议员、最高法院9名大法官、奥巴马政府所有内阁部长加起来的财富总合。<br>
-    媒体数据表明，中共两会富豪云集，美国国会只能堪比中共村委会，个人资产排行前十大的美国官员或议员，不要说与中共“老虎”级的贪官相比，还远不如中共一个北戴河科级小官家藏现金上亿、黄金堆积如山，广东一镇干部身家20亿坐拥上百套高档房产。<br>
-    如果说美国是金钱政治，那么中共政权下的小官巨贪是不是金钱政治？军队与官场盛行的买官卖官是不是金钱政治？就连公立医院也能出现“双百院长”的连锁贪腐是不是金钱政治？除了金钱政治，中共还是权色、钱色政治，为了升官，不仅给上司送钱，还要为上司拉皮条甚至把人妻奉上，大老虎徐周薄令新四人帮，哪个不是情妇动辄数十成百，男女通吃，互相交集。<br>
-    各国政治都免不了金钱的侵袭，但美国等民主国家同时还要受全国民众、独立的媒体与司法等最大程度的约束，权力是有清晰边界的。就算金钱左右政治美国好歹左右出一个民众安居乐业的超级强国，而中共一党专制左右出什么国度？民众举牌要求官员公布财产都会被抓，警察光天化日绑架律师，媒体当法官，法院当冤案制造机，股市当绞肉机，也当两派权斗叫牌的赌场。<br>
-    股市涨跌是市场正常调节，但千股涨、千股跌的瞬间暴涨暴跌，是非理性非正常的对冲。时间座标显示，反腐做多，股市就被做空，媒体数据分析，做空者不是美国等境外势力，做空者就在国内，只有大机构、大集团、大家族才有能力。<br>
-    人民日报去操心美国民主是否遭遇困境，是否同样心力去监督、挖掘、真相报导股灾的内幕？当然不敢。而在网路时代，人民日报还用几十年前的宣传套路愚民，而且明知这份报纸民众现在根本不看，就算有人看也是为了吐槽拍砖而来，但人民日报还是要抛砖引砖，不是因为太弱智，是“上面”有令，不得不从，不仅黑习近平，还连带黑了奥巴马影射他是“花钱当选”。而这“上面”，想必少不了在股灾后父子两人都被盯梢的刘云山。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201507290057" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
-<!----> 2360057       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 18天前</small>
 </p>
 <table>
     <tr>
