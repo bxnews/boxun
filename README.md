@@ -19,6 +19,48 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508180426.shtml" target="boxun-mirror">北戴河会议：反腐获共识清除周令徐郭余党经济有分歧</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北戴河会议：反腐获共识清除周令徐郭余党 经济有分歧<br><font color="#000fC0">(<small>博讯北京时间2015年8月18日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508180426" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】为期13天的中共北戴河会议如期落幕，本栏目今天也要告别读者了。作为北戴河来鸿最后一期，本编辑自然要尽量「刮」多点料，完美告别。来鸿也不负众望，提供了北戴河结局的一些情况。<br>
+    据透露，在近半个月的北戴河「例行度假」中，政要们在如何进一步推进反腐败问题上取得高度共识，一致同意要从组织上和思想上，清理周永康、令计划、徐才厚、郭伯雄在党政军的影响；今年下半年和明年，要对上述四人的余党同伙进行彻底清理，保证党、政、军队伍的纯洁性，以及党中央的绝对领导权。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       消息指，会上各位政要还就习近平总书记提议的一份省部级以上「能上能下」的名单进行了商议，其中包括「加强意识形态和宣传思想工作的领导」的建议，根据建议，五中全会前后中央要对宣传系统的负责人作调整，其目的是「进一步加强党对思想战线的领导」。<br>
+    <br>
+    本社曾披露，习近平可能要对中央宣传部门的负责人作调整，中宣部长刘奇葆有可能会换马。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_12777.html">博闻社报道全文</a><br>
+    <br>
+    <p><strong>博闻强记、洞察中国</strong>：<br>
+    <br>
+    关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508180426" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4910426       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508171309.shtml" target="boxun-mirror">白宫警告北京在美非法「猎狐」轰派间谍赴美威胁当事人请看博讯热点：令计划</a>
 </h2>
 <p><tr>
@@ -1034,23 +1076,6 @@
     <br>
     -
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507301314" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3361314       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 19天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507302316.shtml" target="boxun-mirror">郭伯雄被开除党籍移送司法，验证博讯此前报道</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>郭伯雄被开除党籍移送司法，验证博讯此前报道<br><font color="#000fC0"><small>(博讯北京时间2015年7月30日 综合报道)</small></font>
-</center>
-            <!--bodystart-->       <br>    据新华网报道，7月30日，中共中央政治局会议审议并通过中央军委纪律检查委员会《关于对郭伯雄组织调查情况和处理意见的报告》，决定给予郭伯雄开除党籍处分，对其涉嫌严重受贿犯罪问题及线索移送最高人民检察院授权军事检察机关依法处理。<br>      <br>   早在7月10日，博讯就曾<a href="/news/gb/china/2015/07/201507101409.shtml">作出报道</a>，“经高层再三研判，决定向全党公布郭伯雄案，公布时间会在八一建军节之前。其主要罪名是卖官及贪腐。”完全得到验证。<br>    <br>    以下是新华网报道全文：<br>    <br>    <div align="center"><b>中共中央决定给予郭伯雄开除党籍处分<br>    将郭伯雄涉嫌犯罪问题及线索移送司法机关依法处理</b></div>
-<br>    <br>    新华网北京7月30日电 7月30日，中共中央政治局会议审议并通过中央军委纪律检查委员会《关于对郭伯雄组织调查情况和处理意见的报告》，决定给予郭伯雄开除党籍处分，对其涉嫌严重受贿犯罪问题及线索移送最高人民检察院授权军事检察机关依法处理。<br>    <br>    2015年4月9日，中共中央依照党的纪律条例，决定对郭伯雄进行组织调查。经查，郭伯雄利用职务便利，为他人谋取职务晋升等方面利益，直接或通过家人收受贿赂，严重违反党的纪律，涉嫌受贿犯罪，情节严重，影响恶劣。<br>    <br>    会议认为，严肃查处郭伯雄严重违纪涉嫌违法犯罪问题，充分体现了以习近平同志为总书记的党中央推进全面从严治党、依法治军从严治军的坚定政治决心，表明了党中央坚定不移惩治腐败的坚强意志。全党全军必须充分认清当前党风廉政建设和反腐败斗争形势依然严峻复杂，坚定不移把党风廉政建设和反腐败斗争引向深入。任何人不论权力大小、职务高低，只要触犯党纪国法，都要严肃查处，绝不姑息，绝不手软。<br>    <br>    会议强调，各级党委要加强对党员干部特别是高中级领导干部的教育、管理、监督，加强反腐倡廉法规制度建设，发挥法规纪律的约束作用，推动形成不敢腐、不能腐、不想腐的有效机制，不断取得党风廉政建设和反腐败斗争新成效。各级领导干部必须牢固树立马克思主义世界观、人生观、价值观，自觉加强党性修养，严守党的政治纪律和政治规矩，树立正确的权力观、地位观、利益观，带头践行“三严三实”要求，带头遵守廉洁自律各项规定，带头反对腐败，自觉经受住各种诱惑和考验，永葆党的先进性和纯洁性。<br>    <br>    会议强调，人民军队始终是党和人民信赖的队伍。改革开放以来，在党中央坚强领导下，国防和军队建设取得了显著成就，人民军队在维护国家主权、安全、发展利益，保卫人民安定生活等方面作出了重大贡献。各地区各部门要一如既往关心和支持军队建设改革，维护和促进军政军民团结，为实现强军目标提供坚强保障。军队各级要深入抓好思想政治建设和作风建设，认真贯彻落实全军政治工作会议精神，坚持思想领先，坚持练兵备战，坚持严字当头，坚持以身作则，继承发扬党和军队光荣传统和优良作风，永葆人民军队政治本色，确保高度稳定和集中统一，不断凝聚强军兴军的强大正能量。<br>    <br>    -<br><br> [博讯综合报道]  <!--(Modified on 2015/7/30)-->  <!--(Modified on 2015/7/30)--> <!--bodyend-->       
-                  
-           (博讯 boxun.com) <br><!----> 4672316       
 <hr>
 <table width="620"><tr><td>
 <b></p>
