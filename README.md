@@ -77,7 +77,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 20分钟前</small>
+	<small> ============== 25分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508180426.shtml" target="boxun-mirror">北戴河会议：反腐获共识清除周令徐郭余党经济有分歧</a>
 </h2>
