@@ -19,6 +19,66 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508200829.shtml" target="boxun-mirror">习近平掌权1000天中国面临内焦外困境地请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平掌权1000天 中国面临内焦外困境地<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508200829" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社评述】近年来，无论是大国外交还是周边外交，中国都发生了巨大的变化，从“韬光养晦”转向了“有所作为”。但在国际社会看来，中国外交开始具有了“自信性”，甚至“进攻性”。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       执政1000天以后，习近平让人们对他有了更全面的了解。曾与习近平接触过的一位亚洲高级外交人士称，尽管习近平在国内是经济改革的拥护者，但他的外交政策却被充满民族主义和军事象征意义的“中国梦”所主导。<br>
+    <br>
+    在这种思维的主导下，中国外交一系列咄咄逼人的动作让周边世界感到不适应。<br>
+    <br>
+    首先是中共防空识别区的划定。中共防空识别区是中共面临巨大的危机下，转嫁危机的办法。事实上中共的本意并不是针对美国和日本，而是针对国内危机，激起民众狂热的爱国主义。不过一些中国问题专家认为，习近平对中国在亚洲的领土主张的追求是为了满足中国人民解放军的要求以及巩固他掌握权力。<br>
+    <br>
+    对此，周边国家反映强烈。2013年12月日本和东盟在东京发表联合声明，称将依照公认的国际法原则确保地区的飞行自由与民航安全。虽未直言，但声明针对的对像依然是中共的“东海防空识别区”。此外，日本和东盟还在会上就地区局势和安全发表联合声明。声明中说，双方将增强合作，并依照公认的国际法原则确保地区的飞行自由与民航安全。<br>
+    <br>
+    与此同时，为了加强日本与东盟各国的联系，日本首相安倍晋三在会上宣布，将在未来五年内向东盟提供200亿美元的政府援助。而亚投行在北京成立以后，日本更是加强与东盟各国的联系，今年8月日本方面承诺，将向菲律宾提供价值20亿美元的经济援助，帮助后者改善铁路交通状况。其实，不光是菲律宾，越南当前也是日本方面拉拢的目标之一。依照日越方面先前达成的官方发展协助项目，日本总计打算向越南捐赠3艘巡逻艇，以增强后者的海上监控能力。<br>
+    <br>
+    其次，中共的外交手法不但让周边国家感到不安，更是让美国感到失望。失望的来由就是习氏违背了“投桃报李”的国际法对等法则。<br>
+    <br>
+    2012年2月13至17日，习近平以国家副主席的身分对美国进行正式访问。在这五天内，美国副总统拜登一直和习近平形影不离。据悉拜登向习近平透露了中共内部一些人足以让习近平下台甚至身亡的信息。<br>
+    <br>
+    此前的2月6日，原重庆公安局局长王立军刚从薄熙来的监控下，逃进美国驻成都领事馆，提出要政治庇护并向美国情报机构提供不少“意外”且非常有价值的材料，包括曝光了周永康与薄熙来企图推翻习近平的政变计画。这些情报为习近平执掌政权以后，清除周、薄、令的势力打下基础。<br>
+    <br>
+    从这个角度看，拜登和习近平之所以私交好，就是因为当习近平面临危险时，拜登曾经帮过他，变相救了习的命。<br>
+    <br>
+    然而，在此后不久美国需要中国帮助的时候，习近平却采取让美国感到失望的态度。具体表现在中国政府对泄露美国国家安全局关于棱镜计划监听项目的秘密文档的斯诺登事件的处理上。<br>
+    <br>
+    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
+<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_12881.html">博闻社全文</a><br>
+    <br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508200829" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4500829       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508180426.shtml" target="boxun-mirror">北戴河会议：反腐获共识清除周令徐郭余党经济有分歧</a>
 </h2>
 <p><tr>
@@ -1007,80 +1067,6 @@
 <b></p>
 <p>
 	<small> ============== 20天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/07/201507301314.shtml" target="boxun-mirror">女权漂流瓶：接力转发，呼吁释放女权/人权律师请看博讯热点：白色恐怖</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>女权漂流瓶：接力转发，呼吁释放女权/人权律师<br><font color="blue" size="2">请看博讯热点：<a href="/hot/national_terror.shtml">白色恐怖
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年7月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201507301314" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    各位朋友：<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       自7月9日以来，全国有12名人权律师被抓捕和羁押，尽管中央电视台等官方媒体已经公开“宣判”这些人维权有罪，但对家属和公众而言，这些人其实是失踪状态，因为没有人知道他们关押在何处，会见律师等合法权利也无从谈起。同时，有近200人被约谈警告不得参与声援。<br>
-    <br>
-    人权律师是女权活动的重要同盟力量。例如此次被抓捕的王宇律师，曾经代理多起妇女权利案件，如江西九江教师性侵女童案、海南万宁小学校长性侵女学生案、湖南益阳教师猥亵学生案。去年“消除性别暴力十六日”活动期间，她曾去教育部约谈和送去建议信，向教育部倡导校园性侵应对机制。例如李和平律师曾代理山东临沂计生案；王全璋律师曾代理“90后”河北女生卞晓辉“我要见父亲”案，等等。<br>
-    <br>
-    作为女权主义者，我们关注各种发生在这片土地上的、有关妇女权利的问题。王宇律师等人权律师秉承依照法律、捍卫人权、追寻公义的理念，为女权奔走无私无畏。当她们遭遇违反程序的秘密羁押，当她们的家人被非人道对待，我们也不想袖手旁观。<br>
-    <br>
-    如果你收到这封信，希望你可以将联署信发到微博、微信等任何你能接触到的社交媒体，同时发送给至少3-5个朋友，并鼓励她们也传播到社交媒体上。如果你觉得合适，也可以在联署信中署名和留言，联署方式：将“姓名/昵称、身份、地域、留言”发送到邮箱 wubeiaiziyou@gmail.com；2、点击进入：<a href="http://goo.gl/forms/2lmBOVFzng">http://goo.gl/forms/2lmBOVFzng</a> （此为谷歌表单，需翻墙）。<br>
-    <br>
-    联署信详见下文。<br>
-    <br>
-    <b>请立即释放王宇等女权/人权律师</b><br>
-    <br>
-    我们是一群来自全国各地的女权主义者，我们关注并为中国的妇女权利而行动。<br>
-    <br>
-    我们惊闻，长期关注妇女权利的律师王宇及其丈夫在2015年7月9日凌晨被警察带走。家属至今未收到刑事拘留通知书，指控罪名及羁押地点未知，辩护律师无法介入。而王宇的父母和孩子处于警方监控之下，其16岁的儿子包蒙蒙先后警方传唤四次，几近崩溃。包蒙蒙被警方警告：不得参与父母被抓之事，不得为父母聘请律师，禁止出境留学。<br>
-    <br>
-    迄今为止，全国共有12名律师被采取刑事强制措施、1名律师失踪， 其中，仅有1名被允许与律师会见，其他11名律师均与外界完全隔绝，秘密羁押最长的已达14天。<br>
-    <br>
-    与此同时，来自全国24省的118名律师、102名其他人士被警方强制约谈或者传唤，要求不得在网络声援王宇等人。数字还在增加当中。<br>
-    <br>
-    中央电视台、最高人民法院微博、人民日报等官方媒体则违反《刑事诉讼法》的规定，在法院没有判决之前，即将案件公开定罪通报。<br>
-    <br>
-    我们反对此案相关的各种侵权与滥权行为，我们要求以法治纠正权力的荒唐。这不仅与这一个案件相关，而是关系到人权包括妇女人权的普遍实现。<br>
-    <br>
-    在此，我们强烈呼吁：<br>
-    <br>
-    立即无条件释放所有被拘律师及其他相关人士<br>
-    确保被拘人士享有所有法定权利，包括但不限于立即通知其家属以及允许律师会见；<br>
-    确保没有人被羁押在秘密场所中且遭遇酷刑；<br>
-    停止没有证据的污名化报道；<br>
-    社会各界共同持续关注此次事件的后续进展。<br>
-    <br>
-    来自各地的女权主义者<br>
-    2015年7月30日<br>
-    <br>
-    联署方式：<br>
-    <br>
-    1、将“姓名/昵称、身份、地域、留言”发送到邮箱wubeiaiziyou@gmail.com<br>
-    <br>
-    2、点击进入：<a href="http://goo.gl/forms/2lmBOVFzng">http://goo.gl/forms/2lmBOVFzng</a>  （此为谷歌表单，需翻墙）<br>
-    <br>
-    -
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201507301314" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3361314       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 21天前</small>
 </p>
 <table>
     <tr>
