@@ -61,7 +61,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508200829.shtml" target="boxun-mirror">习近平掌权1000天中国面临内焦外困境地请看博讯热点：习近平观察</a>
 </h2>
