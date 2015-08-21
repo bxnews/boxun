@@ -63,6 +63,16 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508211311.shtml" target="boxun-mirror">毛泽东前侍卫长抓四人帮决策者之一汪东兴病逝</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>毛泽东前侍卫长抓四人帮决策者之一汪东兴病逝<br><font color="#000fC0">(<small>博讯北京时间2015年8月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508211311" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     【博闻社独家】本社从北京获悉，原中共中央副主席、毛泽东前侍</td></tr></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508211050.shtml" target="boxun-mirror">官方公布危险品达2,500吨网民质疑老百姓没死和失踪？</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -835,29 +845,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 19天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508011323.shtml" target="boxun-mirror">《博讯》杂志：令计划案公布后，令完成发声请看博讯热点：令计划</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>《博讯》杂志：令计划案公布后，令完成发声<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508011323" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     今天香港上市的《博讯》杂志8月号发出重磅独家消息：令计划案19日晚宣布后，令完成在7月25日从加州隐居的地点和友人通电话，他的谈话可能是过去一年多，唯一一次直接对事态发表看法。<br>
-    <br>
-    虽然他的友人并非采访，但《博讯》辗转获得的对话内容非常重要。《博讯》杂志选择几个要点公布，例如，中纪委是否真的派出人员来美国和令完成谈判？令完成在美身份是否合法？他有无掌握政治核炸弹？如果他手中握有机密，打算怎么使用？他对官方有关令计划的指控有什么看法？<br>
-    <img src="/news/images/2015/08/201508011323china1.jpg" alt="《博讯》杂志：令计划案公布后，令完成发声"><p><br>
-    另外，博讯出版社8月初将推出《刺杀马英九》一书，敬请关注。<br>
-    <img src="/news/images/2015/08/201508011323china2.jpg" alt="《博讯》杂志：令计划案公布后，令完成发声"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508011323" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201507312115011.jpg http://upload.bx.tl/news/temp13/201507312115012.jpg--> 3911323       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 20天前</small>
 </p>
 <table>
     <tr>
