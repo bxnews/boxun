@@ -19,6 +19,46 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508221121.shtml" target="boxun-mirror">紫禁城来鸿:习近平对达赖喇嘛比胡锦涛还狠？请看博讯热点：西藏问题</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>紫禁城来鸿:习近平对达赖喇嘛比胡锦涛还狠？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tibet.shtml">西藏问题
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508221121" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】这几天(其实不止这几天)习近平一定忙翻天了。今天，北京要举行世界田径锦标赛，虽说是体育赛事，但今晚在国家体育场举行的开幕式习大大要可能要出席；赛事一结束紧跟着就是举世瞩目的9.3大阅兵，那是今年内政的大事。阅兵一完，又是西藏自治区成立50周年庆典，中央要派人去祝贺，没准习大大又要亲自赴雪域高原，给藏族人民一个惊喜；随后是对美国的国事访问，那又是今年外交的压轴，习老大已下旨，“只许成功不许失败”。<br>
+    <br>
+     说到西藏自治区50周年庆典，可能外面不够重视，毕竟离首都中心远了点，再说了，五个自治区经常有这个庆典那个庆典，犯不着大惊小怪。不过，本编辑近日收到紫禁城来鸿却提醒，千万莫忽视西南雪域高原的事情，最近习大大有一个关于西藏的内部讲话，对达赖喇嘛和藏独分裂问题，首次发出如此强烈的内部警告，使不少听训者都有点出乎意外。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    来鸿透露，习近平的这个有关西藏的讲话，对达赖喇嘛充满了敌意和仇视，将藏区过去一段时期出现的僧侣自焚现象，归罪于达赖喇嘛分裂集团。将达赖喇嘛及其争取西藏自由的藏人归类为“外国反华势力”，包括民运、东突、法轮功等。而且称西藏的分裂活动策略在改变，出现新的手法甚至是暴力倾向。<br>
+    <br>
+    来鸿透露，习大大在讲话中，使用了“达赖所剩的时日已不多了”这样的表述，似乎显示中共用“斗命长”的战略来对付达赖，已见到曙光。习大大还要求驻藏军队要积极配合地方维稳，加大西藏重点敏感地区的维稳力度，要坚决打击敌对势力的破坏活动。并指示藏区军队参与的维稳要转入常态，部队要树立长期作战的思想。<br>
+    <br>
+    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508221121" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 161121       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508220505.shtml" target="boxun-mirror">数千老兵集结广东阳江千警戒备封锁全城请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -780,17 +820,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508070200.shtml" target="boxun-mirror">北戴河来鸿：军情大改组总参二三部合并</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北戴河来鸿：军情大改组总参二三部合并<br><font color="#000fC0"><small>(博讯北京时间2015年8月07日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508070200" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       【博闻社独家】前天本社透露江泽民在北戴河的一些情况，有网民批评本社为江涂脂抹粉，质疑有政治目的甚至是编造。其实博闻社自创立即开宗明义：不党不群，中立公正，是其是，非其非，不管姓江姓胡姓习，概莫能外。今天又收到北戴河来鸿，这回的料也够猛，本编辑不敢藏掖，拿出来与大家</p>
-<p>
-	<small> ============== 15天前</small>
 </p>
 <table>
     <tr>
