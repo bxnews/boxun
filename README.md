@@ -57,7 +57,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508220505.shtml" target="boxun-mirror">数千老兵集结广东阳江千警戒备封锁全城请看博讯热点：突发事件</a>
 </h2>
@@ -113,7 +113,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508210512.shtml" target="boxun-mirror">令完成首度开腔中纪委动员女儿来美说服请看博讯热点：令计划</a>
 </h2>
