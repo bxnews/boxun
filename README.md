@@ -73,7 +73,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10分钟前</small>
+	<small> ============== 15分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508210512.shtml" target="boxun-mirror">令完成首度开腔中纪委动员女儿来美说服请看博讯热点：令计划</a>
 </h2>
