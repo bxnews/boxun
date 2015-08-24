@@ -19,6 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/finance/2015/08/201508240223.shtml" target="boxun-mirror">央行内部消息：明年人民币兑美元恐贬至8请看博讯热点：人民币升值</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>央行内部消息：明年人民币兑美元恐贬至8<br><font color="blue" size="2">请看博讯热点：<a href="/hot/renminbi.shtml">人民币升值
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201508240223" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508221121.shtml" target="boxun-mirror">紫禁城来鸿:习近平对达赖喇嘛比胡锦涛还狠？请看博讯热点：西藏问题</a>
 </h2>
 <p><tr>
@@ -770,56 +781,6 @@
     博</td></tr></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508100129.shtml" target="boxun-mirror">广西博白村民与警激烈冲突掀翻警车多人伤请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>广西博白村民与警激烈冲突掀翻警车多人伤<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508100129" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      广西博白数百村民抗议政府占地建火葬场，与数百警察激烈冲突，多名村民被打伤，一辆警车被掀翻。广西玉林市博白县博白镇护双村，当地政府强占村民山林、土地3000亩，拟在村子附近修建一座火葬场，遭村民集体抵制，曾于6月份围困政府人员进行抗议，之后村民遭当地政府持续打压，先后有8名村民被抓捕。本月5日起，当地政府出动数百警察进村，欲强行动工。<br>
-    <br>
-    8月9日上午，数百村民相约到施工现场抗议，与施工现场的数百警察发生激烈冲突，期间，包括妇女、小孩、老人在内的多名村民遭警察使用铁通、石头、电警棍等砸伤。<br>
-    <br>
-    村民“陌语”发帖说：看看村民手里什么都没拿，而我们的人民警察手里拿着石头使劲扔向村民、小孩，一路拿着电棒追着打。<br>
-    <br>
-    另一名村民“大当家”说：村民们手无寸铁，是吧？而我们的人民警察手持什么？打的村民老至七十多岁，幼至十一二岁。把村民满山遍野强追猛打，场面惨不忍睹。<br>
-    <br>
-    多名村民上传了现场图片到网络，图片显示，大量持长棍、盾牌，携带警犬的警察与村民在施工现场发生冲突，多名妇女、小孩受伤头破血流，在施工现场附近的公路上，有大量持棍棒、戴着口罩的村民在抗议，一辆警车被愤怒的村民掀翻在路边，还有一些施工车辆的玻璃被砸坏。<br>
-    <br>
-    在此前的抗议中，先后有8名村民被抓捕关押，并遭到警察刑讯逼供。<br>
-    <br>
-    村民“沙龙V”发帖说：县政府规划该项目要在今年九月份完工，照目前情形几次施工没有什么进展，担心自己揽下的项目以及获得资金到时是煮熟的鸭子飞了，不由得心急起来，就在之前拍照的人群中挑出了又20多名村民作为抓捕对象。<br>
-    <br>
-    “沙龙V”说：不料在7月22日凌晨3点钟只抓到了6名村民，后来觉得太少又不断地去抓捕，至今共抓了8位无辜村民，还使用了刑供诱逼等方法进行逼供，识字的不愿意在早已杜撰好的口供上签字的就会被粗暴对待。<br>
-    <br>
-    （网络图片）<br>
-    <img src="/news/images/2015/08/201508100129china1.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"><p><br>
-    <img src="/news/images/2015/08/201508100129china2.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508100129china3.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508100129china4.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508100129china5.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508100129china6.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508100129china7.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508100129china8.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508100129china9.jpg" alt="广西博白村民与警激烈冲突掀翻警车多人伤"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508100129" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201508090913191.jpg http://upload.bx.tl/news/temp13/201508090913192.jpg http://upload.bx.tl/news/temp13/201508090913193.jpg http://upload.bx.tl/news/temp13/201508090913194.jpg http://upload.bx.tl/news/temp13/201508090913441.jpg http://upload.bx.tl/news/temp13/201508090913442.jpg http://upload.bx.tl/news/temp13/201508090913443.jpg http://upload.bx.tl/news/temp13/201508090913444.jpg http://upload.bx.tl/news/temp13/201508090913471.jpg--> 820129       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
