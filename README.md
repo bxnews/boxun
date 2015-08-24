@@ -28,7 +28,7 @@
 </center>
                 <!--bodystart-->      【博</td></tr></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508221121.shtml" target="boxun-mirror">紫禁城来鸿:习近平对达赖喇嘛比胡锦涛还狠？请看博讯热点：西藏问题</a>
 </h2>
