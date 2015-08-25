@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508252306.shtml" target="boxun-mirror">病危中李鹏不忘9.3登天安门观礼阅兵请看博讯热点：李鹏家族</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>病危中李鹏不忘9.3登天安门观礼阅兵<br><font color="blue" size="2">请看博讯热点：<a href="/hot/lipeng.shtml">李鹏家族
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508252306" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】纪念抗日战争胜利70周年9.3大阅兵万事具备，如箭待发。中共高层正就阅兵主席台观礼的安排进行协商，包括胡锦涛、江泽民等前任领导人如何安排等。已病危卧床的前总理李鹏被征询意见时表示，如身体许可“希望和同志们一起</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2015/08/201508240223.shtml" target="boxun-mirror">央行内部消息：明年人民币兑美元恐贬至8请看博讯热点：人民币升值</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -752,35 +764,6 @@
 <b></p>
 <p>
 	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508111345.shtml" target="boxun-mirror">北戴河来鸿：经济形势严峻高层弥漫悲观气氛</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北戴河来鸿：经济形势严峻高层弥漫悲观气氛<br><font color="#000fC0">(<small>博讯北京时间2015年8月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508111345" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】北戴河会议会期过半，本编辑收到最新的北戴河来鸿显示，经济成为今年北戴河会议的中心话题，原因是各种数据表示，今年的经济速度很可能无法达标，经济恶化远比外界所知严重；这使得本来阳光明媚的北戴河，竟弥漫着一股悲观气氛。<br>
-    <br>
-     北戴河会议上，与会政要和元老们收到上半年的一些主要数据显示，中国经济形势十分险峻，第一季度经济增长率跌至7%，为六年来最低。第二季度在一系列刺激措施下，经济增速虽保持7%，但面临增长乏力的问题。上半年中国的投资增速已跌至近15年来最低点。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    本社获悉，近日银行系统内部一个高层会议上，与会的内地银行界大佬们罕见地对今年经济形势表现悲观，认为中国经济恶化程度，远比外界看到的还严重，尽管前两季经济增速勉强保住了7%的增长底线，但由于是竭尽全力之下所得，故下半年「保七」更难，全年经济增速为7%的目标，有可能会泡汤。<br>
-    <br>
-    博</td></tr></p>
-<p>
-	<small> ============== 15天前</small>
 </p>
 <table>
     <tr>
