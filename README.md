@@ -54,7 +54,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508270016.shtml" target="boxun-mirror">中信证券总经理被抓背后剑指中共常委刘云山请看博讯热点：刘云山</a>
 </h2>
@@ -94,7 +94,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508252306.shtml" target="boxun-mirror">病危中李鹏不忘9.3登天安门观礼阅兵请看博讯热点：李鹏家族</a>
 </h2>
