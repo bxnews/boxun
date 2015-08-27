@@ -19,6 +19,83 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508270357.shtml" target="boxun-mirror">玩残大阅兵刘云山、习近平暗中较劲请看博讯热点：刘云山</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>玩残大阅兵 刘云山、习近平暗中较劲<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liuyunshan.shtml">刘云山
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508270357" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】随着9.3大阅兵日近，各项准备工作基本就绪，唯一令习李恼火的就是股市，一点不给面子，中央再度对银行「降准」甚至连全民养老金都搭进去了，依然跌个不停，与阅兵应有的气氛背道而行，情急之下只好下令「抓人」，周二晚上一气宣布拘查三个机构10多位相关人士，图杀一儆百，警告那些在股市不知天高地厚的搞事者。<br>
+    <br>
+      知情者指，习近平本来提出这次纪念活动取名叫「中国人民反法西斯战争胜利70周年」，既与国际同轨，也避开表面上针对日本的意思，但刘云山把持的宣传部门硬用「抗日」称谓，而且把宣传做足了，想改也无法改，现在只好两个叠加，叫做「纪念中国人民抗日战争暨世界反法西斯战争胜利70周年阅兵式」，又长又拗口不说，最终还是成为日本等相关国家拒绝参加的借口。或许，让习近平在大阅兵中威信扫地，正是刘背后的意思。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    <a href="http://bowenpress.com/news/bowen_14916.html">博闻社报道全文</a><br>
+    <br>
+        <br>
+    <br>
+        <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508270357" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4100357       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508270016.shtml" target="boxun-mirror">中信证券总经理被抓背后剑指中共常委刘云山请看博讯热点：刘云山</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中信证券总经理被抓 背后剑指中共常委刘云山<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liuyunshan.shtml">刘云山
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508270016" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】内地股市大溃堤，虽当局倾尽全力打救，甚至注入养老基金但仍无济于市，本周沪市跌破3000点，逾亿股民怒气冲天几近爆煲。当局情急之下昨日一口气宣布拘查三个部门有关人士，其中最受关注是中信证券总经理徐刚。本社获悉，徐刚的顶头上司正是中信证券副董事长刘乐飞，刘乐飞的父亲即中共现任政治局常委刘云山。<br>
+    <br>
+     新华社8月25日晚间发布消息称，中信证券徐某等8人涉嫌违法从事证券交易活动已被公安机关要求协助调查。财新记者今日确认，中信证券徐某即为中信证券执行委员会委员、董事总经理徐刚。而中信内部人士对本社透露，徐刚的上司正是去年3月上任中信副董事长的刘乐飞，也就是刘云山的大公子。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    去年3月18日，中国证监会层批覆同意刘乐飞出任中信证券副董事长。在刘乐飞赴任该职务后，中信证券副董事长职位也由一变二，分别为殷可和刘乐飞担任。年仅41岁的刘乐飞也是中信证券目前董事会中最年轻的一位。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_14807.html">博闻社报道全文</a><br>
+    <br>
+    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508270016" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3550016       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508252306.shtml" target="boxun-mirror">病危中李鹏不忘9.3登天安门观礼阅兵请看博讯热点：李鹏家族</a>
 </h2>
 <p><tr>
@@ -716,54 +793,6 @@
 <b></p>
 <p>
 	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508130134.shtml" target="boxun-mirror">天津滨海新区发生猛烈爆炸，大批伤者等待救援</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>天津滨海新区发生猛烈爆炸，大批伤者等待救援<br><font color="#000fC0"><small>(博讯北京时间2015年8月13日 综合报道)</small></font>
-</center>
-            <!--bodystart-->               <br>    博讯报道，当地时间8月12日晚11时许，天津滨海新区发生至少多次猛烈爆炸，据开发区应急办透露，爆炸系天津港瑞海危险品物流仓库。天津消防消息称，天津滨海新区第五大街与跃进路交叉口的一处集装箱码头发生爆炸，发生爆炸的是集装箱内的易燃易爆物品。新华社消息，爆炸喷发火球同时引发周边多家企业二次爆炸。事故已致至少数百人受伤，目前附近各大医院人员爆满，大量人员受伤等待救援，尚无遇难报告。<br><br>    天津市民称，11时30分许，东北方向出现明亮红光，此后一声巨响，约三秒后感受到强烈冲击波。十秒钟以后，火光更大更亮，又一声巨响后迎来更强大的冲击波，天上腾起了一片白色的蘑菇云。另有市民反映，一股气浪直接冲碎了玻璃，整栋楼都晃了一下，震感特别强烈。另据网友“愚大象”称，附近小区家中的门被震掉了好几个，巨大的冲浪、火光。<br><br>    天津消防消息称，8月12日23:30左右，天津滨海新区第五大街与跃进路交叉口的一处集装箱码头发生爆炸，发生爆炸的是集装箱内的易燃易爆物品。现场火光冲天，附近居民能听到巨大的爆炸声，有强烈震感。受伤人员被送往附近医院急救，伤亡情况尚不清楚。<br><br>    据网友称，附近多处建筑物受到爆炸冲击波致门窗等掉落，另由于天降玻璃渣，已致至少数百人受伤。目前附近各大医院人员爆满。天津港口医院工作人员称，截至目前，已送进300至400名伤员，均在急救室内进行紧急处理。目前距爆炸点较近的泰达医院已收治了超过50名伤者，还未见死亡病例，但伤者人数仍在不断增加。天津第五中心医院大夫称“没法统计接受了多少伤员，伤者太多了，很多被高温灼伤的。”<br><br>    微博消息称，在天津塘沽的天滨公寓，有很多伤员需要去医院救治。伤者多在永旺附近，附近泰达医院已经过渡拥挤。网友</td></tr></p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508121211.shtml" target="boxun-mirror">中新社记者投书明报捅鲁玮传蔡名照是幕后请看博讯热点：令计划</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中新社记者投书明报捅鲁玮 传蔡名照是幕后<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508121211" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     明报发表题为“网络大总管鲁炜被举报”的报道，引起关注，有媒体推测鲁玮要玄。博讯据熟悉北京政情的人士透露，京官估计个个都有被举报，看点是为什么发到了明报。更值得关注的是，署名“锺仕”的记者是来自中新社或者新华社在北京的记者，该记者多次为明报投稿。京城记者放这种消息，一定是得到上级的授意。消息人士称，这是新华社社长蔡名照的指使。博讯曾多次曝光蔡名照和令计划的密切关系，博讯近日获悉，蔡名照是宣传系统将要拿下的老虎之一，此举很可能是蔡名照的最后一击。<br>
-    <br>
-     明报报道称，有关中央网信办兼国信办主任鲁炜的负面消息近日在京城流传。消息人士透露，鲁炜被人举报涉嫌严重违纪违法，且确有实据。举报鲁炜的相关资料，在前年底中央第二巡视组进驻新华社时即已收到。而中纪委亦收到对鲁炜的举报资料。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    明报的新闻稿件重提鲁玮的「人奶宴」等负面新闻，报道还指，鲁炜主掌的国信办，虚化了国务院新闻办此前对互联网的管制权；而网信办以「国平」为笔名的写作班子，频频给外界「国家评论」的错觉。由于内地传统媒体几乎都已进军新媒体领域，鲁炜对传媒的影响力，某种程度上也削弱了中宣部的权威。 <br>
-    <br>
-    最后一段似乎透露出中宣部对鲁玮的不满。消息人士表示，鲁玮一直受到最高层的信任和重视，因此，其仕途不会受“举报”传闻的影响。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508121211" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4411211       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
 </p>
 <table>
     <tr>
