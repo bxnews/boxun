@@ -19,6 +19,53 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508280317.shtml" target="boxun-mirror">习近平打虎指向中宣部人民日报社长情人被抓请看博讯热点：令计划</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平打虎指向中宣部 人民日报社长情人被抓<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508280317" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com">博闻社独家</a>】 北京财新网8月27日透露，人民网副董事长、总裁廖</td></tr></p>
+<p>
+	<small> ============== 5分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508280258.shtml" target="boxun-mirror">解放军改革方案将宣布七大军区变四大战区请看博讯热点：军队高层</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>解放军改革方案将宣布 七大军区变四大战区<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508280258" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com">博闻社独家</a>】本社获悉，盛传已久的中共军队改革方案水落石出，将在北京9.3大阅兵后正式对外宣布。中国军队这次改革堪称是翻天覆地、“脱胎换骨式”的变化，解放军从上到下，从军委总部到连队基层都大变身；涉及军队体制布局、军兵种重组等，以至有军方人士对本社称，改革后解放军“跟美军差不多”了。<br>
+    <br>
+     来自军方的消息透露，军队改革方案其实今年初已经中央军委批覆同意，但文件下发后意见反弹比较多，主要是高级将领中有不同看法，特别七大军区撤消、战区重组，涉及到众多将领的实际利益。比如，军委四总部要缩编为中央军委机关的内设职能部门(其中总后和总装要合并)，涉及大批将官岗位调整，谁上谁下必将有矛盾。  
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    又比如，几大军区撤消后，新任战区将领将有名无实，他们就象古时的顾命钦差大臣，巡守一方却无调兵遣将的权力，而且他们需到新防地任职，新防地又无法提供原驻地那么好的生活条件，比如原沈阳军区并入东北战区后，新任将领要赴北京任职，但北京却难以提供他们在沈阳的住房标准，故土难舍。<br>
+    <br>
+    “阻力主要在高级军官，但他们的理由都不是反对军队改革，而是希望改革更加顺利。”军方知情者对本社指，在进行大量的思想工作，以及就众多实际问题进行协调，确定解决方向后，习近平拍板决定，在纪念抗日战争胜利及世界反法西斯战争胜利70周年活动结束后，正式启动军队改革。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_15066.html">完整</a>
+</td></tr></p>
+<p>
+	<small> ============== 5分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508270357.shtml" target="boxun-mirror">玩残大阅兵刘云山、习近平暗中较劲请看博讯热点：刘云山</a>
 </h2>
 <p><tr>
@@ -672,127 +719,6 @@
 <b></p>
 <p>
 	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/editorial/2015/08/201508130138.shtml" target="boxun-mirror">博讯网就转载李和平律师妻子文章被传唤的声明请看博讯热点：白色恐怖</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>博讯网就转载李和平律师妻子文章被传唤的声明<br><font color="blue" size="2">请看博讯热点：<a href="/hot/national_terror.shtml">白色恐怖
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=editorial201508130138" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart--> <center><font size="4"><b>博讯新闻网就转载王峭岭女士文章的声明</b></font></center>
-<br>
-    <br>
-     我们留意到北京搴旗律师事务所李国蓓律师以网络形式公开致送的致“博讯网”律师函（全文附后）。博讯新闻网（即律师函中的“博讯网”）就转载王峭岭女士文章一事，作出如下声明： 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    1.博讯新闻网转载的《天津，继续寻找李和平律师》及王峭岭女士以原告身份起诉新华通讯社、人民日报社等九名被告名誉权纠纷案的《民事起诉书》，均是博讯新闻网从第三方渠道获取，忠于原文。<br>
-    <br>
-    2.博讯新闻网高度关注王峭岭女士及其先生李和平律师的遭遇及目前的处境。我们认为，在李和平律师被强迫失踪至今下落不明的情况下，王峭岭女士依正常途径寻找丈夫，并将过程公开，以及因名誉权受到侵害而起诉新华通讯社、人民日报社等九名被告，合情合理合法。<br>
-    <br>
-    3.博讯新闻网每天刊发、转发很多署名文章，也时常转发中共领导人习近平、公安部长郭声琨等官员的讲话、指示，天津公安以博讯刊发相关文章而传唤王峭岭女士，荒唐到不可理喻，我们强烈谴责中国司法当局对王峭岭女士进行刑事传唤。如果以博讯网刊发当事人文章为由传唤当事人，天津公安是否也要传唤习近平和郭声琨？我们强烈谴责对包括李和平律师在内的中国维权律师群体的违法传唤、关押，近期的行为是中国法制的严重倒退。<br>
-    <br>
-    博讯新闻网<br>
-    2015年8月12日<br>
-    <br><center><font size="4"><b> 北京搴旗律师事务所律师函</b></font></center>
-<br>
-    <br>
-    （2015）搴律函字第0812号<br>
-    <br>
-    致“博讯网”：<br>
-        北京搴旗律师事务所李国蓓律师受王峭岭女士委托，就王峭岭女士因中国天津市公安局河西分局警方称其文章《天津，继续寻找李和平律师》和王峭岭女士以原告身份起诉新华通讯社、人民日报社等九名被告名誉权纠纷案的《民事起诉书》一文，被境外网站“博讯网”转载，天津警方以涉嫌“寻衅滋事”为由对王峭岭女士进行刑事传唤，讯问“博讯网”的转载行为并限制人身自由达5小时一事特发表如下声明：<br>
-    <br>
-        1、据警方所述，你“博讯网”是境外网站，因我国境内无法登陆“博讯网”查询是否确实转载了前述文章，对此，受托律师既无法判断转载行为是否真实存在，也无法委托公证机构取证。<br>
-    <br>
-        2、王峭岭女士因其丈夫李和平律师于2015年7月10日被警方从家中带走后，至本律师发函之日止，警方尚未给付王峭岭女士任何法律文书，其委托刑事辩护律师找寻李和平、委托民事诉讼律师起诉九被告新闻侵权均是在法律框架之内，绝无挑衅、滋事之意。<br>
-    <br>
-        3、《天津，继续寻找李和平律师》和诉九被告新闻侵权《民事起诉书》作者均非王峭岭女士，但文章内容与王峭岭女士的合法权益有重大关联。<br>
-    <br>
-        4、《天津，继续寻找李和平律师》和诉九被告新闻侵权《民事起诉书》均首次发表在中国境内的合法网站上，内容是王峭岭女士委托律师依法维权客观情况的真实再现，无任何丑化他人的言论。<br>
-    <br>
-        基于上述理由，本律师受王峭岭女士之托，敬告“博讯网”：<br>
-    <br>
-        1、如“博讯网”确有转载行为存在，促请你网转载内容忠于原文，并于见本律师函后即刻向中国警方澄清事实，以免因你网转载失真（如有）行为导致王峭岭女士继续背负“寻衅滋事”之嫌疑。<br>
-    <br>
-        2、如王峭岭女士因你网的转载行为后续遭受刑事追责，希望你网能在第一时间给予客观评价和高度关注，以促进中国警方充分保障王峭岭女士在被采取强制措施期间的合法权益。<br>
-    <br>
-    因博讯网境外地址不详，本律师函以网络形式公开致送。<br>
-    <br>
-    特此致函！<br>
-    <br>
-    北京搴旗律师事务所<br>
-    <br>
-    李国蓓律师<br>
-    <br>
-    2015年08月12日
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=editorial201508130138" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1150138       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508132202.shtml" target="boxun-mirror">北戴河来鸿：「意义超前朝」习办演练下月习奥会</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北戴河来鸿：「意义超前朝」 习办演练下月习奥会<br><font color="#000fC0">(<small>博讯北京时间2015年8月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508132202" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】北戴河会期进入尾声，中共大佬们名义在度假，实则不停在「磋商」党国大事。尤其是依山傍海的那栋戒备森严的0号别墅，这两晚灯火通明，习近平和他的智囊们在为下月出访美国举行「习奥会」进行最后的演练。为了让习这次对美的国事访问影响力超过前两任总书记，习班子几乎是「豁出去」了。<br>
-    知情者向本社透露，早在七月份，习近平就亲自审定了由外交部与美方共同确定了习奥会和习访美大致的行程安排，但最近一个月中美之间发生不少新情况，南海争端、网络安全、人民币汇率调整等，都有可能成为习奥会的新话题。为策万全，习敦促中办会同外交部、军方和商务部等，与美方密切协调。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       据了解，网路安全、南海争端和人权问题，为近年来横亘在中美之间的三座大山；为营造习近平美国之行的良好氛围，中方已经在人权问题上，向美方示好并且做出让步，其中包括放宽某些政治异见人士的监控、准许他们出国、旅游等。南海问题，军方已暂停了一些太明显的填海工程。<br>
-    <br>
-    中国外长王毅早前已就习奥会安排与美国务卿克里商谈确定<br>
-    中国外长王毅早前已就习奥会安排与美国务卿克里商谈确定<br>
-    不料北戴河会议期间半路杀出个程咬金，美媒忽然热炒令计划的胞弟令完成的事情，证实令完成藏身美国，并且携中共绝密资料有意向美方投诚，迫使美国政府不得不就事件表态。本社曾披露，中方早前曾派团队去美国「拆弹」，想游说令完成回国，惜未成事。让中方始料未及的是，美媒竟然在节骨眼炒作此事，“令”习近平访美蒙上不明朗的一层阴影。<br>
-    <br>
-    雪上加霜的是，美国前国务卿希拉莉.克林顿的「电邮门」事件未了，近日，美国国务卿克里又声称，中方确实可以「随时查阅」其私人电邮；再度挑起舆论对中国网络黑客的关注。尽管中方矢口否认，但美方已放狠话，要对中国官方主导的骇客行为采取报复行动。<br>
-    <br>
-    就在中美网路大战一触即发之际，中方又另外扣响了货币战争的板机―-主动大幅贬值人民币；此举虽动机是为了救国内经济，但人民币汇率涉及众多方面，尤其是美方，一直批评中方控制汇率，现在人民币突然贬值，美方已表示高度关注，但如何应战未知，美国会不会在习到访时拿这个做话题，为难习，尚未可知。<br>
-    <br>
-    北戴河来鸿透露，习近平的金秋美国之旅原本目标明确：争取达到1979年中国改革开放总设计师邓小平访美、开创中美关系新局面的效果；影响力必须全面超越前总书记江泽民、上任总书记胡锦涛对美国的国事访问。而且这是美国总统奥巴马任期内最后一次在白宫款待习近平，要为下任美国总统以更高规格款待习打下基础。<br>
-    <br>
-    今夜，也许是习近平在北戴河的最后一夜；但该亮的灯一直会亮到天明。今夜，北戴河有人无法入眠；因为下月登场的习奥会注定是貌合神离，旧结未解，又添新乱，为了万无一失，习大大和助手们，只好少睡一点，多下功夫准备。<br>
-    <br>
-    <strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）<br>
-     
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508132202" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2402202       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
 </p>
 <table>
     <tr>
