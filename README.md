@@ -28,7 +28,7 @@
 </center>
                 <!--bodystart-->      【<a href="http://bowenpress.com">博闻社独家</a>】 北京财新网8月27日透露，人民网副董事长、总裁廖</td></tr></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508280258.shtml" target="boxun-mirror">解放军改革方案将宣布七大军区变四大战区请看博讯热点：军队高层</a>
 </h2>
@@ -64,7 +64,7 @@
     <a href="http://bowenpress.com/news/bowen_15066.html">完整</a>
 </td></tr></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508270357.shtml" target="boxun-mirror">玩残大阅兵刘云山、习近平暗中较劲请看博讯热点：刘云山</a>
 </h2>
