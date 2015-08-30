@@ -64,7 +64,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508291016.shtml" target="boxun-mirror">《人民日报》社长杨振武被举报滥日人民</a>
 </h2>
