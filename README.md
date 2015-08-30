@@ -19,6 +19,53 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508301309.shtml" target="boxun-mirror">中共军队改革：军官职业化出台军队势掀“裁官潮”</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共军队改革：军官职业化出台 军队势掀“裁官潮”<br><font color="#000fC0">(<small>博讯北京时间2015年8月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508301309" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】本社日前透露，中共决从在9.3大阅兵后公布并开始推行军队改革方案，这次改革堪称是“脱胎换骨”式，上至军委总部、下至基层部队都涉及，特别是指挥机构大调整让人刮目一新。根据改革方案，军队正式推行军官职业化制度，为此将大幅精减现役军官，新一轮军队干部“转业潮”无可避免。同时，现行的军官服役条例等政策亦会改变。<br>
+    <br>
+     军方消息指，军官职业化是军队改革很重要的一部份，为推行这项改革措施，军队首先要对军官队伍进行一次“大减肥”，大批军官面临被精简退伍，再根据法律确定军官的员额，进行选拔、培养、任命，然后用高薪养起他们，给他们提供长期服役、直至退休的政策保障，服役期间享受各种优惠待遇和社会报偿。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    军队改革方案显示，为军官职业化制度，全军将大幅压缩军官规模，尤其是陆军，现有的18个集团军将被精简优化，降低官兵比例，重新确定军官总员额，确定不同衔级军官比例、不同年龄军官比例、机关基层军官比例、军兵种军官比例，将现行军官粗放的“大进大出”调整为精确设计的“小进小出”。<br>
+    <br>
+     目前，军队连、营、团等军官是有服役年限的，服役一定年限后，如果没有升职，需要转业或退役。建立军官职业化制度后，将延长军官服役年龄，只要愿意继续服役，即使没有到更高的职位，也可以继续服役，军人职业化后，如果原来的军官愿意继续工作，同时又熟悉情况，就可以服役到退休，而不受服役年限的限制。<br>
+    <br>
+    消息指，推行军官职业化将有利于部队稳定，同时也给地方减轻了安排转业部队干部的压力。另外，军官职业化制度实行后，干部服役到退休，不需要地方安排，可给一定的养老金或退休金，借鉴国外的做法，让军人退休后有稳定的生活。<br>
+    <br>
+    军官职业化其实上届军委已开始试行，先后出台了《指挥军官考核评价实施办法》、《参谋军官考核评价实施办法》和《专业技术军官考核评价实施办法》，尤其是专业技术军官，因属专业人员，争议不大，容易推行。现行的士官制度即其一。<br>
+    <br>
+    但对于更大规模的指挥系列、参谋系列的军官推行职业化，因涉及裁军减员及要求政府大幅增加军费等问题，步履维艰。只有习近平上台后，<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_15612.html">博闻社全文报道</a><br>
+    <br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508301309" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1831309       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508291016.shtml" target="boxun-mirror">《人民日报》社长杨振武被举报滥日人民</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -653,46 +700,6 @@
 <b></p>
 <p>
 	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508151501.shtml" target="boxun-mirror">天津大爆炸：至少1400死失踪700多请看博讯热点：天津大爆炸</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>天津大爆炸：至少1400死 失踪700多<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tianjinbaozha.shtml">天津大爆炸
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月15日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508151501" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】本社得到独家内部消息：天津大爆炸死亡人数不完全统计已达1400多。<br>
-    <br>
-     据来自武警高层的消息显示，武警消防从现场以及第一线医院得到的数字截至到本社15日中午发稿时确认死亡已达1400多人，失踪700多人。消息人士指，这个数字不包括防化部队处理尸体的数字，以及远离现场的医院的死亡数字。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    防化部队对尸体处理过程回避消防以及治安现场警察。<br>
-    <br>
-    由于大量的人员失踪，官方公布的数字仅仅限定于消防部队统计医院的数字计五十多人，引起了众多下落不明者家属的愤怒，昨天天津市政府第四次新闻发布会遭到愤怒的死难者家属的冲击，不得不中断。<br>
-    <br>
-    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508151501" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1421501       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
 </p>
 <table>
     <tr>
