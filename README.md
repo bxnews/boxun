@@ -62,6 +62,47 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/08/201508311443.shtml" target="boxun-mirror">当局最担心阅兵战机驾驶员心怀叵测肇事</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>当局最担心阅兵战机驾驶员心怀叵测肇事<br><font color="#000fC0">(<small>博讯北京时间2015年8月31日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508311443" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】北京大阅兵在即，中共举国总动员，全体军警处于特级戒备状态。同时也发动百万北京群众走向街头巷尾监视，勘称草木皆兵。本社独家获悉，本次阅兵对参与者的政治审查达到空前严格的地步，尤其是阅兵活动核心区人员以及空军驾驶员，政审更是要查祖宗八代，当局最担心暗杀、驾机撞天安门等恶性事件。<br>
+    <br>
+     本社获悉，这次参与阅兵人员，至少要进行两次政审，八月底，阅兵总指挥部对所有已经经过严格审查的所有军人、相关工作人员，再次做背景调查。对外国政要警卫及翻译，以及阅兵核心区和宴会现场服务人员的调查堪称波及祖宗八代，发现问题的立即撤换替补。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    来自中南海的消息显示，高层对阅兵最担心的是参加阅兵表演的军人，因为过去两年反贪调查和抓捕的高级军官数以百计，加上还有很多高级将领面临被下课，军队发动政变或刺杀是高层所担心的。此外，过去20年中国社会矛盾重重，冤案频发，不少军人家庭被累及，受累军人生事之心不可不防。<br>
+    <br>
+    消息指，地面阅兵因为是空弹，当局不担心参阅官兵哗变，高层最担心是参阅的近200架各式战机，担心飞机驾驶员心怀叵测，驾机冲撞天安门肇事，因此对所有参加阅兵的飞行员政审极其严格。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_15883.html">博闻社全文报道</a><br>
+    <br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508311443" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3541443       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508301309.shtml" target="boxun-mirror">中共军队改革：军官职业化出台军队势掀“裁官潮”</a>
 </h2>
 <p><tr>
@@ -663,48 +704,6 @@
 <b></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508171309.shtml" target="boxun-mirror">白宫警告北京在美非法「猎狐」轰派间谍赴美威胁当事人请看博讯热点：令计划</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>白宫警告北京在美非法「猎狐」 轰派间谍赴美威胁当事人<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508171309" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】本社揭露中共秘密派人赴美威胁要挟中共前皇亲令完成事件，引起白宫关注。据纽约时报今天报导，美国国务院警告中国，不要派特务在美国境内进行施压中国逃犯、逼迫他们立即返国受审的「猎狐行动」。美方此举不但直接影响中共在美国和海外的「猎狐行动」，更为习近平下月访美前已经因为诸多争议而渐趋复杂的美中关系，再添波澜。<br>
-    <br>
-     「猎狐行动」是中共针对党政企业大量官员贪污后外逃，在全球发起通缉的行动，目的是让他们返国并追回不法所得。是习近平强力打击中国政治贪污腐败的重要核心部分。该行动自去年七月开展以来，中共己向全世界几十个有贪官外逃的国家派出"追逃人员",他们除了党政纪检官员,更主要是公安,检察等司法执法人员,包括国安等情报人员。3 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    博闻社曾独家披露，中共为追逃在美的前中办主任令计划的胞弟令完成，不惜偷偷派出近百人的工作队，成员包括中纪委、公安部、国家安全部等；来美国做令完成的工作，用软硬兼施、威胁利诱等方式，游说他回国"配合调查"，但遭令完成拒绝。中共因此怒而于早前宣告将令计划移交司法，罪名有六大条。有关报道引起海内外高度关注，美方有关部门也派人联系本社，要求提供有关情况。<br>
-    <br>
-    纽约时报这篇报导引述不具名美国官员说，美国手中有明确证据，这些特务是持旅游或商务签证入境美国的中国公安部(猎狐行动的主要执行单位)的间谍，近几个月来，特务利用威胁逃犯家人施压的强硬手段更是有增无减。<br>
-    <br>
-    博闻社全文报道：<a href="http://bowenpress.com/news/bowen_12553.html">点击这里</a><br>
-    <br>
-    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508171309" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1451309       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
