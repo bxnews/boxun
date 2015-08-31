@@ -60,7 +60,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508311443.shtml" target="boxun-mirror">当局最担心阅兵战机驾驶员心怀叵测肇事</a>
 </h2>
@@ -101,7 +101,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508301309.shtml" target="boxun-mirror">中共军队改革：军官职业化出台军队势掀“裁官潮”</a>
 </h2>
