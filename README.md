@@ -60,7 +60,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508301309.shtml" target="boxun-mirror">中共军队改革：军官职业化出台军队势掀“裁官潮”</a>
 </h2>
