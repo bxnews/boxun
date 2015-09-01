@@ -64,7 +64,45 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509011415.shtml" target="boxun-mirror">图谋阅兵释放鸽子炸弹袭击北京抓捕数人</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>图谋阅兵释放鸽子炸弹袭击 北京抓捕数人<br><font color="#000fC0">(<small>博讯北京时间2015年9月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509011415" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】博闻社透过层层“封锁”，刚从阅兵总指挥部独家获悉，多名蓄意在9月3日释放“鸽子炸弹”的恐袭嫌疑人已经被捕，现正在连夜突击审讯中；由国安和特警等相关部门，正在动用一切“手段”，以进一步确认他们的具体身份、族裔和动机以及有无更多同谋。<br>
+    博闻社独家还了解到，这些嫌疑人早在几个月前一直在策划破坏阅兵，最后确认可行的方式是在阅兵当天，当飞机飞临天安门上空时，在北京二环主城区的胡同里放飞大量鸽子，以此充当炸弹袭击阅兵现场。<br>
+     为了确保受阅战机的绝对安全，相关部门一直在做各种“驱鸟试验”；阅兵正日益逼近，在节骨眼上发生这样的事，无疑对重中之重的安保问题，又提出了非常严峻的挑战；阅兵总指挥部已经下达密令，加大力度彻查北京各个角落，阅兵期间，核心区域从空中到地面绝对禁止任何“飞禽走兽”，绝不允许存在疑点死角。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       本社获悉，8月31日对参加阅兵的军人尤其是飞行员再次做政治思想审查和身体审查，所谓思想审查就是谈心和做问答题。<br>
+    博闻社昨天独家披露，高层曾担心参加阅兵飞行表演的飞机撞击天安门，因此对空军的审查更为严格。<br>
+    博闻社曾披露，天津大爆炸时机和地点，以及仓库和储存货物都有深厚背景，不排除大爆炸针对原计划去塘沽开会的常委。更多信息显示，大爆炸更可能是人为设计。<br>
+    <br>
+    精彩独家报道，请用电脑或手机访问博闻社: <a href="http://bowenpress.com">http://bowenpress.com</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509011415" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4001415       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509011139.shtml" target="boxun-mirror">阅兵前广东添乱爱国商人信力建被抓</a>
 </h2>
@@ -105,7 +143,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508311044.shtml" target="boxun-mirror">习近平破规矩偷偷出席汪东兴葬礼</a>
 </h2>
@@ -660,56 +698,6 @@
     <br>
     `
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508201322" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201508192058411.jpg http://upload.bx.tl/news/temp13/201508192058412.jpg http://upload.bx.tl/news/temp13/201508192058413.jpg http://upload.bx.tl/news/temp13/201508192058414.jpg http://upload.bx.tl/news/temp13/201508192104531.jpg http://upload.bx.tl/news/temp13/201508192104532.jpg--> 3311322       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508201402.shtml" target="boxun-mirror">视频：杭州公安做蟊贼，私潜梁丽婉住处搜窃请看博讯热点：警察、官员恶行</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：杭州公安做蟊贼，私潜梁丽婉住处搜窃<br><font color="blue" size="2">请看博讯热点：<a href="/hot/jingcha.shtml">警察、官员恶行
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508201402" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <iframe src="https://player.vimeo.com/video/136781476" width="500" height="375" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> <p><a href="https://vimeo.com/136781476">杭州公安做蟊贼</a> from <a href="https://vimeo.com/boxun">boxun</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
-<br>
-    <br>
-    2015年8月5日，杭州市江干区公安局的警察和打手一行4、5人，闯入弄口村徐桂珠家里，说是有人举报房屋出租，要查这里住户的暂住证。他们直奔3楼，一个穿制服的警察不顾户主抗议，到处查看，把每一个房门都推开张望。当推开最后一间房门时候，这个警察似乎非常肯定地说了一句：“这是梁丽婉住的房间！”（警察身上带有录像设备），然后悻悻而退。殊不知，4天后的8月9日，在光天化日一个女蟊贼趁人不备，潜入徐家3楼梁丽婉的房间进行搜窃。女贼将房门反锁，在梁丽婉的房间搜窃了几个小时。徐桂珠的女儿发现以后报警，那个女贼竟然骂徐女儿“傻逼”。<br>
-    <br>
-    杭州梁丽婉家的5层楼房于2010年被政府强拆，不但没有任何安置和补偿，反而将梁丽婉列为“维稳对象”进行迫害。经常遭到政府和公安的抓捕、关押和恐吓。梁丽婉无能力租房，只好寄居在同村“钉子户”徐桂珠家里，因此，公安和黑社会也经常来骚扰、威胁徐桂珠。这次警察来“踩点”，就是以“有人举报这里出租房屋”和“查暂住证”为由。其实徐桂珠家没有任何房屋出租。从视频画面可以看出，这个穿着制服名曰检查实为踩点的警匪，表情和语言相当尴尬，旁边还有几个黑打手保护，生怕遭到意外不测。<br>
-    <br>
-    梁丽婉回来之后发现，电脑、U盘、书籍、笔记本、箱子和其它所有私人物品都被翻查，丢失物品尚未来得及清点。<br>
-    <br>
-    当事人打电话12345投诉，所谓“为民解忧”的杭州政府竟然说“公安不会错的，公安是保护老百姓人身安全的，只要不做亏心事就让他们查吧。”很显然，公安早已经跟政府部门串通好了。<br>
-    <br>
-    中共采取卑鄙龌龊下三滥的手段从国民党手里夺取了政权，又用卑鄙龌龊下三滥的手段治国治民。这次对杭州梁丽婉其外出家中无人进行搜窃，不仅是再次迫害无辜民众的罪证，也再次暴露了中共肮脏下流无耻的嘴脸。再次证明了所谓“依法治国”“阳光行政”只不过是愚民和欺世的谎言。<br>
-    <br>
-    民主曙光已经来到，中共政权即将垮台。从东欧的实例可以得出结论：将来受清算的不仅仅是中共这个“组织”，所有在一线实施作恶的男女蟊贼和打手，必将遭到报应。<br>
-    <br>
-    <img src="/news/images/2015/08/201508201402china1.jpg" alt="视频：杭州公安做蟊贼，私潜梁丽婉住处搜窃"><p><br>
-    <br>
-    <img src="/news/images/2015/08/201508201402china2.jpg" alt="视频：杭州公安做蟊贼，私潜梁丽婉住处搜窃"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/08/201508201402china3.jpg" alt="视频：杭州公安做蟊贼，私潜梁丽婉住处搜窃"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/08/201508201402china4.jpg" alt="视频：杭州公安做蟊贼，私潜梁丽婉住处搜窃"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/08/201508201402china5.jpg" alt="视频：杭州公安做蟊贼，私潜梁丽婉住处搜窃"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/08/201508201402china6.jpg" alt="视频：杭州公安做蟊贼，私潜梁丽婉住处搜窃"></p>
-<p><br>
-    <br>
-    `
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508201402" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201508192058411.jpg http://upload.bx.tl/news/temp13/201508192058412.jpg http://upload.bx.tl/news/temp13/201508192058413.jpg http://upload.bx.tl/news/temp13/201508192058414.jpg http://upload.bx.tl/news/temp13/201508192104531.jpg http://upload.bx.tl/news/temp13/201508192104532.jpg--> 4671402       
 </p>
 <hr>
 <table width="620"><tr><td>
