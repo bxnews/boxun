@@ -64,7 +64,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509011139.shtml" target="boxun-mirror">阅兵前广东添乱爱国商人信力建被抓</a>
 </h2>
@@ -105,7 +105,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508311044.shtml" target="boxun-mirror">习近平破规矩偷偷出席汪东兴葬礼</a>
 </h2>
