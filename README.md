@@ -19,6 +19,53 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509010433.shtml" target="boxun-mirror">中信证卷、英仕曼、财经杂志涉联手做空股市请看博讯热点：股市危机</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中信证卷、英仕曼、财经杂志涉联手做空股市<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509010433" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <img src="http://bowenpress.com/wp-content/uploads/2015/09/f3ccdd27d2000e3f9255a7e3e2c488002" width="590"><br>
+    【博闻社】上周中信证券总经理徐刚被公安机关带走协助调查，新华社报道称中信证券股份有限公司徐某等8人涉嫌违法从事证券交易活动被要求协助调查。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       新华网北京8月30日报道。《财经》杂志社记者王晓璐因涉嫌伙同他人编造并传播证券、期货交易虚假信息，中国证监会工作人员刘书帆因涉嫌内幕交易、伪造公文印章、受贿等犯罪，于8月30日被依法采取刑事强制措施。<br>
+    <br>
+    彭博社8月31日下午消息，英仕曼集团中国区主席李亦非被中国警方带走协助调查，调查与近期证券市场的大幅波动相关。<br>
+    <br>
+    博闻社据消息人士透露，这三起抓人事件有内幕，不是孤立事件。中信证卷的董事长王东明、《财经》杂志总编王波明是亲兄弟，而英仕曼中国董事长李亦非是王东明、王波明兄弟的好友。消息透露，英仕曼调动上百亿英镑资金配合王氏兄弟，恶意做空股市。消息人士表示，王氏兄弟甚至其背后的集团才是做空的真正黑手，这次调查是否能将王氏兄弟抓捕归案，才是看点，也是对现政权能否解决股市痼疾的关键。<br>
+    <br>
+    以下是四个实体关键人物的背景资料：<br>
+    <br>
+    中信证卷的董事长王东明、《财经》杂志总编王波明是外交部前副部长之子、、、<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_16083.html">博闻社报道全文</a><br>
+    <br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509010433" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2070433       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/08/201508311044.shtml" target="boxun-mirror">习近平破规矩偷偷出席汪东兴葬礼</a>
 </h2>
 <p><tr>
@@ -662,48 +709,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508180426.shtml" target="boxun-mirror">北戴河会议：反腐获共识清除周令徐郭余党经济有分歧</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北戴河会议：反腐获共识清除周令徐郭余党 经济有分歧<br><font color="#000fC0">(<small>博讯北京时间2015年8月18日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508180426" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】为期13天的中共北戴河会议如期落幕，本栏目今天也要告别读者了。作为北戴河来鸿最后一期，本编辑自然要尽量「刮」多点料，完美告别。来鸿也不负众望，提供了北戴河结局的一些情况。<br>
-    据透露，在近半个月的北戴河「例行度假」中，政要们在如何进一步推进反腐败问题上取得高度共识，一致同意要从组织上和思想上，清理周永康、令计划、徐才厚、郭伯雄在党政军的影响；今年下半年和明年，要对上述四人的余党同伙进行彻底清理，保证党、政、军队伍的纯洁性，以及党中央的绝对领导权。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       消息指，会上各位政要还就习近平总书记提议的一份省部级以上「能上能下」的名单进行了商议，其中包括「加强意识形态和宣传思想工作的领导」的建议，根据建议，五中全会前后中央要对宣传系统的负责人作调整，其目的是「进一步加强党对思想战线的领导」。<br>
-    <br>
-    本社曾披露，习近平可能要对中央宣传部门的负责人作调整，中宣部长刘奇葆有可能会换马。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_12777.html">博闻社报道全文</a><br>
-    <br>
-    <p><strong>博闻强记、洞察中国</strong>：<br>
-    <br>
-    关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508180426" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4910426       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
