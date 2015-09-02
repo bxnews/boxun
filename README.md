@@ -35,7 +35,7 @@
     <br><center><font size="4"><b></b></font></center>
 </td></tr></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509020611.shtml" target="boxun-mirror">9.3阅兵无健康问题卸任中共元老将全登台观礼</a>
 </h2>
@@ -48,7 +48,7 @@
     <br>
      本社早前已披露，根据习近平的指示，中办早前已向所有卸任的副国级以上领导人征询意见，了解他们是否能在9月3日登天安门观礼。得到的回复几乎都是肯定和踊跃的，包括已住在医院、两次下达病危通知的前总理李鹏，也表示「希望和同志们一起</p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509010433.shtml" target="boxun-mirror">中信证卷、英仕曼、财经杂志涉联手做空股市请看博讯热点：股市危机</a>
 </h2>
