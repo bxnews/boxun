@@ -19,6 +19,45 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509031332.shtml" target="boxun-mirror">信力建先抓再找罪名国保垂死疯狂对公知开战</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>信力建先抓再找罪名 国保垂死疯狂对公知开战<br><font color="#000fC0">(<small>博讯北京时间2015年9月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509031332" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_16504.html">博闻社独家</a>】本社昨天报道中国知名民间教育家和慈善家信力建被广东公安抓捕，公安系统刻意放风称信力建已经获释在家。但本社了解，信力建一直在押，而且公安变本加厉，禁止律师会见。据了解，对信力健动手的是广东公安厅国保总队。据博讯月刊报道，中共已决定在此轮公安大改革中取消国保。广东国保的所作所为，堪称是"垂死前的疯狂"。<br>
+    <br>
+     据了解，广东当局此次抓捕信力健是广东省公安国保操作，目的是对社会公共知识分子进行打压。过去两年，中共打压网络大V，打压维权人士，近期打压维权律师，但对公知的拘查打压，信力建是继艾未未后又一人。未知这是广东省国保的妄自非为，还是北京布署的统一动作的一部份。分析人士认为，接下来估计会有更多公知被非法抓捕。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    信力建不但是实业家、慈善家，还是多产的政论作家和社会活动家，但他的文章和他所参与的社会活动都很温和理性，对当局时政提出的批评也是温和善意和建设性的，现在居然当局不能容忍，反映中共的心虚之极。信力健办教育同时，还收养孤儿，多年来收养数百孤儿，给他们提供食宿和教育，这些孤儿已经有多人被美国家庭领养定居。<br>
+    <br>
+    据了解，广东公安国保对信力建是先抓后罗织罪名，不但抓信夫妇，还把其会计出纳和司机都抓走，一开始查税等财物问题，查不出问题，现仍继续关押，千方百计找茬，明显违反当局的法律法规。<br>
+    <br>
+    《博讯》月刊9月号已披露，中共已决定在此轮公安大改革中，将国保解散。北京分析人士对本社表示，国保近半年抓捕律师以及NGO，就是为了应对对他们的裁撤，类似2011年借茉莉花运动对异议人士残酷打压，为了显示这个部门重要，加大权力。他们利用最后的权力，欲从律师和NGO找突破口，做实境外敌对势力与国内勾结。夸大威胁、取得“成就”，以此突出国保重要性。广东公安国保滥抓信力建，如果不是来自北京的指令，那就是广东国保临终前的疯狂挣扎，同时也说明，公安国保这个中共维稳系统的怪胎，仍在给社会稳定添乱，中共解散国保，虽非解民怨于燃眉，却有利于舒缓民愤。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509031332" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3891332       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509030220.shtml" target="boxun-mirror">广西南宁数千蔗农围政府遭千警镇压数十人被抓捕请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -65,6 +104,48 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509030220" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509021006381.jpg http://upload.bx.tl/news/temp13/201509021006382.jpg http://upload.bx.tl/news/temp13/201509021006383.jpg http://upload.bx.tl/news/temp13/201509021006384.jpg http://upload.bx.tl/news/temp13/201509021006571.jpg http://upload.bx.tl/news/temp13/201509021006572.jpg http://upload.bx.tl/news/temp13/201509021006573.jpg http://upload.bx.tl/news/temp13/201509021006574.jpg http://upload.bx.tl/news/temp13/201509021007021.jpg--> 700220       
 </p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509031334.shtml" target="boxun-mirror">视频：李鹏注射强心针现身天安门城楼阅兵请看博讯热点：李鹏家族</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：李鹏注射强心针现身天安门城楼阅兵<br><font color="blue" size="2">请看博讯热点：<a href="/hot/lipeng.shtml">李鹏家族
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509031334" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <iframe width="560" height="315" src="https://www.youtube.com/embed/8_oNttgWnYY" frameborder="0" allowfullscreen></iframe><br>
+    【博闻社】<a href="http://bowenpress.com/news/bowen_14252.html">本社8月24日曾报道</a>，病危中李鹏不忘9.3登天安门阅兵。今天李鹏现身天安门城楼，但专家医疗团队随时待命。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_16265.html">博闻社9月1日披露</a>，9.3阅兵无健康问题卸任中共元老将全登台观礼。今天果然老同志全部现身。<br>
+    <br>
+    <a href="http://bowenpress.com/wp-content/uploads/2015/09/63c85d8fea3a65f4a0888e30607c53a71"><img src="http://bowenpress.com/wp-content/uploads/2015/09/63c85d8fea3a65f4a0888e30607c53a71-300x164." alt="1" width="300" height="164" class="alignnone size-medium wp-image-16901"></a><br>
+    <a href="http://bowenpress.com/wp-content/uploads/2015/09/f26ccdd2626d26000e26f26262626a26e26e26c2626260026"><img class="alignnone size-medium wp-image-16734" src="http://bowenpress.com/wp-content/uploads/2015/09/f26ccdd2626d26000e26f26262626a26e26e26c2626260026-300x169." alt="1" width="300" height="169"></a><br>
+    <br>
+    消息人士称，为了回应国际社会对中共政局的担忧以及对江泽民种种不利传闻，江泽民向习近平不断施压，习近平最终妥协，决定让中共元老们集体露脸。不仅江泽民出现在天安门城楼，一直病重的李鹏也被特批注射强心针，并由医疗专家团队随时现场待命，以防不测。医疗队要李鹏每五分钟就“休息”一次。<br>
+    <br>
+    曾庆红也出现在天安门城楼。江泽民和胡锦涛并肩而站，但表情严肃，无言以对。<br>
+    <br>
+    阅兵后，中午将在人民大会堂举行盛大招待会，晚上还有庆祝文艺晚会，博闻社将独家全程跟踪镜头看不到的现场真相。<br>
+    <br>
+    习近平在天安门城楼观礼台上厚此薄彼，与俄罗斯总统相谈甚欢，却对其他外国元首和政要视而不见或顾左右而言他。<br>
+    <br>
+    阅兵总指挥刘云山为了弥补取消直播俄罗斯红场阅兵的失误，要求摄影师镜头对准习近平，尤其不能“走光？任何不该播出的镜头。<br>
+    <br>
+    李瑞环和张高丽在天安门城楼寒暄，似乎对天津大爆炸心照不宣。<br>
+    <br>
+    现场观众主要是“爱国”的港澳台同胞和海外侨报，中直机构和各部委主要领导的亲朋好友，受阅官兵亲友，老战士和外国友人和家属，经过反复审查的国内外媒体工作者。<br>
+    <a href="http://bowenpress.com/wp-content/uploads/2015/09/2020200020c20baf200ff2020a202020f20c2020f20202020b20"><img class="alignnone size-medium wp-image-16841" src="http://bowenpress.com/wp-content/uploads/2015/09/2020200020c20baf200ff2020a202020f20c2020f20202020b20-300x173." alt="2" width="300" height="173"></a><br>
+    为防不测，参阅直升机和战斗机、轰炸机数量做了压缩。为了减少国际社会的反感，全部阅兵规模比最初安排大幅缩水。<br>
+    <a href="http://bowenpress.com/wp-content/uploads/2015/09/2121210021c21baf210ff2121a212121f21c2121f21212121b21"><img class="alignnone size-medium wp-image-16855" src="http://bowenpress.com/wp-content/uploads/2015/09/2121210021c21baf210ff2121a212121f21c2121f21212121b21-300x168." alt="2" width="300" height="168"></a><br>
+    <br>
+    普京特意走到江泽民身边，俯身握手致意和亲切问候。<br>
+    天安门城楼观礼贵宾移步人民大会堂，盛大招待会即将举行。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509031334" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2431334       
 <hr>
 <table width="620"><tr><td>
 <b></p>
@@ -613,60 +694,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508210512.shtml" target="boxun-mirror">令完成首度开腔中纪委动员女儿来美说服请看博讯热点：令计划</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>令完成首度开腔 中纪委动员女儿来美说服<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508210512" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】美国国务院警告北京派特工去美国非法“猎狐”追逃，使前中办主任令计划的胞弟令完成再度成为舆论焦点。《纽约时报》等美国媒体纷纷追踪报道揭露内幕，但却始终无法接触到令完成本人。香港8月1日出版《博讯》月刊刊出令完成与美国友人的电话对话，就外界有关报道以及中共对其兄的指控作回应。这也是令完成逃美两年后，首次就其本人和家族的案情回应外界查询。纽时、华尔街日报和CNN近日报道证实博讯和博闻社报道的准确性。<br>
-    <br>
-     据报道，令完成是7月25日在加州一个隐秘地点接受友人电话访问，回应有关问题的。此前的7月20日，中共刚刚宣告对令计划开除党籍公职、移交司法处理的决定；令完成接受美国友人的电话谈话，显然也是为了回应中共当局对其兄的处理决定。据透露，这位美国友人实际上就是令完成在美国资产的管理人李树海。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    <a href="http://bowenpress.com/news/bowen_5586.html">博闻社7月7日曾独家披露</a>，中共为了游说令完成回国配合调查，今年5、6月曾派出一个庞大的工作组去美国，做令完成的工作，工作组成员包括中纪委、公安部等部门的人员，他们都是以商务或旅游签证进入美国，从事这项实质上是追逃工作的，当局甚至把令完成在国内已工作的女儿也拉去，游说令完成。<br>
-    <br>
-    据李树海向《博讯》月刊透露，已经改名王诚的令完成否认自己偷带大量中共高层密件逃美，哀叹“我哪里有什么政治核弹啊”？表示“我现在能安安稳稳过日子就算不错了”。他又为令计划鸣不平，认为胞兄是被人构陷，称胞兄作为曾经的中办主任，“他在那个职务那么多年，甚縻不知道？还用窃取什么秘密？”<br>
-    <br>
-    据透露，令完成在电话中的情绪十分低落，“他曾经想到过自杀，万念俱焚。”，所幸有新婚夫人在旁给他宽慰，使令完成才不致于崩溃。令完成的新婚夫人与令完成是两种完全不同类型的人，她不关心也不明白政治，明知令完成跟她结婚是有目的，是为了获得美国缘卡免回中国，她仍然义无反顾爱上这个外表非常绅士的中国同胞。她当时并不了解，这个男人原来是在祖国惹了天大麻烦的人。但一日夫妻百日恩，她别无选择。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_13428.html">博闻社报道全文</a><br>
-    <br>
-    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508210512" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 60512       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508211311.shtml" target="boxun-mirror">毛泽东前侍卫长抓四人帮决策者之一汪东兴病逝</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>毛泽东前侍卫长抓四人帮决策者之一汪东兴病逝<br><font color="#000fC0">(<small>博讯北京时间2015年8月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508211311" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【博闻社独家】本社从北京获悉，原中共中央副主席、毛泽东前侍</td></tr></p>
-<p>
-	<small> ============== 13天前</small>
 </p>
 <table>
     <tr>
