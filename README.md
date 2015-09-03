@@ -19,6 +19,58 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509030220.shtml" target="boxun-mirror">广西南宁数千蔗农围政府遭千警镇压数十人被抓捕请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>广西南宁数千蔗农围政府遭千警镇压数十人被抓捕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509030220" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      广西南宁市宾阳县数千蔗农连日围堵县政府，追讨被拖欠长达三年的数亿甘蔗款，遭逾千警察镇压多人被打伤数十人被抓捕。名列广西企业100强的永凯集团，拖欠为其供货的蔗农数亿元甘蔗款长达3年，2013年起，蔗农为追讨甘蔗款已发起过多次大规模示威，均无果。<br>
+    <br>
+    9月1日，大批蔗农再次走上街头，围堵永凯集团，并将老板赖可宾围困整整一天一夜。另有数百蔗农则再次围堵宾阳县政府，希望政府出面，为蔗农讨回货款。据目击者透露，当天晚上，已有上千蔗农聚集到宾阳县，并彻夜留守。<br>
+    <br>
+    9月2日上午，再有大批蔗农陆续从各地赶至宾阳县政府，示威人数增至数千人，政府附近的交通完全中断，当地政府出动逾千警力到场戒备。<br>
+    <br>
+    目击网友“等”发帖说：昨天闹了一天了，还下着雨呢，都没有解决方案出来，昨晚已经上千人在宾阳县政府礼堂内过夜了，辛苦了老百姓啊！今天几千农民老百姓继续游行，堵塞县政府，急切希望政府尽早提出解决方案为老百姓做主，更应严厉处罚老赖！<br>
+    <br>
+    2日下午，警察在驱逐示威蔗农时引发多起冲突，网友上传到网络的图片及视频显示，在县政府外游行的蔗农以及县政府内留守的蔗农，均与警察发生了激烈冲突，期间有大量蔗农被打伤，数十名蔗农遭到抓捕。<br>
+    <br>
+    目击网友“小鲜肉PLUS”发帖说：今天蔗农们跟武警特警交战真是掺不忍堵，无辜群众还被武警乱棍打晕在地上，贪官竟然叫武警特警大街上跟蔗农开战，场面十分狼狈不堪。<br>
+    <br>
+    “小鲜肉PLUS”说：大家瞧瞧这些贪官，个个肚子肥都都的，再看看这些被抓的蔗农们，个个瘦不拉几的，老天都开眼了，下了好大的暴雨。好多人受伤，反正最少抓了好几十个。<br>
+    <br>
+    当地政府于9月2日发布通告称，将于9月2日启动拍卖永凯集团用于抵还蔗农蔗款程序，但网友对此表示怀疑，并希望政府不要再次忽悠蔗农。<br>
+    <br>
+    网络资料显示，广西永凯集团于1993年以制糖业起家，名列广西企业100强，老板名叫赖可宾，于2007年登上胡润富豪榜，成为广西首富，掌控境内外共22家公司，是广西自治区政协委员、南宁市人大代表、人大常委。<br>
+    <br>
+    （网络图片）<br>
+    <img src="/news/images/2015/09/201509030220china1.jpg" alt="广西南宁数千蔗农围政府遭千警镇压数十人被抓捕"><p><br>
+    <img src="/news/images/2015/09/201509030220china2.jpg" alt="广西南宁数千蔗农围政府遭千警镇压数十人被抓捕"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509030220china3.jpg" alt="广西南宁数千蔗农围政府遭千警镇压数十人被抓捕"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509030220china4.jpg" alt="广西南宁数千蔗农围政府遭千警镇压数十人被抓捕"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509030220china5.jpg" alt="广西南宁数千蔗农围政府遭千警镇压数十人被抓捕"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509030220china6.jpg" alt="广西南宁数千蔗农围政府遭千警镇压数十人被抓捕"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509030220china7.jpg" alt="广西南宁数千蔗农围政府遭千警镇压数十人被抓捕"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509030220china8.jpg" alt="广西南宁数千蔗农围政府遭千警镇压数十人被抓捕"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509030220china9.jpg" alt="广西南宁数千蔗农围政府遭千警镇压数十人被抓捕"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509030220" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509021006381.jpg http://upload.bx.tl/news/temp13/201509021006382.jpg http://upload.bx.tl/news/temp13/201509021006383.jpg http://upload.bx.tl/news/temp13/201509021006384.jpg http://upload.bx.tl/news/temp13/201509021006571.jpg http://upload.bx.tl/news/temp13/201509021006572.jpg http://upload.bx.tl/news/temp13/201509021006573.jpg http://upload.bx.tl/news/temp13/201509021006574.jpg http://upload.bx.tl/news/temp13/201509021007021.jpg--> 700220       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/09/201509020622.shtml" target="boxun-mirror">阅兵前，中共党国应为镇压抗战抗日国军道歉谢罪/淳于雁</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -613,16 +665,6 @@
                 <br><b></b><center>毛泽东前侍卫长抓四人帮决策者之一汪东兴病逝<br><font color="#000fC0">(<small>博讯北京时间2015年8月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508211311" target="_new">支持此文作者/记者</a></small>)</font>
 </center>
                 <!--bodystart-->     【博闻社独家】本社从北京获悉，原中共中央副主席、毛泽东前侍</td></tr></p>
-<p>
-	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508211050.shtml" target="boxun-mirror">官方公布危险品达2,500吨网民质疑老百姓没死和失踪？</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>官方公布危险品达2,500吨 网民质疑老百姓没死和失踪？<br><font color="#000fC0"><small>(博讯北京时间2015年8月21日 转载)</small></font>
-</center>
-            <!--bodystart-->       天津大爆炸 官方公布危险品达2,500吨<br>    <br>    <img src="/news/images/2015/08/201508211208china1.jpg" alt="官方公布危险品达2,500吨 网民质疑老百姓没死和失踪？"><br>    【河岸死鱼涌现】■距爆炸地点6公里的海河闸岸边有大量死鱼，发出恶臭。互联网<br>    <br>    【天津大爆炸】<br>    <br>    距天津港爆炸中心6公里的岸边，昨惊现大量死鱼，发出浓烈腐臭。居民表示该处从未出现过如此大规模死鱼现象。惟官方称该河段水质未检验出氰化物（山埃），鱼类缺氧而死。官方昨公布爆炸仓库内约有40种共2,500吨危险品，而爆炸核心的「黑洞」深坑，山埃最高超标逾800倍，处理或需3个月。<br>    <br>    距天津港爆炸中心约6公里的海河闸岸边，昨出现大批死鱼。下午的新闻发布会上，天津市环境监测中心主任邓小文称已派人去调查了解死鱼原因，他补充说，每年这时候常见有死鱼，因为海河本身污染严重。昨晚，该中心称对该河段水质进行了采样分析，未检验出山埃，邓小文指鱼的死因是「高温遇降水时地表污染物流进河道，引起富营养化，导致鱼类缺氧而死」 。官方《环球时报》引述滨海新区农委领导表示，将打捞死鱼，填埋处理。据官方人员所述，死鱼品种多为斑</td></tr></p>
 <p>
 	<small> ============== 13天前</small>
 </p>
