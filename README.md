@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/09/201509020622.shtml" target="boxun-mirror">阅兵前，中共党国应为镇压抗战抗日国军道歉谢罪/淳于雁</a>
 </h2>
