@@ -56,7 +56,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509030220.shtml" target="boxun-mirror">广西南宁数千蔗农围政府遭千警镇压数十人被抓捕请看博讯热点：突发事件</a>
 </h2>
@@ -108,7 +108,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509031334.shtml" target="boxun-mirror">视频：李鹏注射强心针现身天安门城楼阅兵请看博讯热点：李鹏家族</a>
 </h2>
@@ -150,7 +150,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/09/201509020622.shtml" target="boxun-mirror">阅兵前，中共党国应为镇压抗战抗日国军道歉谢罪/淳于雁</a>
 </h2>
