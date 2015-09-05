@@ -19,6 +19,81 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509050644.shtml" target="boxun-mirror">访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频请看博讯热点：“麻雀行动”</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/UN_Petition.shtml">“麻雀行动”
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509050644" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <img src="/news/images/2015/09/201509050644intl1.jpg" alt="访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频"><p><br>
+     今日（9月3日）中国访民马永田状告中国国家主席习近平有组织酷刑，在纽约联邦南区法院立案。立案后马永田告诉记者，她自己的工厂在中国被野蛮强拆，她为此进行法律维权，并在长春市中级人民法院胜诉，而后的10年内，她的强拆案一直得不到解决，为了寻找正义和公平，她在省市和首都北京进行了长达13年的上访，可是等待她的是各种黑监狱酷刑和折磨。马永田来到美国后没有停止上访，她在联合国和中国驻美大使馆前进行了长达2年多的不间断抗议。马永田此次在美国最高法院进行状告习近平，就是为了再一次提醒中国政府，只要中国政府不认真解决对访民的赔偿，她将继续抗议下去。<br>
+    来自山东访民孙元鹏告诉记者，他家的2个养殖场和一套房子2013年被政府强拆，父亲孙瑞金因为抗议强拆，多次去北京上访，被政府截访人员多次殴打并关入黑监狱，2015年2月26日因为保护自己的土地被公安抓捕，一直关到现在，没有任何消息。他这次来纽约就是声援马永田起诉习近平，希望这次行动也能震撼一下山东的那些官僚们，立刻释放我的父亲。<br>
+    马永田告诉记者，下一步将把美国南区法院的文件送达到习近平的手中，并要求他按照美国的诉讼要求，来美国出庭。<br>
+    <br>
+    博讯记者西诺 纽约报道<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/96GvLa6ZeZQ" frameborder="0" allowfullscreen></iframe><br>
+    <img src="/news/images/2015/09/201509050644intl2.jpg" alt="访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509050644intl3.jpg" alt="访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509050644" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509041439051.jpg http://upload.bx.tl/news/temp13/201509041439052.jpg http://upload.bx.tl/news/temp13/201509041439053.jpg--> 750644       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 15分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509050631.shtml" target="boxun-mirror">旅日华侨刘景德中使馆上吊、白宫前说要等习近平/视频请看博讯热点：“麻雀行动”</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>旅日华侨刘景德中使馆上吊、白宫前说要等习近平/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/UN_Petition.shtml">“麻雀行动”
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509050631" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <img src="/news/images/2015/09/201509050631intl1.jpg" alt="旅日华侨刘景德中使馆上吊、白宫前说要等习近平/视频"><p><br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/UrT_K3mSbsE" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    （博讯特约记者赵岩拍摄报道）2015年9月2日，就在</p>
+</td></tr></p>
+<p>
+	<small> ============== 15分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509050543.shtml" target="boxun-mirror">北京大阅兵解码：江泽民的地位仍不可小视</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北京大阅兵解码：江泽民的地位仍不可小视<br><font color="#000fC0">(<small>博讯北京时间2015年9月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509050543" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】中共9.3大阅兵终于顺利落幕，关于这场阅兵秀的各种解读，中外媒体各有己见，不一而足；包括天安门城楼上的「中共元老方阵」，外界的解读亦是汗牛充栋。而本社获得来自中南海知情者的解读是，这场阅兵表面上习近平掌握主动，是全场中心，但站在他旁边、年近90岁的前总书记江泽民的地位仍不可小视。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/8_oNttgWnYY" frameborder="0" allowfullscreen></iframe><br>
+    一如本社此前的独家报导，以江泽民为首的中共元老们，全部登上了天安门城楼，集体观礼中共新君主习近平主导的9.3大阅兵；尽管天安门前天上地下50个方阵不停获得掌声，但天安门城楼上中共元老们组成的方阵，才是中共这场史无前例的阅兵中，真正最强的阵容，尤其是江泽民的现身，其带给的信息量，远远没有被外界所认识。<br>
+    <br>
+    中南海知情者告诉本社，其实这场借抗战胜70周年搞的大阅兵，一开始就与江泽民的建议有关。2014年3月习近平获江泽民首肯，决定拿下军中大老虎徐才厚、同时不惜代价向军队高层的贪腐开刀后，习近平就多次向江泽民「请益」，探讨如何让腐败溃不成样的军队重建威信、让军队领导权真正重回新的党中央手中。<br>
+    <br>
+    外界一直揣测，这次阅兵是习对江的一种示威，旨在表达拒绝接受前朝胡锦涛那种被江「垂帘听政」的情况，表达习要超过江胡、成为继毛泽东、邓小平之后中共最有实力的领导人。知情者指，其实老江并不象外界想象那么僵化小气，外界不但可以从习近平铲除徐才厚、郭伯雄这两大江一手捧上位的心腹，可以判断，没有江的同意，习怎么可能成功？。<br>
+    <br>
+    江泽民阅兵露面并站在习近平左侧第一位，打破外界关于习、江斗传闻，其地位可见一斑。本社获悉，据透露，今年北戴河会议前的七月，习近平曾再度拜访老江，对当前的时局和策略和江交换意见，「两人谈得不错，江、习的互动其实是很频密和正面的。」<br>
+    <br>
+    曾庆红露面也打破了他被抓的传闻，但本社了解，曾庆红自春节开始就有某种监视措施。<br>
+    <br>
+    曾庆红(后中)虽登台亮相，但前景不妙<br>
+    <img src="http://bowenpress.com/wp-content/uploads/2015/09/8cda83fc7ad906937344335dda5fdf353" width="590"><br>
+    <br>
+    此次阅兵，从电视镜头看，习近平是中心，但其实中共三代核心站一起，江泽民依然居中，胡锦涛和习近平只能伴其左右，在观礼时，江泽民不仅频频竖起大拇指，还用俄语与普京寒暄唠嗑。表面上习近平是中心，左有普京和朴槿惠，右有江泽民和胡锦涛；实际上中国元首三代同堂时，江泽民才是重中之重。<br>
+    知情者指，当习近平登车阅兵时，用左手向受阅官兵行礼，又在天安门城楼举拳高呼「正义必胜 和平必胜 人民必胜」时；外界是否意识到，右撇子的他为何要如此？因为他的正常的右手，其实是被江泽民紧紧拽著的！<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_17319.html">以上摘自博闻社，全文点击</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509050543" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2800543       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 15分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509031332.shtml" target="boxun-mirror">信力建先抓再找罪名国保垂死疯狂对公知开战</a>
 </h2>
 <p><tr>
@@ -587,113 +662,6 @@
                 <!--bodystart-->      【博闻社独家】纪念抗日战争胜利70周年9.3大阅兵万事具备，如箭待发。中共高层正就阅兵主席台观礼的安排进行协商，包括胡锦涛、江泽民等前任领导人如何安排等。已病危卧床的前总理李鹏被征询意见时表示，如身体许可“希望和同志们一起</p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/finance/2015/08/201508240223.shtml" target="boxun-mirror">央行内部消息：明年人民币兑美元恐贬至8请看博讯热点：人民币升值</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>央行内部消息：明年人民币兑美元恐贬至8<br><font color="blue" size="2">请看博讯热点：<a href="/hot/renminbi.shtml">人民币升值
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201508240223" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博</td></tr></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508221121.shtml" target="boxun-mirror">紫禁城来鸿:习近平对达赖喇嘛比胡锦涛还狠？请看博讯热点：西藏问题</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁城来鸿:习近平对达赖喇嘛比胡锦涛还狠？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tibet.shtml">西藏问题
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508221121" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】这几天(其实不止这几天)习近平一定忙翻天了。今天，北京要举行世界田径锦标赛，虽说是体育赛事，但今晚在国家体育场举行的开幕式习大大要可能要出席；赛事一结束紧跟着就是举世瞩目的9.3大阅兵，那是今年内政的大事。阅兵一完，又是西藏自治区成立50周年庆典，中央要派人去祝贺，没准习大大又要亲自赴雪域高原，给藏族人民一个惊喜；随后是对美国的国事访问，那又是今年外交的压轴，习老大已下旨，“只许成功不许失败”。<br>
-    <br>
-     说到西藏自治区50周年庆典，可能外面不够重视，毕竟离首都中心远了点，再说了，五个自治区经常有这个庆典那个庆典，犯不着大惊小怪。不过，本编辑近日收到紫禁城来鸿却提醒，千万莫忽视西南雪域高原的事情，最近习大大有一个关于西藏的内部讲话，对达赖喇嘛和藏独分裂问题，首次发出如此强烈的内部警告，使不少听训者都有点出乎意外。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    来鸿透露，习近平的这个有关西藏的讲话，对达赖喇嘛充满了敌意和仇视，将藏区过去一段时期出现的僧侣自焚现象，归罪于达赖喇嘛分裂集团。将达赖喇嘛及其争取西藏自由的藏人归类为“外国反华势力”，包括民运、东突、法轮功等。而且称西藏的分裂活动策略在改变，出现新的手法甚至是暴力倾向。<br>
-    <br>
-    来鸿透露，习大大在讲话中，使用了“达赖所剩的时日已不多了”这样的表述，似乎显示中共用“斗命长”的战略来对付达赖，已见到曙光。习大大还要求驻藏军队要积极配合地方维稳，加大西藏重点敏感地区的维稳力度，要坚决打击敌对势力的破坏活动。并指示藏区军队参与的维稳要转入常态，部队要树立长期作战的思想。<br>
-    <br>
-    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508221121" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 161121       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508220505.shtml" target="boxun-mirror">数千老兵集结广东阳江千警戒备封锁全城请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>数千老兵集结广东阳江千警戒备封锁全城<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508220505" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      各地数千老兵集结广东省阳江市为日前被打伤的老兵讨说法，当地出动逾千警力全城戒备，多个高速路口以及市内多条道路被警察封锁，全城交通瘫痪。<br>
-    <br>
-    8月19日，数百越战老兵到阳江市政府抗议政府克扣老兵补贴时，与大量警察以及政府人员发生激烈冲突，导致20余名老兵受伤入院。当天下午开始，广东省内以及广西、湖南、贵州等多省老兵陆续赶至阳江声援并围堵阳江市政府。<br>
-    <br>
-    网友“通明肥记”发帖说：阳江成了老兵集中营啊，连山西、广西都来了，广东省内好多地方也来了，团结就是力量，什么时候才能结束。<br>
-    <br>
-    另一名网友“牛仔抄都你啦”说：据情报,今早已有六个省的参战老兵抵达阳江！<br>
-    <br>
-    当地出动大量特警、武警封锁了多个高速路口，拦截前来声援的老兵，从21日开始，市内通往市政府的多条道路被警察设置路障封锁，全城交通瘫痪。同时，各媒体记者亦被禁止进入阳江市。<br>
-    <br>
-    网友“Ranevs”发帖说：整个阳江已经混乱成一团粥了。市区道路几乎全部瘫痪，各高速路口全是武警特警执勤，封锁各处消息，不让各大媒体进入阳江。目前为止，阳江市政府方圆一公里内为警戒区，武警特警24小时待命，预防各类突发事件。<br>
-    <br>
-    至21日，老兵搭建在市政府的帐篷已被警察强行拆除，示威老兵已无法靠近市政府，但仍有部分老兵周边游行抗议。网友上传到网络的图片显示，阳江市政府周边布满了大量路障以及各种警察，只有数百市民在场围观，未见有老兵出现。<br>
-    <br>
-    网友“tck1262404957”发帖说：昨天，老兵们集结在市政府门口，属于主攻方，而政府处于防御状态，无从下手。 无奈被奸人离间出卖，导致老兵们失去上风位置。现在政府军重兵把守主要城门，老兵们无法突破城门，支援兵又被截停，老兵老将太可怜了。<br>
-    <br>
-    “tck1262404957”说：老兵们现在无法再次进入市政府门口抗议，只能游街示威。<br>
-    <br>
-    目前事态仍在发展当中。<br>
-    <br>
-    （网路图片） <br>
-    <img src="/news/images/2015/08/201508220505china1.jpg" alt="数千老兵集结广东阳江千警戒备封锁全城"><p><br>
-    <img src="/news/images/2015/08/201508220505china2.jpg" alt="数千老兵集结广东阳江千警戒备封锁全城"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508220505china3.jpg" alt="数千老兵集结广东阳江千警戒备封锁全城"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508220505china4.jpg" alt="数千老兵集结广东阳江千警戒备封锁全城"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508220505china5.jpg" alt="数千老兵集结广东阳江千警戒备封锁全城"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508220505china6.jpg" alt="数千老兵集结广东阳江千警戒备封锁全城"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508220505china7.jpg" alt="数千老兵集结广东阳江千警戒备封锁全城"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508220505china8.jpg" alt="数千老兵集结广东阳江千警戒备封锁全城"></p>
-<p><br>
-    <img src="/news/images/2015/08/201508220505china9.jpg" alt="数千老兵集结广东阳江千警戒备封锁全城"></p>
-<p><br>
-    <br>
-     
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508220505" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201508211237491.jpg http://upload.bx.tl/news/temp13/201508211237492.jpg http://upload.bx.tl/news/temp13/201508211237493.jpg http://upload.bx.tl/news/temp13/201508211237494.jpg http://upload.bx.tl/news/temp13/201508211238081.jpg http://upload.bx.tl/news/temp13/201508211238082.jpg http://upload.bx.tl/news/temp13/201508211238083.jpg http://upload.bx.tl/news/temp13/201508211238084.jpg http://upload.bx.tl/news/temp13/201508211238151.jpg--> 2980504       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
