@@ -44,7 +44,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509050631.shtml" target="boxun-mirror">旅日华侨刘景德中使馆上吊、白宫前说要等习近平/视频请看博讯热点：“麻雀行动”</a>
 </h2>
@@ -59,7 +59,7 @@
     （博讯特约记者赵岩拍摄报道）2015年9月2日，就在</p>
 </td></tr></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509050543.shtml" target="boxun-mirror">北京大阅兵解码：江泽民的地位仍不可小视</a>
 </h2>
@@ -92,7 +92,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509031332.shtml" target="boxun-mirror">信力建先抓再找罪名国保垂死疯狂对公知开战</a>
 </h2>
