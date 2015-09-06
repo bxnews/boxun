@@ -58,6 +58,22 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509061942.shtml" target="boxun-mirror">信力建被指涉隐匿销毁会计账册凭证罪</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>信力建被指涉隐匿销毁会计账册凭证罪<br><font color="#000fC0"><small>(博讯北京时间2015年9月06日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509061942" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->        <br>    <small>民间教育家慈善家信力建</small><br>     <img src="http://bowenpress.com/wp-content/uploads/2015/09/242424bad24a24b242424f02424e2424bbc24a24242424cd2424"><br><br>                       【博闻社独家】本社获悉，内地知名民间教育家、公共知识分子信力建，上月底被广州公安当局秘密拘查，罪名竟是涉嫌隐匿销毁会计账册凭证罪。目前内地知名的京衡律师事务所已受理信力建案。本社获悉，当局要治罪信力建，是因为政治原因。<br><br>    京衡律师事务所主任陈有西律师透露，广州信孚教育机构投资人信力建先生，涉嫌隐匿销毁会计账册凭证罪，于8月22日被广州警方刑事拘留接受调查。京衡所今天接受委托介入辩护。陈有西律师曾在薄熙来主政重庆时代,为遭重庆当局冤屈逮捕的李庄辩护。<br>    <br>    <small>陈有西律师</small><br>    <img src="http://bowenpress.com/wp-content/uploads/2015/09/f61ccdd6161d61000e61f61616161a61e61e61c6161610061"><br>    <br>    陈有西指，今天他和广州朱律师去会见当事人，因公安正在讯问而未果。陈并透露，此前外媒报道有误，信妻目前未涉案。朱律师23日巳会见到一次。内地网民表示质疑：第一次听说有这么个奇怪的罪名：销毁会计账册罪！<br><br>    信力建被称为中国温和改良派代表人士之一，信力建除了兴办教育，还是凤凰知名博客写作者，因宣扬普世价值，一直是保守派的眼中钉。信力建除了是教育家和独立思想者，还是南粤知名的慈善人士，除了办班为孤寡孩子提供教育，自己还收养多名孩子，并将他们送到美国求学。<br>    <br>    <small>广州市公安局的拘捕通知书</small><br>    <img src="http://bowenpress.com/wp-content/uploads/2015/09/f62ccdd6262d62000e62f62626262a62e62e62c6262620062-300x225."><br><br>    信力建毕业于中山大学，1989年创办信孚教育集团，现拥有20多个教育实体，是大陆民办教育专家。同时，他是知名网络大V，以提倡温和改良着称的公共知识分子，他也因此备受保守派和激进派的非议。有分析认为，当局抓捕信力建是政治迫害。<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509061942" target="_new">支持此文作者/记者</a> <br><br><!--(Modified on 2015/9/06)--><!--bodyend-->       
+                  
+           (博讯 boxun.com) <br><!----> 631942       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509050644.shtml" target="boxun-mirror">访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频请看博讯热点：“麻雀行动”</a>
 </h2>
 <p><tr>
@@ -644,46 +660,6 @@
     <br>
         <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508270357" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4100357       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508270016.shtml" target="boxun-mirror">中信证券总经理被抓背后剑指中共常委刘云山请看博讯热点：刘云山</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中信证券总经理被抓 背后剑指中共常委刘云山<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liuyunshan.shtml">刘云山
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508270016" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】内地股市大溃堤，虽当局倾尽全力打救，甚至注入养老基金但仍无济于市，本周沪市跌破3000点，逾亿股民怒气冲天几近爆煲。当局情急之下昨日一口气宣布拘查三个部门有关人士，其中最受关注是中信证券总经理徐刚。本社获悉，徐刚的顶头上司正是中信证券副董事长刘乐飞，刘乐飞的父亲即中共现任政治局常委刘云山。<br>
-    <br>
-     新华社8月25日晚间发布消息称，中信证券徐某等8人涉嫌违法从事证券交易活动已被公安机关要求协助调查。财新记者今日确认，中信证券徐某即为中信证券执行委员会委员、董事总经理徐刚。而中信内部人士对本社透露，徐刚的上司正是去年3月上任中信副董事长的刘乐飞，也就是刘云山的大公子。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    去年3月18日，中国证监会层批覆同意刘乐飞出任中信证券副董事长。在刘乐飞赴任该职务后，中信证券副董事长职位也由一变二，分别为殷可和刘乐飞担任。年仅41岁的刘乐飞也是中信证券目前董事会中最年轻的一位。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_14807.html">博闻社报道全文</a><br>
-    <br>
-    <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508270016" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3550016       
 <hr>
 <table width="620"><tr><td>
 <b></p>
