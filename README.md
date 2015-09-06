@@ -56,7 +56,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509050644.shtml" target="boxun-mirror">访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频请看博讯热点：“麻雀行动”</a>
 </h2>
