@@ -19,6 +19,45 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509061057.shtml" target="boxun-mirror">军队改革方案下周内部宣布首改陆军</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>军队改革方案下周内部宣布 首改陆军<br><font color="#000fC0">(<small>博讯北京时间2015年9月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509061057" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】习近平在9.3大阅兵上宣告裁军30万，实际是揭开中共军队改革的序幕。本社最新获悉，有关军队改革方案将于本月10日左右在军队内部宣布，并立即开始实施，首波要动作的是陆军，涉及裁员及部队整编，以及国防动员体制的改革、非战斗部队的裁减。<br>
+    <br>
+     军方消息对本社透露，军队改革如箭在弦，蓄势待发，有关改革方案将于9月10日左右在军队内部宣布，而且是马上着手实施，最先动作的将是陆军，因涉及到裁员和整编等，其次是各军兵种所属的非战斗部队，包括机关、学校、医院、研究机构等，开始按方案逐步转制。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    消息透露，关于陆军的改革，其实先前互联网上已有所透露，有不少与实施方案相符。例如，取消军级建制，改以以师为大单位。现有18个集团军，将缩编为14个师，外加由空军划归陆军的空15师(即空降兵)，构成陆军基本作战部队。这15个作战师，根据战略方向的重要性配置，大致四大战区每个战区配置3至4个师。<br>
+    <br>
+    另外，陆军总部下辖若干独立的防空旅、特种作战旅、战役战术导弹旅和专门用来作战训练的蓝军旅(部队训练模拟假想敌，配属陆军各战术合同训练基地)。每个师下辖三个作战旅和一个陆航旅，以及其它常规作战保障部队；旅为基本战术部队，编制平时相对固定，作战时根据任务需要，在师的编成内作相应调整。全师员额约为1.6万人。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_17610.html">博闻社报道全文</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509061057" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 111057       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509050644.shtml" target="boxun-mirror">访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频请看博讯热点：“麻雀行动”</a>
 </h2>
 <p><tr>
@@ -650,18 +689,6 @@
 <b></p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508252306.shtml" target="boxun-mirror">病危中李鹏不忘9.3登天安门观礼阅兵请看博讯热点：李鹏家族</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>病危中李鹏不忘9.3登天安门观礼阅兵<br><font color="blue" size="2">请看博讯热点：<a href="/hot/lipeng.shtml">李鹏家族
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508252306" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】纪念抗日战争胜利70周年9.3大阅兵万事具备，如箭待发。中共高层正就阅兵主席台观礼的安排进行协商，包括胡锦涛、江泽民等前任领导人如何安排等。已病危卧床的前总理李鹏被征询意见时表示，如身体许可“希望和同志们一起</p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
