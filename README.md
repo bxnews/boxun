@@ -19,6 +19,40 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/z_special/2015/09/201509092325.shtml" target="boxun-mirror">60年前的枪声：一起“破坏粮食政策”案件</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>60年前的枪声：一起“破坏粮食政策”案件<br><font color="#000fC0">(<small>博讯北京时间2015年9月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=z_special201509092325" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     沈秀章老人（88岁），2013年冬作者拍摄。<br>
+    <img src="/news/images/2015/09/201509092325z_special1.jpg" alt="60年前的枪声：一起“破坏粮食政策”案件"><p><br>
+    <br></p>
+<center><font size="4"><b>纪实文学</b></font></center>
+<br>
+    题记： 1918年，列宁在《关于粮食专卖法令的要点》和《对粮食专卖法令的补充》中宣布：凡有余粮而不把余粮运到收粮站者一律视为人民的敌人。<br>
+    <br>
+    作者：鸿路<br>
+    <br><center><font size="4"><b>（一）</b></font></center>
+<br>
+    <br>
+    1954年的冬天．宽甸山沟冻的鸡翘腿狗呲牙。<br>
+    天落黑的也早，点上灯也是影影绰绰的。因为穷，为了省油，就在隔墙上凿个窟窿，油灯放在那里，这样可以里外借光。所以，光总是微弱的半明半暗。<br>
+    沈秀章蹲在外屋灶坑旁，摆弄着灶膛里的火，大锅里熬着鲫鱼汤，里屋炕上的婴儿啼哭着，他是饿的，老婆生下这孩子就缺奶。听说，鲫鱼汤能下奶，于是，沈秀章下河凿冰，好不容易抓了两条上来。<br>
+     “哐”的一声，门被撞开了，进来两个男人。女人猫月子，别人家的汉子是不能串门的，这是规矩，要不门上怎么挂个红布条呢！那是亮“红灯”。 <br>
+    虽然看不清来人的模样，却可以断定不是本村人。沈秀章有些不安，就问：“你们找谁呀？”<br>
+    “抓猪崽子（买猪崽）。”<br>
+    “俺家没有，老婆坐月子，你们赶紧走吧！”<br>
+    “咳！你这人够嘎咕的，进屋暖和缓和脚不行吗？”说着，他俩就掀开门帘进了“产妇室”，四只眼睛滴溜溜地转悠。<br>
+    沈秀章跟着也进了里屋。<br>
+    “你就叫沈秀章吗?”<br>
+    沈秀章愣愣地点了一下头。<br>
+    “马上跟我们走一趟！”<br>
+     “上哪去？我在伺候月子呀！”沈秀章的心里就像揣个兔子突突直跳<br>
+    “别他妈的破裤子缠腿，</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509061057.shtml" target="boxun-mirror">军队改革方案下周内部宣布首改陆军</a>
 </h2>
 <p><tr>
@@ -628,43 +662,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508270357.shtml" target="boxun-mirror">玩残大阅兵刘云山、习近平暗中较劲请看博讯热点：刘云山</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>玩残大阅兵 刘云山、习近平暗中较劲<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liuyunshan.shtml">刘云山
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508270357" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】随着9.3大阅兵日近，各项准备工作基本就绪，唯一令习李恼火的就是股市，一点不给面子，中央再度对银行「降准」甚至连全民养老金都搭进去了，依然跌个不停，与阅兵应有的气氛背道而行，情急之下只好下令「抓人」，周二晚上一气宣布拘查三个机构10多位相关人士，图杀一儆百，警告那些在股市不知天高地厚的搞事者。<br>
-    <br>
-      知情者指，习近平本来提出这次纪念活动取名叫「中国人民反法西斯战争胜利70周年」，既与国际同轨，也避开表面上针对日本的意思，但刘云山把持的宣传部门硬用「抗日」称谓，而且把宣传做足了，想改也无法改，现在只好两个叠加，叫做「纪念中国人民抗日战争暨世界反法西斯战争胜利70周年阅兵式」，又长又拗口不说，最终还是成为日本等相关国家拒绝参加的借口。或许，让习近平在大阅兵中威信扫地，正是刘背后的意思。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    <a href="http://bowenpress.com/news/bowen_14916.html">博闻社报道全文</a><br>
-    <br>
-        <br>
-    <br>
-        <p><strong>博闻强记、洞察中国</strong>：关注博闻精彩报道，推特（<a href="http://twitter.com/bowenpress">@bowenpress</a>）、脸书（<a href="http://facebook.com/bowenpress">@bowenpress</a>）</p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508270357" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4100357       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
