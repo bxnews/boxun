@@ -19,6 +19,73 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509102304.shtml" target="boxun-mirror">中共对台军演习近平批准意在警告马英九国民党</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共对台军演 习近平批准意在警告马英九国民党<br><font color="#000fC0">(<small>博讯北京时间2015年9月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509102304" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_18660.html">博闻社独家</a>】台湾军方今晨模拟解放军登陆开展海陆空三军“联兴操演”之际，中共军方也高调宣告明天开始在台湾海峡实弹军演，为多年来罕见高调，由于时值台湾大选日近，加上北京刚刚大阅兵，本社获悉，此演习为军委主席习近平亲自批准，因北京已判定绿营会上台，不满马英九国民党逼害连战参加北京阅兵,故有意给国民党难堪，并警告蔡英文上台后勿抱幻想。台国防部称情况已在掌握之中.<br>
+    <br>
+     中国海事局网站今日发布消息指出，中国人民解放军11日至13日15时至17时，将于台湾海峡四点连线范围：24-42.17N/118-43.78E、24-44.78N/118-47.67E、24-40.95N/118-49.07E、24-38.13N/118-45.00E内行实弹射击军事演习，射击高度8千米，禁止船只驶入。上述地区为福建晋江对面海域,正对台湾本岛. 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+     台湾2016年总统大选与立委选举战情渐炙，解放军此时对台湾海峡实弹军演，时机纷外敏感，本社获悉，此演习为中共军委主席习近平亲自批准，因北京已判定绿营会上台，当局不满马英九为首的国民党批连战参加北京阅兵,故要给国民党脸色，并对台示硬，警告蔡英文上台后不要抱有幻想搞台独。中共判断,此演习对两岸关系利大于弊。<br>
+    <br>
+    知情人士判断中共此举除回应台湾“联兴操演”外，亦具警告意味，即借此告知民进党候选人蔡英文勿有“脱序躁进”之举.台湾的国防部发言人罗绍和表示，福建解放军地面部队会在围头外海约14</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509102307.shtml" target="boxun-mirror">广西周永康:前主席陆兵女婿吴东骗贷600亿雇凶杀人被捕</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>广西周永康:前主席陆兵女婿吴东骗贷600亿雇凶杀人被捕<br><font color="#000fC0">(<small>博讯北京时间2015年9月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509102307" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <a href="http://bowenpress.com/news/bowen_18608.html">博闻社图文报道原文</a><br>
+    <br>
+     【博闻社独家】2014年5月10日许，广西柳州发生一宗砍人事件，柳州银行董事长李耀清在社区门外被人用菜刀猛砍，刀刀见骨。事发后警立案侦察，但案情秘而不宣，直到今年7月柳州城中区法院才对12名被告人开审，但迄今仍未判决。本社获悉，本案的幕后涉广西著名富商吴东，而吴东则是广西自治区政府前主席陆兵的女婿，吴东已因涉向银行骗贷600亿被捕，陆兵也进入中纪委的法眼。据中纪委知情人士形容，陆兵堪可誉为「广西周永康」。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    警方事后查明，砍人者吴斌，为吴东儿子所雇。因2014年柳州银行对吴东家族的财富王国贷款进行风险调查，引发吴东家族成员不满，吴东之子雇人当街将柳州银行董事长李耀清砍成重伤，不料此案引爆前自治区政府主席家族数百亿骗贷案，更引爆广西高层首次正面交锋内幕。<br>
+    <br>
+     现年47岁的吴东广西博白县旺茂镇农家出身，童年被其父亲送去学习杂技，后入博白杂技团往全国各地表演。不久入博白造纸厂任领导司机，由于头脑活络，最后执掌该厂成为厂长。后离职去北海办北海新特药药业公司，做药品销售购销，创办海生药业集团。<br>
+    <br>
+    2000年前吴东在广西算不有名，早年与一位名叫阿萍的博白女性结婚，两人共育有5名子女，和发妻的婚姻在2005年走到尽头。离婚后吴东迅速找到了续弦，她就是时任广西区政府主席陆兵的女儿。当时已是5个孩子父亲的吴东如何把陆兵主席的女儿搞到手，本社获悉就是靠钱。<br>
+    <br>
+    吴东出手阔绰，当时陆公主在广西区政府驻北京办事处上班，吴东在北京向公主提供多辆世界名车专用，还用私人飞机载陆公主来往北京广西，至于私人飞机是私有还是租赁则无从考证。总之，吴东靠钱成为“主席女婿”，其财富王国迅速膨涨。他本人也成为广西商会副会长。<br>
+    <br>
+      仗着岳父和高官的关系，吴东旗下的中美天元投资集团迅速成为广西著名私企，涉猎地产、金融投资等领域，雇员最多时逾万人；靠着权力和腐蚀官员，旗下企业在广西各级银行疯狂贷款达600亿。2008年陆兵辞任主席，升全国人大民族委副主任，但势力依旧，吴东仍仗着岳父权势大肆</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/z_special/2015/09/201509092325.shtml" target="boxun-mirror">60年前的枪声：一起“破坏粮食政策”案件</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -615,53 +682,6 @@
      来自人民日报社的消息对本社指，人民网副董事长、总裁廖</td></tr></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508280317.shtml" target="boxun-mirror">习近平打虎指向中宣部人民日报社长情人被抓请看博讯热点：令计划</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平打虎指向中宣部 人民日报社长情人被抓<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508280317" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com">博闻社独家</a>】 北京财新网8月27日透露，人民网副董事长、总裁廖</td></tr></p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508280258.shtml" target="boxun-mirror">解放军改革方案将宣布七大军区变四大战区请看博讯热点：军队高层</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>解放军改革方案将宣布 七大军区变四大战区<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年8月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508280258" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com">博闻社独家</a>】本社获悉，盛传已久的中共军队改革方案水落石出，将在北京9.3大阅兵后正式对外宣布。中国军队这次改革堪称是翻天覆地、“脱胎换骨式”的变化，解放军从上到下，从军委总部到连队基层都大变身；涉及军队体制布局、军兵种重组等，以至有军方人士对本社称，改革后解放军“跟美军差不多”了。<br>
-    <br>
-     来自军方的消息透露，军队改革方案其实今年初已经中央军委批覆同意，但文件下发后意见反弹比较多，主要是高级将领中有不同看法，特别七大军区撤消、战区重组，涉及到众多将领的实际利益。比如，军委四总部要缩编为中央军委机关的内设职能部门(其中总后和总装要合并)，涉及大批将官岗位调整，谁上谁下必将有矛盾。  
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    又比如，几大军区撤消后，新任战区将领将有名无实，他们就象古时的顾命钦差大臣，巡守一方却无调兵遣将的权力，而且他们需到新防地任职，新防地又无法提供原驻地那么好的生活条件，比如原沈阳军区并入东北战区后，新任将领要赴北京任职，但北京却难以提供他们在沈阳的住房标准，故土难舍。<br>
-    <br>
-    “阻力主要在高级军官，但他们的理由都不是反对军队改革，而是希望改革更加顺利。”军方知情者对本社指，在进行大量的思想工作，以及就众多实际问题进行协调，确定解决方向后，习近平拍板决定，在纪念抗日战争胜利及世界反法西斯战争胜利70周年活动结束后，正式启动军队改革。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_15066.html">完整</a>
-</td></tr></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
