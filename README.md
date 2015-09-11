@@ -47,7 +47,7 @@
                        <br>
     去年9月曾传中共与梵蒂冈建交有望，但当时针对记者致电询问，梵蒂冈对外关系秘书让・路易・托朗（Jean Louis Tauran）办公室官员表示“不可能对此报道做出任何评论，一切以梵蒂冈官方新闻发布为</td></tr></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509102304.shtml" target="boxun-mirror">中共对台军演习近平批准意在警告马英九国民党</a>
 </h2>
