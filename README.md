@@ -19,6 +19,36 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509111152.shtml" target="boxun-mirror">梵蒂冈最快年底前抛弃台北与北京建交</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>梵蒂冈最快年底前抛弃台北与北京建交<br><font color="#000fC0">(<small>博讯北京时间2015年9月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509111152" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_18826.html">博闻社独家</a>】梵蒂冈与台湾断交投靠北京再有传闻。本社获悉，梵蒂冈最快有可能在今年底前或明年台湾大选后，宣布与北京建交。本社致电台湾外交部求证，接电职员非常紧张反问记者在何处看到公告。台湾驻梵蒂冈大使馆表示不便透露。梵蒂冈外事单位表示不接受电话采访。<br>
+    <br>
+      中梵关系多年来卡在主教任命问题而停滞不前，但新任教宗方济各上任后动作频频，主动向北京示好，去年3月方济各罕见透露，已收到中国国家主席习近平的回信，并则传出中梵曾经谈判，虽被教廷否认，但都被视为双方关系改善征兆。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    去年9月曾传中共与梵蒂冈建交有望，但当时针对记者致电询问，梵蒂冈对外关系秘书让・路易・托朗（Jean Louis Tauran）办公室官员表示“不可能对此报道做出任何评论，一切以梵蒂冈官方新闻发布为</td></tr></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509102304.shtml" target="boxun-mirror">中共对台军演习近平批准意在警告马英九国民党</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -670,18 +700,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508291016.shtml" target="boxun-mirror">《人民日报》社长杨振武被举报滥日人民</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>《人民日报》社长杨振武被举报滥日人民<br><font color="#000fC0">(<small>博讯北京时间2015年8月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508291016" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】隶属中共中央喉舌《人民日报》旗下的A股上市公司人民网高层涉贪腐案被拘查事件未了。继本社揭露被检察机关拘查的人民网董事、副总裁陈智霞与《人民日报》现任社长杨振武是情人通奸关系，本社又获悉，杨振武还被举报与人民网另一位女性高管有通奸关系，有关「《人民日报》社长滥日人民」的举报信已到了中纪委书记王岐山的案头。目前中纪委正就举报的问题进行查证。<br>
-    <br>
-     来自人民日报社的消息对本社指，人民网副董事长、总裁廖</td></tr></p>
-<p>
-	<small> ============== 13天前</small>
 </p>
 <table>
     <tr>
