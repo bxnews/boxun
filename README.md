@@ -82,7 +82,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509120120.shtml" target="boxun-mirror">为习近平访美擦鞋出丑　中宣部下令当事者补救</a>
 </h2>
@@ -125,7 +125,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509111152.shtml" target="boxun-mirror">梵蒂冈最快年底前抛弃台北与北京建交</a>
 </h2>
