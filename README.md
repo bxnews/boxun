@@ -19,6 +19,49 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509120120.shtml" target="boxun-mirror">为习近平访美擦鞋出丑　中宣部下令当事者补救</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>为习近平访美擦鞋出丑　中宣部下令当事者补救<br><font color="#000fC0">(<small>博讯北京时间2015年9月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509120120" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】中共党媒自我炒作自己人在纽时花巨资做广告为习近平来访造势，被海外揭穿后大丢颜面，本社获悉，中宣部下令有关媒体和具体经办人想法弥补，于是环球网自爆花钱买广告，出钱刊广告者也匆匆出面向北京媒体澄清,上演一出欲盖弥彰滑稽戏，被外界耻笑。<br>
+    <br>
+      中共官媒环球网9月9日刊登题为【习近平访美倒计时：《纽约时报》推整版宣传广告高调力挺】一文，令外界误以为是纽约时报为迎接习来访，主动用整彩色广告为习近平来访造势，后被本社等海外媒体揭露，有关广告其实为中共驻美机构动用公帑十多万美元，在纽时的擦鞋行径。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    本社获悉，事件被海外媒体揭露后，使中共颜面尽失，中宣部下令当事机构和人员紧急采取补救措施，以免丑闻被炒大，影响习近平本月22日访美。<br>
+    <br>
+    于是，环球网于9月10日又推出题为【《纽约时报》刊整版习近平访美广告 回击美国社会杂音】之后续报导，主动透露有关广告是官方北京时代华语有限公司在美国的时代出版公司总裁朱大平，花了10万美元在纽时所刊广告。<br>
+    <br>
+    而朱大平本人，则主动接受北京媒体专访，否认自己曾与中国官方接触，有关在纽约时报的广告“纯属民间行为”，这种画蛇添足式的解释，反而坐实了中共当局处理政治丑闻的手法低劣。资料显示，朱大平曾任职于北京市委宣传部，2008年成立了北京时代华语图书公司，2011年进军海外。<br>
+    <br>
+     根据本社了解，“美国时代出版公司”为“北京时代华语图书股份有限公司”于美国成立的全资子公司，于名称上刻意误导外界该司为美“时代华纳”公司，殊不知其完全为中资体质，与时代华纳毫无关系；且该司出版之《习近平时代》和《习大大说如何读经典》两本英文图书，则为中共官方出版品。<br>
+    <br>
+     朱大平称，就其观察，因中国对美传输的  （<a href="http://bowenpress.com/news/bowen_18890.html">博闻社报道全文</a>）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509120120" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2040120       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509111152.shtml" target="boxun-mirror">梵蒂冈最快年底前抛弃台北与北京建交</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -653,53 +696,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508301309.shtml" target="boxun-mirror">中共军队改革：军官职业化出台军队势掀“裁官潮”</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中共军队改革：军官职业化出台 军队势掀“裁官潮”<br><font color="#000fC0">(<small>博讯北京时间2015年8月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508301309" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】本社日前透露，中共决从在9.3大阅兵后公布并开始推行军队改革方案，这次改革堪称是“脱胎换骨”式，上至军委总部、下至基层部队都涉及，特别是指挥机构大调整让人刮目一新。根据改革方案，军队正式推行军官职业化制度，为此将大幅精减现役军官，新一轮军队干部“转业潮”无可避免。同时，现行的军官服役条例等政策亦会改变。<br>
-    <br>
-     军方消息指，军官职业化是军队改革很重要的一部份，为推行这项改革措施，军队首先要对军官队伍进行一次“大减肥”，大批军官面临被精简退伍，再根据法律确定军官的员额，进行选拔、培养、任命，然后用高薪养起他们，给他们提供长期服役、直至退休的政策保障，服役期间享受各种优惠待遇和社会报偿。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    军队改革方案显示，为军官职业化制度，全军将大幅压缩军官规模，尤其是陆军，现有的18个集团军将被精简优化，降低官兵比例，重新确定军官总员额，确定不同衔级军官比例、不同年龄军官比例、机关基层军官比例、军兵种军官比例，将现行军官粗放的“大进大出”调整为精确设计的“小进小出”。<br>
-    <br>
-     目前，军队连、营、团等军官是有服役年限的，服役一定年限后，如果没有升职，需要转业或退役。建立军官职业化制度后，将延长军官服役年龄，只要愿意继续服役，即使没有到更高的职位，也可以继续服役，军人职业化后，如果原来的军官愿意继续工作，同时又熟悉情况，就可以服役到退休，而不受服役年限的限制。<br>
-    <br>
-    消息指，推行军官职业化将有利于部队稳定，同时也给地方减轻了安排转业部队干部的压力。另外，军官职业化制度实行后，干部服役到退休，不需要地方安排，可给一定的养老金或退休金，借鉴国外的做法，让军人退休后有稳定的生活。<br>
-    <br>
-    军官职业化其实上届军委已开始试行，先后出台了《指挥军官考核评价实施办法》、《参谋军官考核评价实施办法》和《专业技术军官考核评价实施办法》，尤其是专业技术军官，因属专业人员，争议不大，容易推行。现行的士官制度即其一。<br>
-    <br>
-    但对于更大规模的指挥系列、参谋系列的军官推行职业化，因涉及裁军减员及要求政府大幅增加军费等问题，步履维艰。只有习近平上台后，<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_15612.html">博闻社全文报道</a><br>
-    <br>
-    －
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508301309" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1831309       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
 </p>
 <table>
     <tr>
