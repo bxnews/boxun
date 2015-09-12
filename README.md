@@ -60,7 +60,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509111152.shtml" target="boxun-mirror">梵蒂冈最快年底前抛弃台北与北京建交</a>
 </h2>
