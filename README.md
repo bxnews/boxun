@@ -19,6 +19,25 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509130255.shtml" target="boxun-mirror">广东村民抗议核电站强占土地遭2000警镇压百人被拘请看博讯热点：突发事件</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>广东村民抗议核电站强占土地遭2000警镇压百人被拘<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509130255" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      9月12日，广东省陆丰市碣石镇上林村村民因连日阻工抗议核电站强占土地，遭到约2000警察两次镇压，包括多名小孩在内的大量村民被打伤，共计上百村民被抓捕。<br>
+    <br>
+    村民透露，自2003年中广核电集团选址陆丰市碣石镇田尾山作为陆丰核电站厂址以来，中广核电集团与当地政府相互勾结，多次动用武装警察力量强占农民土地1500多亩，拒不赔偿。在此期间，上林3000村民曾多次维权，在村民的联合抗议下，当地政府只象征性给予每平方12元的补偿金。<br>
+    <br>
+    今年8月开始，上林村民再次发起示威，连日到核电站施工现场阻工抗议。9月12日凌晨3点左右，当地政府突然出动2000携带警犬手持警棍的警察，将上林村围得水泄不通，对维权村民进行持续5个小时的暴力镇压，直至当天上午8点左右才离开。<br>
+    <br>
+    据村民透露，期间村内的网络通信被切断，有包括小孩、妇女、老人在内的大量村民被打伤，数十名村民被抓捕。<br>
+    <br>
+    村民“俏</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509121319.shtml" target="boxun-mirror">国企改革文件爆光逼入市场竞争末日将临</a>
 </h2>
 <p><tr>
@@ -677,49 +696,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/08/201508311044.shtml" target="boxun-mirror">习近平破规矩偷偷出席汪东兴葬礼</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平破规矩 偷偷出席汪东兴葬礼<br><font color="#000fC0">(<small>博讯北京时间2015年8月31日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201508311044" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】8月27日，中共中央前副主席、毛泽东生前最器重的大内总管汪东兴遗体告别，中共喉舌媒体没有报道，外界以为中共高层无人送别，一度引起内地左右两派骂娘，轰中共现任领导人无情无义。<br>
-    <br>
-     本社获悉，其实当天中共总书记习近平亲自去八宝山为汪东兴送别，只不过因为汪东兴去世前，只是享受正部级（正大军区级）的前领导人，不够习近平送别的级别，习只能“偷偷”出席了汪东兴的告别礼，官媒也不能报道。人到礼到，没送花圈，只向汪遗体鞠躬，跟汪家人握手问候。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    据悉，当天去给汪东兴送别的，还有中共政治局常委，全国人大委员长张德江和中纪委书记王岐山。他们都是“偷偷”去的，由于不符合中共党内规矩，只能不见报，不上电视，而且中办交代汪家人，勿对外张扬。<br>
-    <br>
-    消息指，习近平去给汪东兴送别，是临时决定的，中办主任栗战书在26号才获习告知，决定第二天去给汪东兴送别，栗大为紧张，紧急部署，告知政治局其他几位常委，最后决定张德江、王岐山也去，中办并派人与汪家联系。<br>
-    <br>
-    据了解，虽然汪东兴在中共11大时为为中央政治局常委、中共中央副主席。但后来被邓小平赶下台后，级别直落千丈，12大时仅为中央候补委员，13大为中顾委委员。最后达不到去世后政治局常委要送别的副国级。按规矩，正部和军队大军区正职去世，是不必常委出席。<br>
-    <br>
-      故此，习近平只能以私人名义出席汪东兴的葬礼，媒体不报道。这样的方法也创下中共政坛葬礼先例。消息指，此举反映出习近平太子党的性格，做事经常不按规矩，出人意外。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_15810.html">博闻社报道全文</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201508311044" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 171044       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
 </p>
 <table>
     <tr>
