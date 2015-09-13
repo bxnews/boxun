@@ -36,7 +36,7 @@
     <br>
     村民“俏</td></tr></p>
 <p>
-	<small> ============== 5分钟前</small>
+	<small> ============== 10分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509121319.shtml" target="boxun-mirror">国企改革文件爆光逼入市场竞争末日将临</a>
 </h2>
