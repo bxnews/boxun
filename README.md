@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509130255.shtml" target="boxun-mirror">广东村民抗议核电站强占土地遭2000警镇压百人被拘请看博讯热点：突发事件</a>
 </h2>
