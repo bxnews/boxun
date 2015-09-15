@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509151804.shtml" target="boxun-mirror">涉宋林桉禁出国贺国强子贺锦涛再被中纪委约谈请看博讯热点：贺国强</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>涉宋林桉禁出国 贺国强子贺锦涛再被中纪委约谈<br><font color="blue" size="2">请看博讯热点：<a href="/hot/hgq.shtml">贺国强
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月15日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509151804" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_19823.html">博</a>
+</td></tr></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509150133.shtml" target="boxun-mirror">山东临沂政府暴力强拆烧死村民现场惨不忍睹请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -676,53 +688,6 @@
      本社早前已披露，根据习近平的指示，中办早前已向所有卸任的副国级以上领导人征询意见，了解他们是否能在9月3日登天安门观礼。得到的回复几乎都是肯定和踊跃的，包括已住在医院、两次下达病危通知的前总理李鹏，也表示「希望和同志们一起</p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509010433.shtml" target="boxun-mirror">中信证卷、英仕曼、财经杂志涉联手做空股市请看博讯热点：股市危机</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中信证卷、英仕曼、财经杂志涉联手做空股市<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509010433" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="http://bowenpress.com/wp-content/uploads/2015/09/f3ccdd27d2000e3f9255a7e3e2c488002" width="590"><br>
-    【博闻社】上周中信证券总经理徐刚被公安机关带走协助调查，新华社报道称中信证券股份有限公司徐某等8人涉嫌违法从事证券交易活动被要求协助调查。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       新华网北京8月30日报道。《财经》杂志社记者王晓璐因涉嫌伙同他人编造并传播证券、期货交易虚假信息，中国证监会工作人员刘书帆因涉嫌内幕交易、伪造公文印章、受贿等犯罪，于8月30日被依法采取刑事强制措施。<br>
-    <br>
-    彭博社8月31日下午消息，英仕曼集团中国区主席李亦非被中国警方带走协助调查，调查与近期证券市场的大幅波动相关。<br>
-    <br>
-    博闻社据消息人士透露，这三起抓人事件有内幕，不是孤立事件。中信证卷的董事长王东明、《财经》杂志总编王波明是亲兄弟，而英仕曼中国董事长李亦非是王东明、王波明兄弟的好友。消息透露，英仕曼调动上百亿英镑资金配合王氏兄弟，恶意做空股市。消息人士表示，王氏兄弟甚至其背后的集团才是做空的真正黑手，这次调查是否能将王氏兄弟抓捕归案，才是看点，也是对现政权能否解决股市痼疾的关键。<br>
-    <br>
-    以下是四个实体关键人物的背景资料：<br>
-    <br>
-    中信证卷的董事长王东明、《财经》杂志总编王波明是外交部前副部长之子、、、<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_16083.html">博闻社报道全文</a><br>
-    <br>
-    －
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509010433" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2070433       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
