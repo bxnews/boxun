@@ -19,6 +19,60 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509150133.shtml" target="boxun-mirror">山东临沂政府暴力强拆烧死村民现场惨不忍睹请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>山东临沂政府暴力强拆烧死村民现场惨不忍睹<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月15日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509150133" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      9月14日，山东省临沂市平邑县地方镇后东固村发生强拆惨案，一名村民被活活烧死。据村民描述，当天上午，镇上的政府人员带领大量打手，到村里强拆村民张纪民家房屋，期间发生冲突，张纪民被活活烧死，张纪民妻子被打伤后扔到路边，生死不明。<br>
+    <br>
+    村民“张德志_THU”发帖说：2015年9月14日，山东省临沂市平邑县地方镇后东固村发生强拆住宅致人死亡事件。上午镇上政府人员带领大量打手到后东固村张纪民家进行强拆。将张纪民的妻子用车抓走后残忍殴打后扔在马路边，生死不明。<br>
+    <br>
+    “张德志_THU”说：在十一点多拆迁人员进行强拆并和张纪民发生冲突，张纪民被烧死，尸体惨不忍睹！家里只剩下两个未成年的女儿。希望好心人士能够帮助这个家庭，还死者一个公道。<br>
+    <br>
+    现场图片显示，户主张纪民的房子已被完全烧毁，死者尸体已被烧的面目全非成焦炭状，惨不忍睹。<br>
+    <br>
+    网友“olovezheno”发帖说：强打强拆，入室放火，女被活活打死，男被他们放火在屋里活活烧死。用汽油烧的！人啊，活着不容易。把闹事的逮了，雇的小痞子用汽油瓶子烧的！<br>
+    <br>
+    网友“名字有点长go”说：听说拆迁工作都做得差不多了同意搬了，可是镇上态度很强硬必须得今天拆了修路，这才有了这一出强拆杀人。<br>
+    <br>
+    网友“幸福君君227”说：我听再现场的人说，本来想吓唬吓唬他们叫他们出来，没想到男的就是不出来，火势一大人都跑了。<br>
+    <br>
+    也有网友表示，系张纪民抵抗时自己引发的大火。<br>
+    <br>
+    网友“JFJ高小杰”说：临沂市平邑县地方镇后东固村因强拆一村民抱煤气罐在家中引大火被活活烧死。<br>
+    <br>
+    网友“哈哈笑笑08”说：听朋友有政府带六十来个人去的，把他媳妇打了，他看着打不过了才点的汽油。<br>
+    <br>
+    （网络图片）<br>
+    <img src="/news/images/2015/09/201509150133china1.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"><p><br>
+    <img src="/news/images/2015/09/201509150133china2.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509150133china3.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509150133china4.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509150133china5.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509150133china6.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509150133china7.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509150133china8.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
+<p><br>
+    <img src="/news/images/2015/09/201509150133china9.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509150133" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509140921061.jpg http://upload.bx.tl/news/temp13/201509140921062.jpg http://upload.bx.tl/news/temp13/201509140921063.jpg http://upload.bx.tl/news/temp13/201509140921064.jpg http://upload.bx.tl/news/temp13/201509140921201.jpg http://upload.bx.tl/news/temp13/201509140921202.jpg http://upload.bx.tl/news/temp13/201509140921203.jpg http://upload.bx.tl/news/temp13/201509140921204.jpg http://upload.bx.tl/news/temp13/201509140921281.jpg--> 4330133       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509140101.shtml" target="boxun-mirror">胡春华仕途没落广东抓信力建给中南海添乱</a>
 </h2>
 <p><tr>
@@ -664,44 +718,6 @@
     <br>
     －
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509010433" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2070433       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509011415.shtml" target="boxun-mirror">图谋阅兵释放鸽子炸弹袭击北京抓捕数人</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>图谋阅兵释放鸽子炸弹袭击 北京抓捕数人<br><font color="#000fC0">(<small>博讯北京时间2015年9月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509011415" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】博闻社透过层层“封锁”，刚从阅兵总指挥部独家获悉，多名蓄意在9月3日释放“鸽子炸弹”的恐袭嫌疑人已经被捕，现正在连夜突击审讯中；由国安和特警等相关部门，正在动用一切“手段”，以进一步确认他们的具体身份、族裔和动机以及有无更多同谋。<br>
-    博闻社独家还了解到，这些嫌疑人早在几个月前一直在策划破坏阅兵，最后确认可行的方式是在阅兵当天，当飞机飞临天安门上空时，在北京二环主城区的胡同里放飞大量鸽子，以此充当炸弹袭击阅兵现场。<br>
-     为了确保受阅战机的绝对安全，相关部门一直在做各种“驱鸟试验”；阅兵正日益逼近，在节骨眼上发生这样的事，无疑对重中之重的安保问题，又提出了非常严峻的挑战；阅兵总指挥部已经下达密令，加大力度彻查北京各个角落，阅兵期间，核心区域从空中到地面绝对禁止任何“飞禽走兽”，绝不允许存在疑点死角。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       本社获悉，8月31日对参加阅兵的军人尤其是飞行员再次做政治思想审查和身体审查，所谓思想审查就是谈心和做问答题。<br>
-    博闻社昨天独家披露，高层曾担心参加阅兵飞行表演的飞机撞击天安门，因此对空军的审查更为严格。<br>
-    博闻社曾披露，天津大爆炸时机和地点，以及仓库和储存货物都有深厚背景，不排除大爆炸针对原计划去塘沽开会的常委。更多信息显示，大爆炸更可能是人为设计。<br>
-    <br>
-    精彩独家报道，请用电脑或手机访问博闻社: <a href="http://bowenpress.com">http://bowenpress.com</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509011415" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4001415       
 <hr>
 <table width="620"><tr><td>
 <b></p>
