@@ -29,7 +29,7 @@
                 <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_19823.html">博</a>
 </td></tr></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509150133.shtml" target="boxun-mirror">山东临沂政府暴力强拆烧死村民现场惨不忍睹请看博讯热点：突发事件</a>
 </h2>
@@ -83,7 +83,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509140101.shtml" target="boxun-mirror">胡春华仕途没落广东抓信力建给中南海添乱</a>
 </h2>
