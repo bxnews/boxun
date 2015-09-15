@@ -71,7 +71,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 15分钟前</small>
+	<small> ============== 20分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509140101.shtml" target="boxun-mirror">胡春华仕途没落广东抓信力建给中南海添乱</a>
 </h2>
