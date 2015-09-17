@@ -19,6 +19,60 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509170611.shtml" target="boxun-mirror">中国"女巴菲特"刘央被指助贪官洗钱设局吞赃涉款200亿</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中国"女巴菲特"刘央被指助贪官洗钱 设局吞赃涉款200亿<br><font color="#000fC0">(<small>博讯北京时间2015年9月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509170611" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com">博闻社独家</a>】本社接到消息人士举报，指有「中国女巴菲特」之誉的西京投资管理公司（香港）主席刘央，在过去15至20年时间里，借基金形式为中国众多贪官家族理财洗钱，总额高达200亿元人民币；包括已落马的中共前中办主任令计划家族。更过份的是，刘央还被指贪官家族的「投资」到位后，又偷偷设局向当局「举报」，待贪官被抓将资金据为己有，手段令人侧目。本社透过电邮、手机短信向刘央的公司及其本人求证，但至发稿止仍未获回复。<br><center><font size="4"><b>举报者指，刘央帮内地贪官家族「理财」洗钱，是透过其名下西京投资管理公司旗下的几个基金（Atlantis Asian Fund，Atlantis China Fund，Atlantis China Healthcare Fund），而洗钱的银行户口则用刘央老公在香港汇丰银行的帐号，户名英文名是zhang zhongmin(中文音译：张忠民)，帐号为：0433－22411。</b></font></center>
+<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       举报材料显示，在过去过去15至20年时间里，刘央透过为贪官投资基金「代理理财」方式，为内地贪官家族洗钱高达200亿元；其中包括前中共中央办公厅主任、全国政协副主席令计划家族，令氏家族在香港、美国上市公司的资金也曾通过刘央的基金来投资运作。<br>
+    <br>
+    消息还透露，刘央最为过份的是，当贪官家族的“投资理财”巨款到了以后，又偷偷主动向中共当局举报，然后「配合调查」，待贪官被当局抓捕判监后，就将有关资金以「分红」或收取手续费等名义，据为己有。消息指有不少受害的贪官及家族提起此事，都摇头慨叹「想不到中国女巴菲特还这么黑」！<br>
+    <br>
+    知情者对本社透露，刘央还透过代理内地大老板买卖港股，赚取高额回佣。她还利用自己与内地财经金融界有富丰人脉的关系，在两地证券市场大搞内幕交易，并操纵市场。以至2015年美国专业财经电视台CNBC采访她时，都忍不住问她如此长袖善舞，「是不是有内幕消息」。<br>
+    55岁的刘央北京人，毕业于中央财经大学，该大学被誉为是中国财经金融高官的摇蓝，现任中共财经界不少名人都出自该校。毕业后曾在中信集团北京总部任职。1993年被派驻澳大利亚管理在当地上市的一只中国封闭式基金。2001年加入总部在悉尼的首域(First State）资产管理公司，任中国投资总监，1年后加入英资对冲基金公司西京投资管理公司，现为公司主席。<br>
+    <br>
+    在香港投资界，刘央是个非常引人注目的基金管理者。这不仅是她在基金经理这个男人占主导的圈子打出了一片天地，更由于她作为内地背景的华人，掌控一家声名显赫的老牌英资投资管理公司。众所周知，在国际外资管理公司里，迄今鲜有华人掌握真正的最终决策权。<br>
+    <br>
+    她现在管理的基金规模约39亿美元（合245亿元人民币），比尔•盖茨基金作为非银行机构QFII（境外投资机构）在中国的投资，2/3由西京打理，换言之，刘央是这位世界首富的“管家”之一；她因此被誉为「中国的女巴菲特」、「中国女股神」等。2012年3月她被《福布斯》评为50位亚洲“最有权势的女性”之一。<br>
+    <br>
+    刘央是如何获得西京投资主席此肥缺的，外界有多种传说。其中有指，2006年，英国合伙人Peter Irving在一次游艇事故中遇难，报道称“根据他的遗嘱将其在西京的部分股权，赠与‘对公司贡献达到一定比例的明星基金经理’。当时刘央因对西京的收入贡献高达80%而获得了股权，与另一创始人Tony Jordan成为联席主席”。<br>
+    <br>
+    但消息人士称，Peter Irving的死因和遗嘱值得进一步调查。<br>
+    <br>
+    报道还称，三年后，Tony Jordan做了心脏搭桥手术后决定退休，刘央买下他的股份。2011年3月日本大地震使三位创始合伙人中的最后一位，专注日本市场的70岁老人Ed Merner雄心不再，他主动提出将自己掌管的日本业务剥离，由刘央继承西京并希望她能将之发扬光大。<br>
+    <br>
+    以上报道真实性本社目前无法核实。在合伙人死亡、退出系列变故后，刘央买下母公司于是水到渠成。由刘央打理的西京投资 (香港)则在1999年成立。令人惊讶的是，西京投资(香港)的整个团队才8个人，管理的基金数目达到11只，资金规模更是高达19亿美元。<br>
+    <br>
+    刘央在牛市熊市经过3次大起大落，2003年香港沙斯(SARS)让刘央一举成名。当时人人自危，基金经理纷纷带着孩子“逃难”的时候，刘央一周内狂掷几千万美金成功抄底，“牛央”的名字至此传开。<br>
+    <br>
+    但有趣的是，如此一家知名的基金公司，其香港网址无法打开(http://www.atlantis-hk.com)；其西京投资集团(http://www.atlantis-investment.com)可打开，为纯英文网站，内容简陋，信息量也很少。<br>
+    <br>
+    博闻社报道【<a href="http://bowenpress.com/news/bowen_19413.html">原文</a>】
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509170611" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2240611       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509151804.shtml" target="boxun-mirror">涉宋林桉禁出国贺国强子贺锦涛再被中纪委约谈请看博讯热点：贺国强</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -673,19 +727,6 @@
              （2015年8月31日，写于澳大利亚悉尼北郊之“不老屯”）<br>
     <br><center><font size="4"><b></b></font></center>
 </td></tr></p>
-<p>
-	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509020611.shtml" target="boxun-mirror">9.3阅兵无健康问题卸任中共元老将全登台观礼</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>9.3阅兵无健康问题卸任中共元老将全登台观礼<br><font color="#000fC0">(<small>博讯北京时间2015年9月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509020611" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】北京9.3大阅兵的号声即将响起。本社从接近阅兵总指挥部人士处获悉，中共高层已决定，没有健康问题的卸任元老们，将全部参加阅兵盛典，登天安门观礼。此举意味着，外界可从9.3阅兵判断某些备受关注中共前高层的身体状况。<br>
-    <br>
-     本社早前已披露，根据习近平的指示，中办早前已向所有卸任的副国级以上领导人征询意见，了解他们是否能在9月3日登天安门观礼。得到的回复几乎都是肯定和踊跃的，包括已住在医院、两次下达病危通知的前总理李鹏，也表示「希望和同志们一起</p>
 <p>
 	<small> ============== 15天前</small>
 </p>
