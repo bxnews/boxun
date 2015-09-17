@@ -29,7 +29,7 @@
     <iframe width="420" height="315" src="https://www.youtube.com/embed/tgd_I2sJBC4" frameborder="0" allowfullscreen></iframe><br>
     博闻特约记者赵岩在香港就张晓明的此番言论采访了香港特</td></tr></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509170611.shtml" target="boxun-mirror">中国"女巴菲特"刘央被指助贪官洗钱设局吞赃涉款200亿</a>
 </h2>
@@ -83,7 +83,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509151804.shtml" target="boxun-mirror">涉宋林桉禁出国贺国强子贺锦涛再被中纪委约谈请看博讯热点：贺国强</a>
 </h2>
