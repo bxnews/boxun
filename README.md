@@ -71,7 +71,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5分钟前</small>
+	<small> ============== 10分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509151804.shtml" target="boxun-mirror">涉宋林桉禁出国贺国强子贺锦涛再被中纪委约谈请看博讯热点：贺国强</a>
 </h2>
