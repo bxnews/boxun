@@ -19,6 +19,47 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2015/09/201509180947.shtml" target="boxun-mirror">搭船赴美庇护搁浅台湾的青年都是泛蓝联盟骨干成员请看博讯热点：台海之争</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>搭船赴美庇护搁浅台湾的青年都是泛蓝联盟骨干成员<br><font color="blue" size="2">请看博讯热点：<a href="/hot/taiwan.shtml">台海之争
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月18日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201509180947" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    在博讯9月18日凌晨发出<a href="http://news.boxun.com/news/gb/taiwan/2015/09/201509180017.shtml">《搭船赴美庇护搁浅台湾的异议人士都是民国支持者》</a>之后，博讯记者进一步获悉，这五位青年都是中国大陆泛蓝联盟的骨干成员，其中王睿、苏黔龙还担任泛蓝联盟省级负责人。他们原本都是有优越生活，却选择反抗中共的暴政，并因此遭受迫害被迫流亡，准备搭船前往美国寻求政治庇护。下面是博讯记者获悉他们的一些情况：<br>
+    <br>
+    王睿，网名王中义，江苏南京人，2010年加入中国泛蓝联盟，因为工作务实低调，2012年被委托担任泛蓝江苏地区管理员，挖掘培养了很多年轻人。2013年组织同城聚会被行事拘留五天，然后被调到重庆，在重庆期间跟重庆山东等地区泛蓝同仁以及重庆四川民运敏感人物接触过密，加上因为曾经有南京派出所工作经历，被江苏国保重视而屡被骚扰恐吓无法工作。2014年8月借机赴台旅游而滞留台湾。 <br>
+    <br>
+    陆宁，江苏盐城人，退伍军官，因政治思想不正确被地方武装部骚扰、恐吓。2013年加入泛蓝，多次参加举旗举牌声援活动。2013年10月因在广州带两个退伍军人举牌声援网友被一群持枪武警抓捕，拘留十天，期间每天被暴打。2014年6月底跟泛蓝朋友一起去深圳声援香港占中在火车上被抓，身上财物被抢劫一空，随后江苏国保带回盐城软禁，护照被没收。之后几个月里，国保国安和地方武装部屡屡骚扰恐吓他和他的父母。<br>
+    <br>
+    石坚，江苏人，退伍军人。2012年结识陆宁，接触民主思想，并随其参加声援活动。 2013年底被当地警方抓回老家拘留，因为拒不认错被精神病四个月。<br>
+    <br>
+    苏黔龙，网名周中云，江苏淮安人。爷爷是国军，所以他家便因为政治成分不好一直受到迫害，他父亲50岁才有现在这个家庭，直到现在还受到村委会干部的欺负，后来看到更多社会不公，认为自己要有所作为。2012年结识王睿，加入泛蓝联盟，唤醒更多公民觉醒。后因同城聚会等原因遭拘留五天，拘留期间遭到打耳光、连续几十个小时不让睡觉等虐待。2013年，他为了致力于挖掘培养其他年轻人，辞去了在移动公司工作这个很多年轻人梦寐以求的职位。<br>
+    <br>
+    2014年2月12日，台湾陆委会主委王郁琦来南京中山陵前一天，他与秀才江湖、杨崇、贾榀、陈剑雄等大陆著名民运人士以及阿鸣、红尘颠倒、不太好先生等南京本地网友参与了在中山陵的举中华民国国旗传播真相，欢迎主委来首都南京的活动，引起了很大的影响。而后不断被国宝骚扰。2014年，由于对户外运动和无线电的热爱，多次被国保约谈，考取无线电协会资格证时也是遭到百般阻挠，成绩够了还不给证，最后多次协商才发给。<br>
+    <br>
+    为了这次投奔自由，他和这几个朋友策划了很久，努力在南京挣钱，低调行事，尽量不引起国保注意，吃住都在大货车上。最终几人经过好几个月的努力，积攒了些钱，将所有家当卖掉，拿这所有积攒的钱买了这艘二手船。修修补补，明明知道很危险，但为了脱离中共，几人丝毫没有犹豫。<br>
+    <br>
+    9月17日下午，江苏淮安警方到苏黔龙家，向其七十多岁的老父亲查问苏的情况。<br>
+    <br>
+    杨卢旖旎念大学时，在网路上发表文章遭国保调查威胁要开除学籍，毕业后仍多次遭国保调查喝茶约谈。<br>
+    <br>
+    <div align="center"><img src="http://news.boxun.com/news/images/2015/09/201509160037china1.jpg" width="500"></div>
+<br>
+    <br>
+    王睿（左一至四）、陆宁、苏黔龙、石坚、杨卢旖旎(右一)，在台湾会合后准备搭船前往美国前留影。(陈荣利提供)<br>
+    <br>
+    <div align="center"><img src="http://news.boxun.com/news/images/2015/09/201509160037china2.jpg" width="500"></div>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201509180947" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3240947       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/09/201509171342.shtml" target="boxun-mirror">视频：刘梦熊谈中联办主任张晓明特首地位超然论</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -676,48 +717,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509030220" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509021006381.jpg http://upload.bx.tl/news/temp13/201509021006382.jpg http://upload.bx.tl/news/temp13/201509021006383.jpg http://upload.bx.tl/news/temp13/201509021006384.jpg http://upload.bx.tl/news/temp13/201509021006571.jpg http://upload.bx.tl/news/temp13/201509021006572.jpg http://upload.bx.tl/news/temp13/201509021006573.jpg http://upload.bx.tl/news/temp13/201509021006574.jpg http://upload.bx.tl/news/temp13/201509021007021.jpg--> 700220       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509031334.shtml" target="boxun-mirror">视频：李鹏注射强心针现身天安门城楼阅兵请看博讯热点：李鹏家族</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：李鹏注射强心针现身天安门城楼阅兵<br><font color="blue" size="2">请看博讯热点：<a href="/hot/lipeng.shtml">李鹏家族
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509031334" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <iframe width="560" height="315" src="https://www.youtube.com/embed/8_oNttgWnYY" frameborder="0" allowfullscreen></iframe><br>
-    【博闻社】<a href="http://bowenpress.com/news/bowen_14252.html">本社8月24日曾报道</a>，病危中李鹏不忘9.3登天安门阅兵。今天李鹏现身天安门城楼，但专家医疗团队随时待命。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_16265.html">博闻社9月1日披露</a>，9.3阅兵无健康问题卸任中共元老将全登台观礼。今天果然老同志全部现身。<br>
-    <br>
-    <a href="http://bowenpress.com/wp-content/uploads/2015/09/63c85d8fea3a65f4a0888e30607c53a71"><img src="http://bowenpress.com/wp-content/uploads/2015/09/63c85d8fea3a65f4a0888e30607c53a71-300x164." alt="1" width="300" height="164" class="alignnone size-medium wp-image-16901"></a><br>
-    <a href="http://bowenpress.com/wp-content/uploads/2015/09/f26ccdd2626d26000e26f26262626a26e26e26c2626260026"><img class="alignnone size-medium wp-image-16734" src="http://bowenpress.com/wp-content/uploads/2015/09/f26ccdd2626d26000e26f26262626a26e26e26c2626260026-300x169." alt="1" width="300" height="169"></a><br>
-    <br>
-    消息人士称，为了回应国际社会对中共政局的担忧以及对江泽民种种不利传闻，江泽民向习近平不断施压，习近平最终妥协，决定让中共元老们集体露脸。不仅江泽民出现在天安门城楼，一直病重的李鹏也被特批注射强心针，并由医疗专家团队随时现场待命，以防不测。医疗队要李鹏每五分钟就“休息”一次。<br>
-    <br>
-    曾庆红也出现在天安门城楼。江泽民和胡锦涛并肩而站，但表情严肃，无言以对。<br>
-    <br>
-    阅兵后，中午将在人民大会堂举行盛大招待会，晚上还有庆祝文艺晚会，博闻社将独家全程跟踪镜头看不到的现场真相。<br>
-    <br>
-    习近平在天安门城楼观礼台上厚此薄彼，与俄罗斯总统相谈甚欢，却对其他外国元首和政要视而不见或顾左右而言他。<br>
-    <br>
-    阅兵总指挥刘云山为了弥补取消直播俄罗斯红场阅兵的失误，要求摄影师镜头对准习近平，尤其不能“走光？任何不该播出的镜头。<br>
-    <br>
-    李瑞环和张高丽在天安门城楼寒暄，似乎对天津大爆炸心照不宣。<br>
-    <br>
-    现场观众主要是“爱国”的港澳台同胞和海外侨报，中直机构和各部委主要领导的亲朋好友，受阅官兵亲友，老战士和外国友人和家属，经过反复审查的国内外媒体工作者。<br>
-    <a href="http://bowenpress.com/wp-content/uploads/2015/09/2020200020c20baf200ff2020a202020f20c2020f20202020b20"><img class="alignnone size-medium wp-image-16841" src="http://bowenpress.com/wp-content/uploads/2015/09/2020200020c20baf200ff2020a202020f20c2020f20202020b20-300x173." alt="2" width="300" height="173"></a><br>
-    为防不测，参阅直升机和战斗机、轰炸机数量做了压缩。为了减少国际社会的反感，全部阅兵规模比最初安排大幅缩水。<br>
-    <a href="http://bowenpress.com/wp-content/uploads/2015/09/2121210021c21baf210ff2121a212121f21c2121f21212121b21"><img class="alignnone size-medium wp-image-16855" src="http://bowenpress.com/wp-content/uploads/2015/09/2121210021c21baf210ff2121a212121f21c2121f21212121b21-300x168." alt="2" width="300" height="168"></a><br>
-    <br>
-    普京特意走到江泽民身边，俯身握手致意和亲切问候。<br>
-    天安门城楼观礼贵宾移步人民大会堂，盛大招待会即将举行。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509031334" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2431334       
 <hr>
 <table width="620"><tr><td>
 <b></p>
