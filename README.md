@@ -58,7 +58,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/09/201509171342.shtml" target="boxun-mirror">视频：刘梦熊谈中联办主任张晓明特首地位超然论</a>
 </h2>
