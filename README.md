@@ -71,7 +71,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/09/201509180947.shtml" target="boxun-mirror">搭船赴美庇护搁浅台湾的青年都是泛蓝联盟骨干成员请看博讯热点：台海之争</a>
 </h2>
@@ -112,7 +112,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/09/201509171342.shtml" target="boxun-mirror">视频：刘梦熊谈中联办主任张晓明特首地位超然论</a>
 </h2>
