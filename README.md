@@ -48,7 +48,7 @@
     <br>
     知情者又指，刘央仗着自己是内地中央财经大学毕业，与内地财经金融界，特别是金融监管部门关系较多的便利，在A股和H股大搞内幕交易，其方式之一是，主动找一些上市公司，向对方推销自己“推高股价”的方案，并以自己在两地监管部门“朋友如云”做炫</td></tr></p>
 <p>
-	<small> ============== 20分钟前</small>
+	<small> ============== 25分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509200120.shtml" target="boxun-mirror">中共军队改革：国防部扩编常万全让位</a>
 </h2>
@@ -87,7 +87,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 20分钟前</small>
+	<small> ============== 25分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509181119.shtml" target="boxun-mirror">出百亿救亚视幕后金主疑为「中国金融巨鳄」肖建华</a>
 </h2>
