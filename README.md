@@ -19,6 +19,76 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509200119.shtml" target="boxun-mirror">“中国女股神”刘央被指为上市公司设计内幕交易</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>“中国女股神”刘央被指为上市公司设计内幕交易<br><font color="#000fC0">(<small>博讯北京时间2015年9月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509200119" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_20381.html">博闻社独家</a>】本社日前独家披露有“中国女巴菲特”之誉的西京投资管理公司（香港）主席刘央，利用帮内地贪官富豪理财洗钱的机会“黑钱”，事件引起内地财富阶层反响，本社又接到多宗举报，列举刘央“黑钱”的事实；同时指刘央打着与内地及香港监管部门“关系熟络”名义，在A股和H股设计内幕交易，从中获利。举报还指刘央在香港包养小情人。<br>
+    <br>
+     举报指，被刘英帮助洗钱又被黑钱的内地贪官家族及富商，除了前中办主任令计划家族外，还有多位落马高官的家族，他们被中纪委纳入调查范围后，刘央又非常积极主动地“配合”当局调查，向当局交待这些官员财富在海外的“真实情况”，当然，这些财富都是要扣除刘央的基金不菲的管理费等费用后。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    消息指，被刘央用这种手法“黑钱”的内地贪官、问题富豪在过去两三年数以十计，涉及金额至少几十亿。以至于在内地有官场财富阶层私下破口大骂指，习近平、王岐山的反贪腐风暴，竟成了刘央和她的西京投资公司“发不义之财”的大好机会，“人家家破人亡，她渔翁得利，这钱来得也太容易了！”<br>
+    <br><center><font size="4"><b>本社日前已透露，在过去15至20年时间里，刘央透过其名下西京投资管理公司旗下的几个基金（Atlantis Asian Fund，Atlantis China Fund，Atlantis China Healthcare Fund）为内地富豪和贪官家族洗钱，涉及金额高达200亿元人民币；而洗钱的银行户口之一，是一个在香港汇丰银行的帐号，户名英文名是zhang zhongmin(中文音译：张忠民)，帐号为：0433－22411。</b></font></center>
+<br>
+    <br>
+    知情者又指，刘央仗着自己是内地中央财经大学毕业，与内地财经金融界，特别是金融监管部门关系较多的便利，在A股和H股大搞内幕交易，其方式之一是，主动找一些上市公司，向对方推销自己“推高股价”的方案，并以自己在两地监管部门“朋友如云”做炫</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509200120.shtml" target="boxun-mirror">中共军队改革：国防部扩编常万全让位</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共军队改革：国防部扩编 常万全让位<br><font color="#000fC0">(<small>博讯北京时间2015年9月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509200120" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_20531.html">博闻社独家</a>】中共军队改革正稳步推行。本刊日前已披露，国防部将在此波改革中实体化和半行政化，由中央军委和国务院双重领导。外界一直有传常是郭伯雄的「余党」，但军方消息告诉本社，常防长其实深得习近平信任，目前国防部的改组工作就是由他主责。不过消息指，改革后的国防部未必由常担纲，他极可能明年退休让贤。<br>
+    <br>
+     军方消息对本社指，国防部是这次军队改革中，唯一获「扩编」的机关，一改现时只是徒有其名的机构，变为实体化和半行政化，即由中央军委和国务院双重领导。省市由军区、卫戍区、警备区、军分区、人武部改编而成的国防厅(局)，负责国防动员、兵员征集、民兵训练、人民防空和国防设施维护管理等工作，不列入军队编制 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    消息指，具体负责国防部改革重组工作的，正是被外界传涉及郭伯雄案、「正待被审查」的现任国防部长常万全。知情者告诉本社，外传常防长涉郭伯雄案完全是凭空想象的捏造，就因为郭伯雄是从西北第47集团军上去的，常万全也是来自47集团军，所以就「被涉案了」，「这也是海外媒体经常制造新闻的根据。」知情者说。<br>
+    <br>
+    消息透露，常万全其实颇得军委主席习近平信任，中央军委深化国防和军队改革领导小组，常是成员之一，目前常防长具体负责国防部的改革重组，而这一块的改革工作量之大、改革之深刻，是军队中少有的。但很可能常万全无法成为改革后的新国防部主帅，因明年他将够龄退休。<br>
+    <br>
+    知情者指，1949年1月出生的常万全已经年逾66岁，明年1月将满67岁；作为中央军委委员，享受「准副国级」待遇，虽无明确的退休年龄，但按中共「七上八下」潜规则，年逾67岁、又不能继续上升者，原则都要退休；故常万全明年退休，亦属常理之中。目前未知新任防长热门人选为谁。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509200120" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2460120       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509181119.shtml" target="boxun-mirror">出百亿救亚视幕后金主疑为「中国金融巨鳄」肖建华</a>
 </h2>
 <p><tr>
@@ -652,78 +722,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509050543.shtml" target="boxun-mirror">北京大阅兵解码：江泽民的地位仍不可小视</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北京大阅兵解码：江泽民的地位仍不可小视<br><font color="#000fC0">(<small>博讯北京时间2015年9月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509050543" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】中共9.3大阅兵终于顺利落幕，关于这场阅兵秀的各种解读，中外媒体各有己见，不一而足；包括天安门城楼上的「中共元老方阵」，外界的解读亦是汗牛充栋。而本社获得来自中南海知情者的解读是，这场阅兵表面上习近平掌握主动，是全场中心，但站在他旁边、年近90岁的前总书记江泽民的地位仍不可小视。<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/8_oNttgWnYY" frameborder="0" allowfullscreen></iframe><br>
-    一如本社此前的独家报导，以江泽民为首的中共元老们，全部登上了天安门城楼，集体观礼中共新君主习近平主导的9.3大阅兵；尽管天安门前天上地下50个方阵不停获得掌声，但天安门城楼上中共元老们组成的方阵，才是中共这场史无前例的阅兵中，真正最强的阵容，尤其是江泽民的现身，其带给的信息量，远远没有被外界所认识。<br>
-    <br>
-    中南海知情者告诉本社，其实这场借抗战胜70周年搞的大阅兵，一开始就与江泽民的建议有关。2014年3月习近平获江泽民首肯，决定拿下军中大老虎徐才厚、同时不惜代价向军队高层的贪腐开刀后，习近平就多次向江泽民「请益」，探讨如何让腐败溃不成样的军队重建威信、让军队领导权真正重回新的党中央手中。<br>
-    <br>
-    外界一直揣测，这次阅兵是习对江的一种示威，旨在表达拒绝接受前朝胡锦涛那种被江「垂帘听政」的情况，表达习要超过江胡、成为继毛泽东、邓小平之后中共最有实力的领导人。知情者指，其实老江并不象外界想象那么僵化小气，外界不但可以从习近平铲除徐才厚、郭伯雄这两大江一手捧上位的心腹，可以判断，没有江的同意，习怎么可能成功？。<br>
-    <br>
-    江泽民阅兵露面并站在习近平左侧第一位，打破外界关于习、江斗传闻，其地位可见一斑。本社获悉，据透露，今年北戴河会议前的七月，习近平曾再度拜访老江，对当前的时局和策略和江交换意见，「两人谈得不错，江、习的互动其实是很频密和正面的。」<br>
-    <br>
-    曾庆红露面也打破了他被抓的传闻，但本社了解，曾庆红自春节开始就有某种监视措施。<br>
-    <br>
-    曾庆红(后中)虽登台亮相，但前景不妙<br>
-    <img src="http://bowenpress.com/wp-content/uploads/2015/09/8cda83fc7ad906937344335dda5fdf353" width="590"><br>
-    <br>
-    此次阅兵，从电视镜头看，习近平是中心，但其实中共三代核心站一起，江泽民依然居中，胡锦涛和习近平只能伴其左右，在观礼时，江泽民不仅频频竖起大拇指，还用俄语与普京寒暄唠嗑。表面上习近平是中心，左有普京和朴槿惠，右有江泽民和胡锦涛；实际上中国元首三代同堂时，江泽民才是重中之重。<br>
-    知情者指，当习近平登车阅兵时，用左手向受阅官兵行礼，又在天安门城楼举拳高呼「正义必胜 和平必胜 人民必胜」时；外界是否意识到，右撇子的他为何要如此？因为他的正常的右手，其实是被江泽民紧紧拽著的！<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_17319.html">以上摘自博闻社，全文点击</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509050543" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2800543       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509031332.shtml" target="boxun-mirror">信力建先抓再找罪名国保垂死疯狂对公知开战</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>信力建先抓再找罪名 国保垂死疯狂对公知开战<br><font color="#000fC0">(<small>博讯北京时间2015年9月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509031332" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_16504.html">博闻社独家</a>】本社昨天报道中国知名民间教育家和慈善家信力建被广东公安抓捕，公安系统刻意放风称信力建已经获释在家。但本社了解，信力建一直在押，而且公安变本加厉，禁止律师会见。据了解，对信力健动手的是广东公安厅国保总队。据博讯月刊报道，中共已决定在此轮公安大改革中取消国保。广东国保的所作所为，堪称是"垂死前的疯狂"。<br>
-    <br>
-     据了解，广东当局此次抓捕信力健是广东省公安国保操作，目的是对社会公共知识分子进行打压。过去两年，中共打压网络大V，打压维权人士，近期打压维权律师，但对公知的拘查打压，信力建是继艾未未后又一人。未知这是广东省国保的妄自非为，还是北京布署的统一动作的一部份。分析人士认为，接下来估计会有更多公知被非法抓捕。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    信力建不但是实业家、慈善家，还是多产的政论作家和社会活动家，但他的文章和他所参与的社会活动都很温和理性，对当局时政提出的批评也是温和善意和建设性的，现在居然当局不能容忍，反映中共的心虚之极。信力健办教育同时，还收养孤儿，多年来收养数百孤儿，给他们提供食宿和教育，这些孤儿已经有多人被美国家庭领养定居。<br>
-    <br>
-    据了解，广东公安国保对信力建是先抓后罗织罪名，不但抓信夫妇，还把其会计出纳和司机都抓走，一开始查税等财物问题，查不出问题，现仍继续关押，千方百计找茬，明显违反当局的法律法规。<br>
-    <br>
-    《博讯》月刊9月号已披露，中共已决定在此轮公安大改革中，将国保解散。北京分析人士对本社表示，国保近半年抓捕律师以及NGO，就是为了应对对他们的裁撤，类似2011年借茉莉花运动对异议人士残酷打压，为了显示这个部门重要，加大权力。他们利用最后的权力，欲从律师和NGO找突破口，做实境外敌对势力与国内勾结。夸大威胁、取得“成就”，以此突出国保重要性。广东公安国保滥抓信力建，如果不是来自北京的指令，那就是广东国保临终前的疯狂挣扎，同时也说明，公安国保这个中共维稳系统的怪胎，仍在给社会稳定添乱，中共解散国保，虽非解民怨于燃眉，却有利于舒缓民愤。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509031332" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3891332       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
 </p>
 <table>
     <tr>
