@@ -19,6 +19,42 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509210506.shtml" target="boxun-mirror">“群贤汇集，深度解析：习近平的混乱棋局”研讨会请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>“群贤汇集，深度解析：习近平的混乱棋局”研讨会<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509210506" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     2015年9月19日，在习近平即将到美国访问之际，流亡美国的部分异议人士在美国纽约城市大学斯坦顿道岛学院政治与全球事务系举行了题为“习近平的混乱棋局”的闭门圆桌会议。<br>
+    <br>
+    <img src="/news/images/2015/09/201509210506intl1.jpg" alt="“群贤汇集，深度解析：习近平的混乱棋局”研讨会"><p><br>
+    <br>
+    第一单元，中国政局议题：从“大老虎”说到“大阅兵”<br>
+    <br>
+    主持人：夏明<br>
+    <br>
+    主讲人：魏碧洲，金钟，胡平，韦石，陈破空<br>
+    <br>
+    魏碧洲：打老虎，态势已经确定是习近平巩固权力的需要，大阅兵，也有习近平巩固权力的一面，对外是新冷战开始的象征。<br>
+    <br>
+    魏碧洲：现在中美是全方位开放，这是2008年到目前的情况，双方是前所未有的接触。双方产生很大的摩擦，目前美国政界学界对中国是灰心，认为当时对中国开放的促进能让中国加入世界的体系，但现在中国却决定要走自己的路――共产主义。我猜测中国当局主要是想保证政权，现在仍有力量左右国际政局。<br>
+    <br>
+    魏碧洲：现在习有一大套计划，正按步就班在做，前五年打基础，后五年要大张旗鼓做。但看来进程有所拖延，例如股市救市，民众信息，中央与地方关系的纠结。从目前看来，这个政权在处理大的事情的方式比较落后，未来两年会有更多挑战，这个体制的的危机会进一步加深。<br>
+    <br>
+    金钟：最近和香港民主派及台湾各界对中国政局都有交流，对与中国有利益关系的处于比较麻木的状态。泛民方面有悲观的情绪，感觉对北京的政权很无奈，在政治改革上面寸步难行。北京对香港亦是无计可施。香港年轻一代对北京政权感到厌恶，对中国有排斥感。本土独立等思潮都涌现。<br>
+    <br>
+    金钟：台湾朋友方面，以前非常害怕中共武力犯台，现在恐惧感没法消除，但现在比较安心，认为北京敢动武的可能性是越来越低。一是因为交往密切，二是独派力量强，武力威胁难起作用。未来方面，香港人对普选已经失望。普选方案投票的笑话说明建制派力量也没有外界想象的那么强。只能拖下去等待北京变化。<br>
+    <br>
+    金钟：我在香港出版界的朋友有人认为习有可能在一般说十年之后再做十年，变化难以期待。大阅兵方面，美国联合抵制，在中国来说，是外交上的失败。中共明知抗战历史，但为何还要这么做？主要是经济上有恃无恐。另外二战后期有个雅尔达体系，苏联占主导地位，现在想确立苏-中在反法西斯的主导地位。<br>
+    <br>
+    胡平：抗战胜利以前不受重视，这次为何以这个规模来纪念。中国知道自己在抗战中是个配角，但习着急，不想等到2019年，所以借抗战为名，宣示中国的武力及崛起。极权以前标榜和人民打成一片，但这次不让民众近距离观看阅兵，明显拉开距离，北京几成空城，不仅是安全的需要，而是显示威风。<br>
+    <br>
+    胡平：阅兵清场，是清楚地想让人民知道，人民不算什么。确立统治者与民众的角色，变成赤</p>
+</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509200119.shtml" target="boxun-mirror">“中国女股神”刘央被指为上市公司设计内幕交易</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -705,21 +741,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509050631.shtml" target="boxun-mirror">旅日华侨刘景德中使馆上吊、白宫前说要等习近平/视频请看博讯热点：“麻雀行动”</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>旅日华侨刘景德中使馆上吊、白宫前说要等习近平/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/UN_Petition.shtml">“麻雀行动”
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509050631" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="/news/images/2015/09/201509050631intl1.jpg" alt="旅日华侨刘景德中使馆上吊、白宫前说要等习近平/视频"><p><br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/UrT_K3mSbsE" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    （博讯特约记者赵岩拍摄报道）2015年9月2日，就在</p>
-</td></tr></p>
 <p>
 	<small> ============== 16天前</small>
 </p>
