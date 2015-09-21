@@ -55,6 +55,48 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509212206.shtml" target="boxun-mirror">西京投资主席刘央否认为贪官洗钱举报者回应</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>西京投资主席刘央否认为贪官洗钱 举报者回应<br><font color="#000fC0">(<small>博讯北京时间2015年9月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509212206" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_20726.html">博闻社独家</a>】本社日前披露「中国女巴菲特」西京投资（香港）主席刘央被举报帮内地贪官富豪理财洗钱同时借机「黑钱」，又打着与监管部门「关系熟络」名义在A股和H股设计内幕交易从中获利，刘央透过公关公司对有关举报作回应，指传媒有关指控「荒谬之极并毫无依据」，否认与举报所指内地贪官家族有任何关联，称西京投资管理基金「由世界认可金融机构监管，符合全球打击洗钱的标准条例」。<br>
+    <br>
+     本社收到举报者回应，对刘央的辩词提出五大疑问，希望刘央和旗下基金公司解答。举报人对本社表示，他们正在整理西京公司和刘央主席涉嫌违规违法的证据材料，将向内地和香港监管部门举报。在公布这些材料之前，希望刘主席就以下几点质疑回应： 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    1、基金形式合法，不等于资金来源合法。众所周知，基金接受监管部门监管，但资金的来源通常缺乏有效监管，尤其对内地一些不法资金，更是目前的监管黑洞。这也正是内地当局正在整治的范围，反洗钱是国际惯例。刘央主席是否敢公布旗下基金的大陆投资者名单？ <br>
+    <br>
+    2、请刘央主席说明她和张忠明（音）的账号，以及另外几个巨额资金账号的资金来源是哪里的？刘央主席与张忠明是不是夫妻关系？<br>
+    <br>
+    3、请刘央主席说明张忠明被曝光的个人户口资金的去向，以及透过该户口和西京股票采购的情况，有无涉及内幕交易和洗钱的行为。<br>
+    <br>
+    4、请刘央主席公布过去三年西京管理公司购买股票的详目，她和这些相关上市公司高层见面纪录，以及买进有关股票后，该股票的表现。<br>
+    <br>
+    5、刘央主席是否曾打着比尔.盖茨基金的名义，游说内地多位中共高层领导人的家族，以及内地和香港、台湾多位富豪，将财富放到她旗下的西京投资管理公司进行投资？<br>
+    <br>
+    举报者指，刘央主席和其公司透过商业公关公司所发回应避重就轻，玩文字游戏，否认与举报材料中所指的令计划家族「有任何关联」，却不敢否认与内地贪官家族有任何关连，这是欲盖弥彰。举报者称，将在适当的时候公布有关证据材料，还这位「中国女股神」、「中国的女巴菲特」以本来的面目。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509212206" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3672205       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509200119.shtml" target="boxun-mirror">“中国女股神”刘央被指为上市公司设计内幕交易</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -716,33 +758,6 @@
 <b></p>
 <p>
 	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509050644.shtml" target="boxun-mirror">访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频请看博讯热点：“麻雀行动”</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/UN_Petition.shtml">“麻雀行动”
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509050644" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="/news/images/2015/09/201509050644intl1.jpg" alt="访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频"><p><br>
-     今日（9月3日）中国访民马永田状告中国国家主席习近平有组织酷刑，在纽约联邦南区法院立案。立案后马永田告诉记者，她自己的工厂在中国被野蛮强拆，她为此进行法律维权，并在长春市中级人民法院胜诉，而后的10年内，她的强拆案一直得不到解决，为了寻找正义和公平，她在省市和首都北京进行了长达13年的上访，可是等待她的是各种黑监狱酷刑和折磨。马永田来到美国后没有停止上访，她在联合国和中国驻美大使馆前进行了长达2年多的不间断抗议。马永田此次在美国最高法院进行状告习近平，就是为了再一次提醒中国政府，只要中国政府不认真解决对访民的赔偿，她将继续抗议下去。<br>
-    来自山东访民孙元鹏告诉记者，他家的2个养殖场和一套房子2013年被政府强拆，父亲孙瑞金因为抗议强拆，多次去北京上访，被政府截访人员多次殴打并关入黑监狱，2015年2月26日因为保护自己的土地被公安抓捕，一直关到现在，没有任何消息。他这次来纽约就是声援马永田起诉习近平，希望这次行动也能震撼一下山东的那些官僚们，立刻释放我的父亲。<br>
-    马永田告诉记者，下一步将把美国南区法院的文件送达到习近平的手中，并要求他按照美国的诉讼要求，来美国出庭。<br>
-    <br>
-    博讯记者西诺 纽约报道<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/96GvLa6ZeZQ" frameborder="0" allowfullscreen></iframe><br>
-    <img src="/news/images/2015/09/201509050644intl2.jpg" alt="访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频"></p>
-<p><br>
-    <img src="/news/images/2015/09/201509050644intl3.jpg" alt="访民马永田、孙元鹏状告习近平酷刑在纽约南区法院立案/视频"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509050644" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509041439051.jpg http://upload.bx.tl/news/temp13/201509041439052.jpg http://upload.bx.tl/news/temp13/201509041439053.jpg--> 750644       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
 </p>
 <table>
     <tr>
