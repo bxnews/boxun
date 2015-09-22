@@ -19,6 +19,47 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509222356.shtml" target="boxun-mirror">默多克见习近平“颠覆性”印象登中国微博受热捧</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>默多克见习近平“颠覆性”印象 登中国微博受热捧<br><font color="#000fC0">(<small>博讯北京时间2015年9月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509222356" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_20976.html">博闻社独家</a>】国际媒体大亨默多克/梅铎(Rupert Murdoch)在9月20日上午开通新浪微博帐号后，媒体大幅报导其贴文为习近平的魅力感染，对华认识大为改观。<br>
+    <br>
+     本社外从中方知情人士独家了解到，默多克在与习近平见面时，习特别向他强调，要拉近他个人(personal)和美国人民的关系。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    本社记者从默多克集团的内部英文书信发现，默多克对这次访华以及与习近平的会见，给与很高的评价，尤其是默多克对中国这位新领导人，有非常好的印象，甚至是“颠覆性的”印象。<br>
+    <br>
+    消息指，这些都是导致默多克这位世界传媒大亨决定在中国的微博实名开博，与中国普通民众进行交流的原因之一。<br>
+    <br>
+    截至到9月22日，默多克发了5条微博，粉丝过5万。有3000多万粉丝的著名女主持人杨澜转发默多克的微博，称“默多克开博，表示对中国对外媒体开放有信心。” <a href="http://bowenpress.com/news/bowen_21050.html">在习近平离开中国前往美国访问的前夕，纽时记者储百亮申请签证三年终获准进入中国</a>。<br>
+    <br>
+    默多克的微博贴文对中国大加赞叹。除了表示衷心祝愿习近平此次访问美国取得圆满成功以外，还表示他在离开中国时，北京机场令他想起「三流的美国基础设施」－不可救药的规划、错误的优先顺序。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509222356" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1582356       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509210506.shtml" target="boxun-mirror">“群贤汇集，深度解析：习近平的混乱棋局”研讨会请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -737,22 +778,6 @@
     <br>
     <a href="http://bowenpress.com/news/bowen_17610.html">博闻社报道全文</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509061057" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 111057       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509061942.shtml" target="boxun-mirror">信力建被指涉隐匿销毁会计账册凭证罪</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>信力建被指涉隐匿销毁会计账册凭证罪<br><font color="#000fC0"><small>(博讯北京时间2015年9月06日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509061942" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->        <br>    <small>民间教育家慈善家信力建</small><br>     <img src="http://bowenpress.com/wp-content/uploads/2015/09/242424bad24a24b242424f02424e2424bbc24a24242424cd2424"><br><br>                       【博闻社独家】本社获悉，内地知名民间教育家、公共知识分子信力建，上月底被广州公安当局秘密拘查，罪名竟是涉嫌隐匿销毁会计账册凭证罪。目前内地知名的京衡律师事务所已受理信力建案。本社获悉，当局要治罪信力建，是因为政治原因。<br><br>    京衡律师事务所主任陈有西律师透露，广州信孚教育机构投资人信力建先生，涉嫌隐匿销毁会计账册凭证罪，于8月22日被广州警方刑事拘留接受调查。京衡所今天接受委托介入辩护。陈有西律师曾在薄熙来主政重庆时代,为遭重庆当局冤屈逮捕的李庄辩护。<br>    <br>    <small>陈有西律师</small><br>    <img src="http://bowenpress.com/wp-content/uploads/2015/09/f61ccdd6161d61000e61f61616161a61e61e61c6161610061"><br>    <br>    陈有西指，今天他和广州朱律师去会见当事人，因公安正在讯问而未果。陈并透露，此前外媒报道有误，信妻目前未涉案。朱律师23日巳会见到一次。内地网民表示质疑：第一次听说有这么个奇怪的罪名：销毁会计账册罪！<br><br>    信力建被称为中国温和改良派代表人士之一，信力建除了兴办教育，还是凤凰知名博客写作者，因宣扬普世价值，一直是保守派的眼中钉。信力建除了是教育家和独立思想者，还是南粤知名的慈善人士，除了办班为孤寡孩子提供教育，自己还收养多名孩子，并将他们送到美国求学。<br>    <br>    <small>广州市公安局的拘捕通知书</small><br>    <img src="http://bowenpress.com/wp-content/uploads/2015/09/f62ccdd6262d62000e62f62626262a62e62e62c6262620062-300x225."><br><br>    信力建毕业于中山大学，1989年创办信孚教育集团，现拥有20多个教育实体，是大陆民办教育专家。同时，他是知名网络大V，以提倡温和改良着称的公共知识分子，他也因此备受保守派和激进派的非议。有分析认为，当局抓捕信力建是政治迫害。<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509061942" target="_new">支持此文作者/记者</a> <br><br><!--(Modified on 2015/9/06)--><!--bodyend-->       
-                  
-           (博讯 boxun.com) <br><!----> 631942       
 <hr>
 <table width="620"><tr><td>
 <b></p>
