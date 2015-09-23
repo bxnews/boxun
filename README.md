@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509230510.shtml" target="boxun-mirror">习近平访美:白宫要给下马威孟建柱成功打前站“拆弹”请看博讯热点：习近平访美</a>
 </h2>
@@ -95,7 +95,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509222356.shtml" target="boxun-mirror">默多克见习近平“颠覆性”印象登中国微博受热捧</a>
 </h2>
