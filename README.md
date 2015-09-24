@@ -19,6 +19,27 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509242334.shtml" target="boxun-mirror">高智晟接受美联社采访视频公布后又再次被抓</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>高智晟接受美联社采访视频公布后 又再次被抓<br><font color="#000fC0">(<small>博讯北京时间2015年9月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509242334" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    博讯记者获悉，9月23日，美联社公布对著名维权律师高智晟的视频采访之后，高智晟于24日再次被抓。24日下午1点左右，多位国保搜查高律师居住的陕北老家。<br>
+    <br>
+    在美国的对华援助协会会长傅希秋牧师在24日晚上22时左右发出信息说：“可靠消息，就在美联社公布高律师采访后10几个小时北京时间24日下午1点多党国国宝多人开始搜查高律师居住地陕北老家。如先前所料，高律师又一次被失踪。他跟我讲，他做好了各项准备了。为我们的好弟兄祷告。上帝给他力量使他继续刚强壮胆。 ”<br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/DflUjveJNGU" frameborder="0" allowfullscreen></iframe>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509242334" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3292334       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509240403.shtml" target="boxun-mirror">习近平在西雅图访问林肯高中遭到美国学生抗议请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -815,36 +836,6 @@
 <b></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509111152.shtml" target="boxun-mirror">梵蒂冈最快年底前抛弃台北与北京建交</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>梵蒂冈最快年底前抛弃台北与北京建交<br><font color="#000fC0">(<small>博讯北京时间2015年9月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509111152" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_18826.html">博闻社独家</a>】梵蒂冈与台湾断交投靠北京再有传闻。本社获悉，梵蒂冈最快有可能在今年底前或明年台湾大选后，宣布与北京建交。本社致电台湾外交部求证，接电职员非常紧张反问记者在何处看到公告。台湾驻梵蒂冈大使馆表示不便透露。梵蒂冈外事单位表示不接受电话采访。<br>
-    <br>
-      中梵关系多年来卡在主教任命问题而停滞不前，但新任教宗方济各上任后动作频频，主动向北京示好，去年3月方济各罕见透露，已收到中国国家主席习近平的回信，并则传出中梵曾经谈判，虽被教廷否认，但都被视为双方关系改善征兆。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    去年9月曾传中共与梵蒂冈建交有望，但当时针对记者致电询问，梵蒂冈对外关系秘书让・路易・托朗（Jean Louis Tauran）办公室官员表示“不可能对此报道做出任何评论，一切以梵蒂冈官方新闻发布为</td></tr></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
