@@ -19,6 +19,130 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509240403.shtml" target="boxun-mirror">习近平在西雅图访问林肯高中遭到美国学生抗议请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平在西雅图访问林肯高中遭到美国学生抗议<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509240403" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    博讯获悉，9月23日，在美国访问的中共总书记习近平在美国西雅图访问林肯高中，却遭到该校的美国学生抗议，习近平只敢接见在此高中读书的中国学生。<br>
+    <br>
+    夏业良：提前到达Tocoma林肯中学，越南裔美国人的抗议队伍在呼喊口号。<br>
+    <br>
+    王军涛：习近平今天要访问的高中坐落在一个当年逃难越共占领的越南难民的居住地。一大早越南人就在这里抗议。<br>
+    <br>
+    王军涛：得知我们抗议习近平，一位黑人朋友拿来几块纸板写标语。夏业良向他介绍习近平压制人权的问题。他说他看到新闻了，习是专制统治者。看来，这里的各族民众都不欢迎习近平。<br>
+    <br>
+    王军涛：习近平还没到，主要路口的四个角都是抗议的人。<br>
+    <br>
+    王军涛：李进进和夏业良在向林肯高中学生演讲：习近平是个说谎者；他昨天说他喜欢美国国父的建国著作，但他是人权和民主的敌人。 <br>
+    <br>
+    王军涛：在反对者的影响下，课间休息的林肯高中学生与抗议者一起抗议 <br>
+    <br>
+    王军涛：习近平在林肯高中将面对觉醒的美国青年！这些学生接过抗议者的各种工具 <br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl1.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"><p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl2.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl3.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl4.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl5.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl6.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl7.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl8.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl9.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl10.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl11.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl12.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl13.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl14.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl15.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl16.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509240403intl17.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509240403" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509231201221.jpg http://upload.bx.tl/news/temp13/201509231201222.jpg http://upload.bx.tl/news/temp13/201509231201223.jpg http://upload.bx.tl/news/temp13/201509231201224.jpg http://upload.bx.tl/news/temp13/201509231201225.jpg http://upload.bx.tl/news/temp13/201509231201226.jpg http://upload.bx.tl/news/temp13/201509231201227.jpg http://upload.bx.tl/news/temp13/201509231201228.jpg http://upload.bx.tl/news/temp13/201509231201229.jpg http://upload.bx.tl/news/temp13/2015092312012210.jpg http://upload.bx.tl/news/temp13/201509231201381.jpg http://upload.bx.tl/news/temp13/201509231201382.jpg http://upload.bx.tl/news/temp13/201509231201383.jpg http://upload.bx.tl/news/temp13/201509231201384.jpg http://upload.bx.tl/news/temp13/201509231201385.jpg http://upload.bx.tl/news/temp13/201509231201386.jpg http://upload.bx.tl/news/temp13/201509231201387.jpg--> 3270403       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509240050.shtml" target="boxun-mirror">深度解读:习近平西雅图讲话的八大核心要点及用典深意请看博讯热点：习近平访美</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>深度解读:习近平西雅图讲话的八大核心要点及用典深意<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月24日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    读者推荐称，此文及时、分析到位。博讯全文转发如下<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       作者：刘纪鹏  邓智慧 <br>
+    <br>
+    美国当地时间22日晚(北京时间23日上午)，首次对美国进行正式国事访问的习近平主席在华盛顿州西雅图市出席当地政府和美国友好团体联合举办的欢迎晚宴上发表重要演讲。据悉，这是习主席对美国国事访问期间唯一的一次政策性讲话，其中诸多意蕴深刻的重要表述都是第一次表达，我们摘取其中是个最关键的要点予以解读。<br>
+    <br>
+    1、梁家河――中国梦，是人民的梦<br>
+    <br>
+    通过陕北一个叫梁家河的小村子的30年变迁，中国领导层第一次将“中国梦”这个离普通百姓颇有距离感的词语的核心含义清晰表达了出来――所谓“中国梦”，不是简单的GDP增速、国家经济体量，不只是不食人间烟火、高高在上的大国崛起，更是具体而微的、与民生直接挂钩、与普通个体实现美好生活挂钩的梦，这个梦具体细微到最普通的老百姓能不能经常吃上肉，能不能用上互联网，有没有基本养老和 医疗保险。<br>
+    <br>
+    在陕北梁家河插队7年的习主席“了解老百姓需要什么。”“我更加深刻地认识到，中国梦是人民的梦，必须同中国人民对美好生活的向往结合起来才能取得成功。“中国梦不是镜中花、水中月，不是空洞的口号，其最深沉的根基在中国人民心中。”<br>
+    <br>
+    2、中国经济将浴火重生，继续保持强劲发展动力<br>
+    <br>
+    这既是派给全球的定心丸，更是中国政府的一种信心和决心。中国A股6月以来大幅波动以及官方主动调整人民币汇率报价机制以后，全球罔顾中国过去连续多年对全球经济增长贡献超过26%的第一发动机事实，唱衰甚至恶意诋毁中国经济前景的声音开始冒头，甚至有哗众取宠者认为中国经济可能硬着陆并拖累全球经济（9月初日本财务大臣麻生太郎在G20会议上还大肆攻击中国经济对全球可能的冲击）。<br>
+    <br>
+    习主席的讲话给予了这些怀疑论者一个最清晰的官方解答。最中国上半年7%的经济增长率仍居世界前列，中国经济面临一定下行压力，只是前进中的问题。最关键的是，中国拥有居民储蓄率高，消费潜力巨大，人民工作勤奋，中等收入者比重大灯其他大型经济体根本不具备的独特优势，而这些优势能够保证中国这个大型经济体具备足够的腾挪空间与弹性，“东边不亮西边亮（克强总理语）”，只要“加快转变经济发展方式、调整经济结构，更加注重创新驱动，更加注重消费拉动”，则中国经济必然“凤凰涅</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509230443.shtml" target="boxun-mirror">高智晟律师发信阻止妻子见美副国务卿大骂西方政客</a>
 </h2>
 <p><tr>
@@ -721,73 +845,6 @@
     去年9月曾传中共与梵蒂冈建交有望，但当时针对记者致电询问，梵蒂冈对外关系秘书让・路易・托朗（Jean Louis Tauran）办公室官员表示“不可能对此报道做出任何评论，一切以梵蒂冈官方新闻发布为</td></tr></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509102304.shtml" target="boxun-mirror">中共对台军演习近平批准意在警告马英九国民党</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中共对台军演 习近平批准意在警告马英九国民党<br><font color="#000fC0">(<small>博讯北京时间2015年9月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509102304" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_18660.html">博闻社独家</a>】台湾军方今晨模拟解放军登陆开展海陆空三军“联兴操演”之际，中共军方也高调宣告明天开始在台湾海峡实弹军演，为多年来罕见高调，由于时值台湾大选日近，加上北京刚刚大阅兵，本社获悉，此演习为军委主席习近平亲自批准，因北京已判定绿营会上台，不满马英九国民党逼害连战参加北京阅兵,故有意给国民党难堪，并警告蔡英文上台后勿抱幻想。台国防部称情况已在掌握之中.<br>
-    <br>
-     中国海事局网站今日发布消息指出，中国人民解放军11日至13日15时至17时，将于台湾海峡四点连线范围：24-42.17N/118-43.78E、24-44.78N/118-47.67E、24-40.95N/118-49.07E、24-38.13N/118-45.00E内行实弹射击军事演习，射击高度8千米，禁止船只驶入。上述地区为福建晋江对面海域,正对台湾本岛. 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-     台湾2016年总统大选与立委选举战情渐炙，解放军此时对台湾海峡实弹军演，时机纷外敏感，本社获悉，此演习为中共军委主席习近平亲自批准，因北京已判定绿营会上台，当局不满马英九为首的国民党批连战参加北京阅兵,故要给国民党脸色，并对台示硬，警告蔡英文上台后不要抱有幻想搞台独。中共判断,此演习对两岸关系利大于弊。<br>
-    <br>
-    知情人士判断中共此举除回应台湾“联兴操演”外，亦具警告意味，即借此告知民进党候选人蔡英文勿有“脱序躁进”之举.台湾的国防部发言人罗绍和表示，福建解放军地面部队会在围头外海约14</td></tr></p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509102307.shtml" target="boxun-mirror">广西周永康:前主席陆兵女婿吴东骗贷600亿雇凶杀人被捕</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>广西周永康:前主席陆兵女婿吴东骗贷600亿雇凶杀人被捕<br><font color="#000fC0">(<small>博讯北京时间2015年9月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509102307" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <a href="http://bowenpress.com/news/bowen_18608.html">博闻社图文报道原文</a><br>
-    <br>
-     【博闻社独家】2014年5月10日许，广西柳州发生一宗砍人事件，柳州银行董事长李耀清在社区门外被人用菜刀猛砍，刀刀见骨。事发后警立案侦察，但案情秘而不宣，直到今年7月柳州城中区法院才对12名被告人开审，但迄今仍未判决。本社获悉，本案的幕后涉广西著名富商吴东，而吴东则是广西自治区政府前主席陆兵的女婿，吴东已因涉向银行骗贷600亿被捕，陆兵也进入中纪委的法眼。据中纪委知情人士形容，陆兵堪可誉为「广西周永康」。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    警方事后查明，砍人者吴斌，为吴东儿子所雇。因2014年柳州银行对吴东家族的财富王国贷款进行风险调查，引发吴东家族成员不满，吴东之子雇人当街将柳州银行董事长李耀清砍成重伤，不料此案引爆前自治区政府主席家族数百亿骗贷案，更引爆广西高层首次正面交锋内幕。<br>
-    <br>
-     现年47岁的吴东广西博白县旺茂镇农家出身，童年被其父亲送去学习杂技，后入博白杂技团往全国各地表演。不久入博白造纸厂任领导司机，由于头脑活络，最后执掌该厂成为厂长。后离职去北海办北海新特药药业公司，做药品销售购销，创办海生药业集团。<br>
-    <br>
-    2000年前吴东在广西算不有名，早年与一位名叫阿萍的博白女性结婚，两人共育有5名子女，和发妻的婚姻在2005年走到尽头。离婚后吴东迅速找到了续弦，她就是时任广西区政府主席陆兵的女儿。当时已是5个孩子父亲的吴东如何把陆兵主席的女儿搞到手，本社获悉就是靠钱。<br>
-    <br>
-    吴东出手阔绰，当时陆公主在广西区政府驻北京办事处上班，吴东在北京向公主提供多辆世界名车专用，还用私人飞机载陆公主来往北京广西，至于私人飞机是私有还是租赁则无从考证。总之，吴东靠钱成为“主席女婿”，其财富王国迅速膨涨。他本人也成为广西商会副会长。<br>
-    <br>
-      仗着岳父和高官的关系，吴东旗下的中美天元投资集团迅速成为广西著名私企，涉猎地产、金融投资等领域，雇员最多时逾万人；靠着权力和腐蚀官员，旗下企业在广西各级银行疯狂贷款达600亿。2008年陆兵辞任主席，升全国人大民族委副主任，但势力依旧，吴东仍仗着岳父权势大肆</td></tr></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
