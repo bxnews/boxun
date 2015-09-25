@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509250022.shtml" target="boxun-mirror">六四后首位被判"颠覆罪"的法官李建峰抵加拿大</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>六四后首位被判"颠覆罪"的法官李建峰抵加拿大<br><font color="#000fC0">(<small>博讯北京时间2015年9月25日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->     <img src="http://bowenpress.com/wp-content/uploads/2015/09/f184ccdd184184d184000e184f184184184184a184e184e184c18418418400184" width="550"><br>
+     【<a href="http://bowenpress.com/news/bowen_21585.html">博</a>
+</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509242334.shtml" target="boxun-mirror">高智晟接受美联社采访视频公布后又再次被抓</a>
 </h2>
 <p><tr>
@@ -788,49 +800,6 @@
     <br>
     <a href="http://bowenpress.com/news/bowen_19048.html">以下为本社获得该文件的复印本，供有兴趣的读者专家研读。</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509121319" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1841319       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509120120.shtml" target="boxun-mirror">为习近平访美擦鞋出丑　中宣部下令当事者补救</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>为习近平访美擦鞋出丑　中宣部下令当事者补救<br><font color="#000fC0">(<small>博讯北京时间2015年9月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509120120" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】中共党媒自我炒作自己人在纽时花巨资做广告为习近平来访造势，被海外揭穿后大丢颜面，本社获悉，中宣部下令有关媒体和具体经办人想法弥补，于是环球网自爆花钱买广告，出钱刊广告者也匆匆出面向北京媒体澄清,上演一出欲盖弥彰滑稽戏，被外界耻笑。<br>
-    <br>
-      中共官媒环球网9月9日刊登题为【习近平访美倒计时：《纽约时报》推整版宣传广告高调力挺】一文，令外界误以为是纽约时报为迎接习来访，主动用整彩色广告为习近平来访造势，后被本社等海外媒体揭露，有关广告其实为中共驻美机构动用公帑十多万美元，在纽时的擦鞋行径。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    本社获悉，事件被海外媒体揭露后，使中共颜面尽失，中宣部下令当事机构和人员紧急采取补救措施，以免丑闻被炒大，影响习近平本月22日访美。<br>
-    <br>
-    于是，环球网于9月10日又推出题为【《纽约时报》刊整版习近平访美广告 回击美国社会杂音】之后续报导，主动透露有关广告是官方北京时代华语有限公司在美国的时代出版公司总裁朱大平，花了10万美元在纽时所刊广告。<br>
-    <br>
-    而朱大平本人，则主动接受北京媒体专访，否认自己曾与中国官方接触，有关在纽约时报的广告“纯属民间行为”，这种画蛇添足式的解释，反而坐实了中共当局处理政治丑闻的手法低劣。资料显示，朱大平曾任职于北京市委宣传部，2008年成立了北京时代华语图书公司，2011年进军海外。<br>
-    <br>
-     根据本社了解，“美国时代出版公司”为“北京时代华语图书股份有限公司”于美国成立的全资子公司，于名称上刻意误导外界该司为美“时代华纳”公司，殊不知其完全为中资体质，与时代华纳毫无关系；且该司出版之《习近平时代》和《习大大说如何读经典》两本英文图书，则为中共官方出版品。<br>
-    <br>
-     朱大平称，就其观察，因中国对美传输的  （<a href="http://bowenpress.com/news/bowen_18890.html">博闻社报道全文</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509120120" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2040120       
 <hr>
 <table width="620"><tr><td>
 <b></p>
