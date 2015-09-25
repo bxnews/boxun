@@ -28,7 +28,7 @@
 </center>
                 <!--bodystart-->     【<a href="http://bowenpress.com/news/bowen_21308.html">博闻社独家</a>】正当习近平在美国八面威风地出席一场又一场活动，外界注意力都集中在大洋彼岸之时，在习的后院北京及至中国，一场新的“公共安全保</td></tr></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509250022.shtml" target="boxun-mirror">六四后首位被判"颠覆罪"的法官李建峰抵加拿大</a>
 </h2>
@@ -40,7 +40,7 @@
      【<a href="http://bowenpress.com/news/bowen_21585.html">博</a>
 </td></tr></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509242334.shtml" target="boxun-mirror">高智晟接受美联社采访视频公布后又再次被抓</a>
 </h2>
