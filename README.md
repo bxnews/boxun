@@ -29,7 +29,7 @@
      【<a href="http://bowenpress.com/news/bowen_21585.html">博</a>
 </td></tr></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509242334.shtml" target="boxun-mirror">高智晟接受美联社采访视频公布后又再次被抓</a>
 </h2>
