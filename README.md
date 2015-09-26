@@ -175,7 +175,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 15分钟前</small>
+	<small> ============== 20分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260704.shtml" target="boxun-mirror">视频：成功拦截习近平车队数名访民材料被受理请看博讯热点：习近平访美</a>
 </h2>
@@ -210,7 +210,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 15分钟前</small>
+	<small> ============== 20分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509251305.shtml" target="boxun-mirror">出访担心后院起火习近平下令北京“保平安”请看博讯热点：习近平访美</a>
 </h2>
