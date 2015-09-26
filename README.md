@@ -175,7 +175,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260704.shtml" target="boxun-mirror">视频：成功拦截习近平车队数名访民材料被受理请看博讯热点：习近平访美</a>
 </h2>
@@ -210,7 +210,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509251305.shtml" target="boxun-mirror">出访担心后院起火习近平下令北京“保平安”请看博讯热点：习近平访美</a>
 </h2>
@@ -221,7 +221,7 @@
 </center>
                 <!--bodystart-->     【<a href="http://bowenpress.com/news/bowen_21308.html">博闻社独家</a>】正当习近平在美国八面威风地出席一场又一场活动，外界注意力都集中在大洋彼岸之时，在习的后院北京及至中国，一场新的“公共安全保</td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509250022.shtml" target="boxun-mirror">六四后首位被判"颠覆罪"的法官李建峰抵加拿大</a>
 </h2>
@@ -233,7 +233,7 @@
      【<a href="http://bowenpress.com/news/bowen_21585.html">博</a>
 </td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509251330.shtml" target="boxun-mirror">杨澜专访：美国国务卿克里对习近平的领导风格如此评价请看博讯热点：习近平访美</a>
 </h2>
@@ -264,7 +264,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509252353.shtml" target="boxun-mirror">《华尔街日报》爆光成都军区黑客部队习奥会前的难堪请看博讯热点：习近平访美</a>
 </h2>
@@ -304,7 +304,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509242334.shtml" target="boxun-mirror">高智晟接受美联社采访视频公布后又再次被抓</a>
 </h2>
@@ -325,7 +325,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509240403.shtml" target="boxun-mirror">习近平在西雅图访问林肯高中遭到美国学生抗议请看博讯热点：习近平观察</a>
 </h2>
@@ -408,7 +408,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509240050.shtml" target="boxun-mirror">深度解读:习近平西雅图讲话的八大核心要点及用典深意请看博讯热点：习近平访美</a>
 </h2>
@@ -449,7 +449,7 @@
     <br>
     习主席的讲话给予了这些怀疑论者一个最清晰的官方解答。最中国上半年7%的经济增长率仍居世界前列，中国经济面临一定下行压力，只是前进中的问题。最关键的是，中国拥有居民储蓄率高，消费潜力巨大，人民工作勤奋，中等收入者比重大灯其他大型经济体根本不具备的独特优势，而这些优势能够保证中国这个大型经济体具备足够的腾挪空间与弹性，“东边不亮西边亮（克强总理语）”，只要“加快转变经济发展方式、调整经济结构，更加注重创新驱动，更加注重消费拉动”，则中国经济必然“凤凰涅</td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509230443.shtml" target="boxun-mirror">高智晟律师发信阻止妻子见美副国务卿大骂西方政客</a>
 </h2>
@@ -464,7 +464,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509230510.shtml" target="boxun-mirror">习近平访美:白宫要给下马威孟建柱成功打前站“拆弹”请看博讯热点：习近平访美</a>
 </h2>
@@ -527,7 +527,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509222356.shtml" target="boxun-mirror">默多克见习近平“颠覆性”印象登中国微博受热捧</a>
 </h2>
@@ -568,7 +568,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509210506.shtml" target="boxun-mirror">“群贤汇集，深度解析：习近平的混乱棋局”研讨会请看博讯热点：习近平观察</a>
 </h2>
@@ -604,7 +604,7 @@
     胡平：阅兵清场，是清楚地想让人民知道，人民不算什么。确立统治者与民众的角色，变成赤</p>
 </td></tr></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509212206.shtml" target="boxun-mirror">西京投资主席刘央否认为贪官洗钱举报者回应</a>
 </h2>
@@ -646,7 +646,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509200119.shtml" target="boxun-mirror">“中国女股神”刘央被指为上市公司设计内幕交易</a>
 </h2>
@@ -677,7 +677,7 @@
     <br>
     知情者又指，刘央仗着自己是内地中央财经大学毕业，与内地财经金融界，特别是金融监管部门关系较多的便利，在A股和H股大搞内幕交易，其方式之一是，主动找一些上市公司，向对方推销自己“推高股价”的方案，并以自己在两地监管部门“朋友如云”做炫</td></tr></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509200120.shtml" target="boxun-mirror">中共军队改革：国防部扩编常万全让位</a>
 </h2>
@@ -716,7 +716,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509181119.shtml" target="boxun-mirror">出百亿救亚视幕后金主疑为「中国金融巨鳄」肖建华</a>
 </h2>
@@ -770,7 +770,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/09/201509180947.shtml" target="boxun-mirror">搭船赴美庇护搁浅台湾的青年都是泛蓝联盟骨干成员请看博讯热点：台海之争</a>
 </h2>
@@ -811,7 +811,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/09/201509171342.shtml" target="boxun-mirror">视频：刘梦熊谈中联办主任张晓明特首地位超然论</a>
 </h2>
@@ -823,7 +823,7 @@
     <iframe width="420" height="315" src="https://www.youtube.com/embed/tgd_I2sJBC4" frameborder="0" allowfullscreen></iframe><br>
     博闻特约记者赵岩在香港就张晓明的此番言论采访了香港特</td></tr></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509170611.shtml" target="boxun-mirror">中国"女巴菲特"刘央被指助贪官洗钱设局吞赃涉款200亿</a>
 </h2>
@@ -877,7 +877,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
