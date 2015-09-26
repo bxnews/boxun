@@ -19,6 +19,199 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260143.shtml" target="boxun-mirror">视频：各界人士华盛顿白宫国务院前抗议习近平访美请看博讯热点：习近平访美</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：各界人士华盛顿白宫国务院前抗议习近平访美<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509260143" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    <br>
+    2015年9月25日，各界人士在华盛顿白宫、国务院大楼前抗议习近平访问美国，要求释放政治犯、还藏人、维吾尔人、内蒙古人自由。<br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/y7rAFHsxdSw" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl1.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"><p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl2.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl3.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl4.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl5.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl6.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl7.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl8.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl9.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl10.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl11.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl12.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl13.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl14.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl15.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl16.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl17.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl18.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl19.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl20.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl21.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl22.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl23.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl24.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl25.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl26.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl27.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl28.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl29.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl30.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl31.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl32.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl33.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl34.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl35.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl36.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl37.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl38.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl39.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl40.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl41.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl42.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl43.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl44.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl45.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p><br>
+    <br>
+    <img src="/news/images/2015/09/201509260143intl46.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509260143" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1130143       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260704.shtml" target="boxun-mirror">视频：成功拦截习近平车队数名访民材料被受理请看博讯热点：习近平访美</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：成功拦截习近平车队 数名访民材料被受理<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509260704" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     女访民从习近平车前被抬走<br>
+    <br>
+    <img src="http://bowenpress.com/wp-content/uploads/2015/09/f193ccdd193193d193000e193f193193193193a193e193e193c19319319300193-620x315."><br>
+    <br>
+    ［<a href="http://bowenpress.com/news/bowen_21951.html">博闻社报道</a>］美国首都华盛顿当地时间25日中午，数名在美国申冤的访民冲过警戒线拦截习近平车队，导致车队短暂停留，其中疑为习近平的车为了躲避访民，偏向马路边。警察快速行动，车队短暂停留期间，示威的访民被控制，车队继续前行。其中，马永田北警察带走。<br>
+    <br>
+    拦截共发生两次:下午1点10分左右，习近平的车队经过18街与E街交叉口，当两辆凯迪拉克出现时，多位访民冲过去，将前面一辆凯迪拉克拦下，北京访民李焕君和上海访民葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来。那一辆车正好坐着习近平，葛丽芳和李焕君看到了习近平，习近平与访民对视了几秒钟。随后，警察冲过去将李焕君和葛丽芳带到警戒线以外，没说什么就当场放了，习近平的车也离开了。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/AqqeXMAe4HY" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    下午1时37分左右，彭丽媛的车队经过21街与C街交叉的地方，有四位访民冲出封锁线，其中马永田堵到了彭丽媛的车，这个车被堵到人行道，随后车开走，马永田被警察扣留。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/vGy62-WsTcE" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    24日拦截车队被警察扑倒受伤就医的张翠平已经出院。<br>
+    <br>
+    在25日中午拦截车队事件后，不到2小时，中方相关部门派出人员和访民谈话，将他们的申诉材料拿走。<br>
+    <br>
+    下午3点49分时，马永田仍在现场被警察问话。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/jCxev_3z-KQ" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/WUtNes8GY8I" frameborder="0" allowfullscreen></iframe>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509260704" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3760704       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509251305.shtml" target="boxun-mirror">出访担心后院起火习近平下令北京“保平安”请看博讯热点：习近平访美</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -685,72 +878,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509151804.shtml" target="boxun-mirror">涉宋林桉禁出国贺国强子贺锦涛再被中纪委约谈请看博讯热点：贺国强</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>涉宋林桉禁出国 贺国强子贺锦涛再被中纪委约谈<br><font color="blue" size="2">请看博讯热点：<a href="/hot/hgq.shtml">贺国强
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月15日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509151804" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_19823.html">博</a>
-</td></tr></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509150133.shtml" target="boxun-mirror">山东临沂政府暴力强拆烧死村民现场惨不忍睹请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>山东临沂政府暴力强拆烧死村民现场惨不忍睹<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月15日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509150133" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      9月14日，山东省临沂市平邑县地方镇后东固村发生强拆惨案，一名村民被活活烧死。据村民描述，当天上午，镇上的政府人员带领大量打手，到村里强拆村民张纪民家房屋，期间发生冲突，张纪民被活活烧死，张纪民妻子被打伤后扔到路边，生死不明。<br>
-    <br>
-    村民“张德志_THU”发帖说：2015年9月14日，山东省临沂市平邑县地方镇后东固村发生强拆住宅致人死亡事件。上午镇上政府人员带领大量打手到后东固村张纪民家进行强拆。将张纪民的妻子用车抓走后残忍殴打后扔在马路边，生死不明。<br>
-    <br>
-    “张德志_THU”说：在十一点多拆迁人员进行强拆并和张纪民发生冲突，张纪民被烧死，尸体惨不忍睹！家里只剩下两个未成年的女儿。希望好心人士能够帮助这个家庭，还死者一个公道。<br>
-    <br>
-    现场图片显示，户主张纪民的房子已被完全烧毁，死者尸体已被烧的面目全非成焦炭状，惨不忍睹。<br>
-    <br>
-    网友“olovezheno”发帖说：强打强拆，入室放火，女被活活打死，男被他们放火在屋里活活烧死。用汽油烧的！人啊，活着不容易。把闹事的逮了，雇的小痞子用汽油瓶子烧的！<br>
-    <br>
-    网友“名字有点长go”说：听说拆迁工作都做得差不多了同意搬了，可是镇上态度很强硬必须得今天拆了修路，这才有了这一出强拆杀人。<br>
-    <br>
-    网友“幸福君君227”说：我听再现场的人说，本来想吓唬吓唬他们叫他们出来，没想到男的就是不出来，火势一大人都跑了。<br>
-    <br>
-    也有网友表示，系张纪民抵抗时自己引发的大火。<br>
-    <br>
-    网友“JFJ高小杰”说：临沂市平邑县地方镇后东固村因强拆一村民抱煤气罐在家中引大火被活活烧死。<br>
-    <br>
-    网友“哈哈笑笑08”说：听朋友有政府带六十来个人去的，把他媳妇打了，他看着打不过了才点的汽油。<br>
-    <br>
-    （网络图片）<br>
-    <img src="/news/images/2015/09/201509150133china1.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"><p><br>
-    <img src="/news/images/2015/09/201509150133china2.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
-<p><br>
-    <img src="/news/images/2015/09/201509150133china3.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
-<p><br>
-    <img src="/news/images/2015/09/201509150133china4.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
-<p><br>
-    <img src="/news/images/2015/09/201509150133china5.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
-<p><br>
-    <img src="/news/images/2015/09/201509150133china6.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
-<p><br>
-    <img src="/news/images/2015/09/201509150133china7.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
-<p><br>
-    <img src="/news/images/2015/09/201509150133china8.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
-<p><br>
-    <img src="/news/images/2015/09/201509150133china9.jpg" alt="山东临沂政府暴力强拆烧死村民现场惨不忍睹"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509150133" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509140921061.jpg http://upload.bx.tl/news/temp13/201509140921062.jpg http://upload.bx.tl/news/temp13/201509140921063.jpg http://upload.bx.tl/news/temp13/201509140921064.jpg http://upload.bx.tl/news/temp13/201509140921201.jpg http://upload.bx.tl/news/temp13/201509140921202.jpg http://upload.bx.tl/news/temp13/201509140921203.jpg http://upload.bx.tl/news/temp13/201509140921204.jpg http://upload.bx.tl/news/temp13/201509140921281.jpg--> 4330133       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
