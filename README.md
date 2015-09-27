@@ -36,6 +36,18 @@
 <p>
 	<small> ============== 3小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509271221.shtml" target="boxun-mirror">博闻社独家：中信证券更多不为人知的黑幕请看博讯热点：股市危机</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>博闻社独家：中信证券更多不为人知的黑幕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509271221" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博</td></tr></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260143.shtml" target="boxun-mirror">视频：各界人士华盛顿白宫国务院前抗议习近平访美请看博讯热点：习近平访美</a>
 </h2>
 <p><tr>
@@ -829,18 +841,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2015/09/201509171342.shtml" target="boxun-mirror">视频：刘梦熊谈中联办主任张晓明特首地位超然论</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：刘梦熊谈中联办主任张晓明特首地位超然论<br><font color="#000fC0">(<small>博讯北京时间2015年9月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201509171342" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社】9月13日中新网发表一篇题为《张晓明：特首地位在三权之上》的文章，张晓明说，特区行政长官不仅仅是行政机关的组成成员，行政长官的权力也不仅仅限于领导特区政府，“双首长”身份和“双负责制”使行政长官具有超然于行政、立法和司法三个机关之上的特殊法律地位。<br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/tgd_I2sJBC4" frameborder="0" allowfullscreen></iframe><br>
-    博闻特约记者赵岩在香港就张晓明的此番言论采访了香港特</td></tr></p>
-<p>
-	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
