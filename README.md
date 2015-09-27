@@ -34,7 +34,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509271221.shtml" target="boxun-mirror">博闻社独家：中信证券更多不为人知的黑幕请看博讯热点：股市危机</a>
 </h2>
@@ -46,7 +46,7 @@
                 <!--bodystart-->      <br>
     【博</td></tr></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260143.shtml" target="boxun-mirror">视频：各界人士华盛顿白宫国务院前抗议习近平访美请看博讯热点：习近平访美</a>
 </h2>
