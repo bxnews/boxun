@@ -34,7 +34,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 20分钟前</small>
+	<small> ============== 25分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260143.shtml" target="boxun-mirror">视频：各界人士华盛顿白宫国务院前抗议习近平访美请看博讯热点：习近平访美</a>
 </h2>
