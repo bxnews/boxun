@@ -54,7 +54,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509280404.shtml" target="boxun-mirror">视频：王兰青被欢迎习近平的队伍打晕反被警察铐走请看博讯热点：习近平访美</a>
 </h2>
@@ -73,7 +73,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509281416.shtml" target="boxun-mirror">马永田拦截习近平、彭丽媛的视频曝光请看博讯热点：习近平访美</a>
 </h2>
@@ -97,7 +97,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509270035.shtml" target="boxun-mirror">视频：赵岩细说“拦习近平车告御状现象”请看博讯热点：习近平访美</a>
 </h2>
