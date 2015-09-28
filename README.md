@@ -75,6 +75,30 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509281416.shtml" target="boxun-mirror">马永田拦截习近平、彭丽媛的视频曝光请看博讯热点：习近平访美</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>马永田拦截习近平、彭丽媛的视频曝光<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509281416" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <iframe width="560" height="315" src="https://www.youtube.com/embed/ycH_WIQLA-0" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    【博闻社】本社获取的这段视频，从远处拍到访民马永田在华盛顿拦截习近平、彭丽媛车队的全过程。<br>
+    <br>
+    视频由拍摄者给博讯记者西诺，当事人要求不公开名字。<br>
+    <br>
+    <a href="/news/gb/intl/2015/09/201509280311.shtml">马永田亲述访民拦截习近平车队完整经过</a><br>
+    <br>
+    习近平访美期间，各站现场都有大量视频传给博讯，对此，特别感谢赵岩、艾布拉和各界拍摄的朋友们。因博讯资源有限，团队需要改进，我们对现场访民等采访跟踪不足，有些信息来不及核实，有些失误，希望各界谅解。也感谢西诺快速收发视频等信息。希望大家求同存异，在细节问题上不必有情绪，欢迎直接给博讯指出问题，以及促使博讯改进。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509281416" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2571416       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509270035.shtml" target="boxun-mirror">视频：赵岩细说“拦习近平车告御状现象”请看博讯热点：习近平访美</a>
 </h2>
 <p><tr>
@@ -761,45 +785,6 @@
 <br>
     <br>
     知情者又指，刘央仗着自己是内地中央财经大学毕业，与内地财经金融界，特别是金融监管部门关系较多的便利，在A股和H股大搞内幕交易，其方式之一是，主动找一些上市公司，向对方推销自己“推高股价”的方案，并以自己在两地监管部门“朋友如云”做炫</td></tr></p>
-<p>
-	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509200120.shtml" target="boxun-mirror">中共军队改革：国防部扩编常万全让位</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中共军队改革：国防部扩编 常万全让位<br><font color="#000fC0">(<small>博讯北京时间2015年9月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509200120" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_20531.html">博闻社独家</a>】中共军队改革正稳步推行。本刊日前已披露，国防部将在此波改革中实体化和半行政化，由中央军委和国务院双重领导。外界一直有传常是郭伯雄的「余党」，但军方消息告诉本社，常防长其实深得习近平信任，目前国防部的改组工作就是由他主责。不过消息指，改革后的国防部未必由常担纲，他极可能明年退休让贤。<br>
-    <br>
-     军方消息对本社指，国防部是这次军队改革中，唯一获「扩编」的机关，一改现时只是徒有其名的机构，变为实体化和半行政化，即由中央军委和国务院双重领导。省市由军区、卫戍区、警备区、军分区、人武部改编而成的国防厅(局)，负责国防动员、兵员征集、民兵训练、人民防空和国防设施维护管理等工作，不列入军队编制 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    消息指，具体负责国防部改革重组工作的，正是被外界传涉及郭伯雄案、「正待被审查」的现任国防部长常万全。知情者告诉本社，外传常防长涉郭伯雄案完全是凭空想象的捏造，就因为郭伯雄是从西北第47集团军上去的，常万全也是来自47集团军，所以就「被涉案了」，「这也是海外媒体经常制造新闻的根据。」知情者说。<br>
-    <br>
-    消息透露，常万全其实颇得军委主席习近平信任，中央军委深化国防和军队改革领导小组，常是成员之一，目前常防长具体负责国防部的改革重组，而这一块的改革工作量之大、改革之深刻，是军队中少有的。但很可能常万全无法成为改革后的新国防部主帅，因明年他将够龄退休。<br>
-    <br>
-    知情者指，1949年1月出生的常万全已经年逾66岁，明年1月将满67岁；作为中央军委委员，享受「准副国级」待遇，虽无明确的退休年龄，但按中共「七上八下」潜规则，年逾67岁、又不能继续上升者，原则都要退休；故常万全明年退休，亦属常理之中。目前未知新任防长热门人选为谁。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509200120" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2460120       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 8天前</small>
 </p>
