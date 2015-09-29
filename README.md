@@ -63,7 +63,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509290400.shtml" target="boxun-mirror">傅政华掌610办实为靠边站公安国安将改组/紫禁城来鸿</a>
 </h2>
@@ -97,7 +97,7 @@
     <br>
     不过，北京知情者对本社指，傅政华在中共拿下周永康、令计划的“反腐败大计中”有立功表现不假，主要是他在主掌北京市公安局时，于2012年3月18日令计划的儿子令谷在北京城区驾法拉利</td></tr></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509280408.shtml" target="boxun-mirror">习近平访美：第一千金习明泽随团藏身工作人员列请看博讯热点：习近平访美</a>
 </h2>
