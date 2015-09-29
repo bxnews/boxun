@@ -19,6 +19,86 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509290355.shtml" target="boxun-mirror">习近平和彭丽媛座驾被截视频分析请看博讯热点：习近平访美</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平和彭丽媛座驾被截视频分析<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509290355" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    博讯记者西诺刚刚接到一个在9月25日堵截习近平车队的视频，通过该视频可以清楚地获知，习近平和彭丽媛座驾被一位身穿浅色上衣和蓝色裤子浅色鞋子的妇女堵截。<br>
+    <br>
+    视频开始有10辆摩托车队开道，这显示是国家级元首待遇的车队，当视频在29秒时刻，在车辆行驶方向的左侧有一位妇女站在一个悬挂3种旗帜的电线杆下，第32秒钟时这位妇女手里抓了一份材料开始向马路中间靠拢，第34秒当一辆白色保安车开过时，这位妇女开始加速冲向快速行驶的车队，第36秒钟这位妇女到达第一辆凯迪拉克车尾部，第40秒钟这位妇女将第二辆凯迪拉克车截停，这位妇女将该车逼向右侧停下，后续车陆续也停下，第42秒这位妇女钻到车子底下，同时马路左侧出现一位穿红色服装梳马尾辫，带着腰带的女青年（李焕君），在她身旁的警察摆出姿势防止进入马路。第44秒警察过来抓住截车妇女，一条警犬也在协助，随后警察将该妇女拖向马上左侧，警犬也加入拖人行动，第48秒，该妇女被拖入左侧人行道，同时访民郭红出现并鼓掌叫好。第49秒第二辆被截的凯迪拉克开始启动离开，第50秒一位手持雪山狮子旗的藏人在左侧观看。第53秒访民安子新手持照相机在拍摄现场照片。第57秒一辆浅灰色的福特车跟随3辆警车后驶过。1分11秒访民杭浩东和湖北女访民出现在马路左侧，马路行驶的警卫车飞速通过，1分18秒最后一辆警车通过现场。<br>
+    <br>
+    经过记者对马永田服饰的检查，证明这个视频中的截车妇女就是马永田。<br>
+    <br>
+    经比较现场截住的是习近平的座驾<br>
+    <br>
+    <img src="/news/images/2015/09/201509290355intl1.jpg" alt="习近平和彭丽媛座驾被截视频分析"><p><br>
+    <br>
+    这是马永田截住的凯迪拉克车<br>
+    <br>
+    <img src="/news/images/2015/09/201509290355intl2.jpg" alt="习近平和彭丽媛座驾被截视频分析"></p>
+<p><br>
+    <br>
+    这是网站上透露的习的车子<br>
+    <img src="/news/images/2015/09/201509290355intl3.jpg" alt="习近平和彭丽媛座驾被截视频分析"></p>
+<p><br>
+    <br>
+    这是现场的福特车<br>
+    <br>
+    <img src="/news/images/2015/09/201509290355intl4.jpg" alt="习近平和彭丽媛座驾被截视频分析"></p>
+<p><br>
+    这是网站上宣传的彭丽媛的福特车<br>
+    <br>
+    再根据马永田事后的追溯，可以判定，在21街和E街的交口处，由马永田截住了习近平和彭丽媛的座驾。<br>
+    <br>
+    博讯记者西诺 纽约报道。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509290355" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509281152491.jpg http://upload.bx.tl/news/temp13/201509281152492.jpg http://upload.bx.tl/news/temp13/201509281152493.jpg http://upload.bx.tl/news/temp13/201509281152494.jpg--> 3230355       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509290400.shtml" target="boxun-mirror">傅政华掌610办实为靠边站公安国安将改组/紫禁城来鸿</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>傅政华掌610办实为靠边站 公安国安将改组/紫禁城来鸿<br><font color="#000fC0">(<small>博讯北京时间2015年9月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509290400" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】9月26日，《新疆日报》报道中央代表团出席新疆自治区成立60周年庆祝活动时，透露公安部副部长傅政华第一身份是“中央610办公室主任”，从而爆光傅政华已接掌“610办”这个正部级机构。外界有分析认为这或显示傅政华获重用，但北京消息对本社指，傅的职位安排非但不是升官，反而是靠边站，在习近平的政法团队他已完全失势，只等平安退休了。消息指，下月五中全会后，中共公安、国安等政法部门将大改组。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    接近中南海的消息人士对本社透露，过去两年多外界一直传傅政华在习近平拿下周永康、令计划的行动中立功，因而获习近平重用，从北京市公安局长升到公安部副部长、随后又成为公安部党委副书记，官居正部级，外界看好其仕途，视之为中共政法界的“明日之星”，甚至认为未来或会接掌公安部。<br>
+    <br>
+    中共政法部门将大改组<br>
+    <br>
+    不过，北京知情者对本社指，傅政华在中共拿下周永康、令计划的“反腐败大计中”有立功表现不假，主要是他在主掌北京市公安局时，于2012年3月18日令计划的儿子令谷在北京城区驾法拉利</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509280408.shtml" target="boxun-mirror">习近平访美：第一千金习明泽随团藏身工作人员列请看博讯热点：习近平访美</a>
 </h2>
 <p><tr>
@@ -714,79 +794,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509212206.shtml" target="boxun-mirror">西京投资主席刘央否认为贪官洗钱举报者回应</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>西京投资主席刘央否认为贪官洗钱 举报者回应<br><font color="#000fC0">(<small>博讯北京时间2015年9月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509212206" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_20726.html">博闻社独家</a>】本社日前披露「中国女巴菲特」西京投资（香港）主席刘央被举报帮内地贪官富豪理财洗钱同时借机「黑钱」，又打着与监管部门「关系熟络」名义在A股和H股设计内幕交易从中获利，刘央透过公关公司对有关举报作回应，指传媒有关指控「荒谬之极并毫无依据」，否认与举报所指内地贪官家族有任何关联，称西京投资管理基金「由世界认可金融机构监管，符合全球打击洗钱的标准条例」。<br>
-    <br>
-     本社收到举报者回应，对刘央的辩词提出五大疑问，希望刘央和旗下基金公司解答。举报人对本社表示，他们正在整理西京公司和刘央主席涉嫌违规违法的证据材料，将向内地和香港监管部门举报。在公布这些材料之前，希望刘主席就以下几点质疑回应： 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    1、基金形式合法，不等于资金来源合法。众所周知，基金接受监管部门监管，但资金的来源通常缺乏有效监管，尤其对内地一些不法资金，更是目前的监管黑洞。这也正是内地当局正在整治的范围，反洗钱是国际惯例。刘央主席是否敢公布旗下基金的大陆投资者名单？ <br>
-    <br>
-    2、请刘央主席说明她和张忠明（音）的账号，以及另外几个巨额资金账号的资金来源是哪里的？刘央主席与张忠明是不是夫妻关系？<br>
-    <br>
-    3、请刘央主席说明张忠明被曝光的个人户口资金的去向，以及透过该户口和西京股票采购的情况，有无涉及内幕交易和洗钱的行为。<br>
-    <br>
-    4、请刘央主席公布过去三年西京管理公司购买股票的详目，她和这些相关上市公司高层见面纪录，以及买进有关股票后，该股票的表现。<br>
-    <br>
-    5、刘央主席是否曾打着比尔.盖茨基金的名义，游说内地多位中共高层领导人的家族，以及内地和香港、台湾多位富豪，将财富放到她旗下的西京投资管理公司进行投资？<br>
-    <br>
-    举报者指，刘央主席和其公司透过商业公关公司所发回应避重就轻，玩文字游戏，否认与举报材料中所指的令计划家族「有任何关联」，却不敢否认与内地贪官家族有任何关连，这是欲盖弥彰。举报者称，将在适当的时候公布有关证据材料，还这位「中国女股神」、「中国的女巴菲特」以本来的面目。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509212206" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3672205       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509200119.shtml" target="boxun-mirror">“中国女股神”刘央被指为上市公司设计内幕交易</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>“中国女股神”刘央被指为上市公司设计内幕交易<br><font color="#000fC0">(<small>博讯北京时间2015年9月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509200119" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_20381.html">博闻社独家</a>】本社日前独家披露有“中国女巴菲特”之誉的西京投资管理公司（香港）主席刘央，利用帮内地贪官富豪理财洗钱的机会“黑钱”，事件引起内地财富阶层反响，本社又接到多宗举报，列举刘央“黑钱”的事实；同时指刘央打着与内地及香港监管部门“关系熟络”名义，在A股和H股设计内幕交易，从中获利。举报还指刘央在香港包养小情人。<br>
-    <br>
-     举报指，被刘英帮助洗钱又被黑钱的内地贪官家族及富商，除了前中办主任令计划家族外，还有多位落马高官的家族，他们被中纪委纳入调查范围后，刘央又非常积极主动地“配合”当局调查，向当局交待这些官员财富在海外的“真实情况”，当然，这些财富都是要扣除刘央的基金不菲的管理费等费用后。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    消息指，被刘央用这种手法“黑钱”的内地贪官、问题富豪在过去两三年数以十计，涉及金额至少几十亿。以至于在内地有官场财富阶层私下破口大骂指，习近平、王岐山的反贪腐风暴，竟成了刘央和她的西京投资公司“发不义之财”的大好机会，“人家家破人亡，她渔翁得利，这钱来得也太容易了！”<br>
-    <br><center><font size="4"><b>本社日前已透露，在过去15至20年时间里，刘央透过其名下西京投资管理公司旗下的几个基金（Atlantis Asian Fund，Atlantis China Fund，Atlantis China Healthcare Fund）为内地富豪和贪官家族洗钱，涉及金额高达200亿元人民币；而洗钱的银行户口之一，是一个在香港汇丰银行的帐号，户名英文名是zhang zhongmin(中文音译：张忠民)，帐号为：0433－22411。</b></font></center>
-<br>
-    <br>
-    知情者又指，刘央仗着自己是内地中央财经大学毕业，与内地财经金融界，特别是金融监管部门关系较多的便利，在A股和H股大搞内幕交易，其方式之一是，主动找一些上市公司，向对方推销自己“推高股价”的方案，并以自己在两地监管部门“朋友如云”做炫</td></tr></p>
-<p>
-	<small> ============== 9天前</small>
 </p>
 <table>
     <tr>
