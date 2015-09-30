@@ -19,6 +19,34 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509301120.shtml" target="boxun-mirror">王兰青遭欢迎习近平的队伍殴打反被当作精神病请看博讯热点：习近平访美</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>王兰青遭欢迎习近平的队伍殴打 反被当作精神病<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509301120" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    2015年9月27日中午12点前后，来自河北保定的女访民王兰青在纽约华尔道夫习近平途径之路，误入欢迎习近平的五星红旗的队伍，结果被群起攻击打晕在地。奇怪的是，纽约警察将王兰青上铐，带进了救护车，对打人者未有任何警告和干预。从视频可以看出，王兰青被警察拖起时人事不省，后来才恢复知觉，开始喊口号。警察拖走她时，五星红旗人群哄笑。<br>
+    <br>
+    博讯记者在9月29日拨打王兰青的姐姐的电话，获知王兰青后来被带到长老会的康奈尔医院，警察甚至给王兰青开了一张传票，但后来在医院却把这场传票弄丢了。<br>
+    <br>
+    在医院经过检查发现王兰青神经有损伤，由于王兰青说中文，警察听不懂她说话，警察把她当精神病人看待。<br>
+    <br>
+    为此，28日下午四点，王兰青的姐姐赶到医院后，于28日晚上八点左右将王兰青接了出来。<br>
+    <br>
+    王兰青的姐姐还向博讯记者透露，在王兰青被打时，欢迎习近平的队伍用五星红旗蒙着王兰青的头打，所以被打晕倒地。<br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/nx-jweQvvew" frameborder="0" allowfullscreen></iframe>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509301120" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2591120       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509292318.shtml" target="boxun-mirror">视频、多图：杭州审判中国民主党，维权人士冒雨声援，梁丽婉电动车被抢</a>
 </h2>
 <p><tr>
@@ -768,47 +796,6 @@
 <b></p>
 <p>
 	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509222356.shtml" target="boxun-mirror">默多克见习近平“颠覆性”印象登中国微博受热捧</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>默多克见习近平“颠覆性”印象 登中国微博受热捧<br><font color="#000fC0">(<small>博讯北京时间2015年9月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509222356" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_20976.html">博闻社独家</a>】国际媒体大亨默多克/梅铎(Rupert Murdoch)在9月20日上午开通新浪微博帐号后，媒体大幅报导其贴文为习近平的魅力感染，对华认识大为改观。<br>
-    <br>
-     本社外从中方知情人士独家了解到，默多克在与习近平见面时，习特别向他强调，要拉近他个人(personal)和美国人民的关系。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    本社记者从默多克集团的内部英文书信发现，默多克对这次访华以及与习近平的会见，给与很高的评价，尤其是默多克对中国这位新领导人，有非常好的印象，甚至是“颠覆性的”印象。<br>
-    <br>
-    消息指，这些都是导致默多克这位世界传媒大亨决定在中国的微博实名开博，与中国普通民众进行交流的原因之一。<br>
-    <br>
-    截至到9月22日，默多克发了5条微博，粉丝过5万。有3000多万粉丝的著名女主持人杨澜转发默多克的微博，称“默多克开博，表示对中国对外媒体开放有信心。” <a href="http://bowenpress.com/news/bowen_21050.html">在习近平离开中国前往美国访问的前夕，纽时记者储百亮申请签证三年终获准进入中国</a>。<br>
-    <br>
-    默多克的微博贴文对中国大加赞叹。除了表示衷心祝愿习近平此次访问美国取得圆满成功以外，还表示他在离开中国时，北京机场令他想起「三流的美国基础设施」－不可救药的规划、错误的优先顺序。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509222356" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1582356       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 8天前</small>
 </p>
 <table>
     <tr>
