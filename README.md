@@ -61,7 +61,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509301120.shtml" target="boxun-mirror">王兰青遭欢迎习近平的队伍殴打反被当作精神病请看博讯热点：习近平访美</a>
 </h2>
