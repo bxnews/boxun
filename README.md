@@ -59,7 +59,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510010059.shtml" target="boxun-mirror">独家:广西爆炸为报复嫌犯曾被劳教真容曝光(含视频)请看博讯热点：爆炸等天灾人祸</a>
 </h2>
