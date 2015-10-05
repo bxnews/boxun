@@ -19,6 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510050249.shtml" target="boxun-mirror">信力建被以三宗罪批捕实为以言治罪及涉香港占中</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>信力建被以三宗罪批捕 实为以言治罪及涉香港占中<br><font color="#000fC0">(<small>博讯北京时间2015年10月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510050249" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】本社获悉，内地知名民间教育家、企业家及温和派学者信力建，近日正式被广州市检察院以「销毁账户、偷税漏税及挪用资金」三宗罪批准逮捕，但公安在预审时明确暗示信，他之所以「进来」，完全是因为他那些「出格言论」。而且就是不能让他再沾教育事业的边。据透露，公安还明确告知信，他被治罪，还与去年底他支持香港占中运动有关。<br>
+    <br>
+    博闻长篇全文报道：<a href="http://bowenpress.com/news/bowen_23964.html">点击这里</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510050249" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1080249       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510042159.shtml" target="boxun-mirror">紫禁城来鸿：意识形态“宦官群”正玩残习近平请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -737,89 +754,6 @@
     <br>
     <iframe width="600" height="360" src="https://www.youtube.com/embed/DflUjveJNGU" frameborder="0" allowfullscreen></iframe>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509242334" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3292334       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509240403.shtml" target="boxun-mirror">习近平在西雅图访问林肯高中遭到美国学生抗议请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平在西雅图访问林肯高中遭到美国学生抗议<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509240403" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-    博讯获悉，9月23日，在美国访问的中共总书记习近平在美国西雅图访问林肯高中，却遭到该校的美国学生抗议，习近平只敢接见在此高中读书的中国学生。<br>
-    <br>
-    夏业良：提前到达Tocoma林肯中学，越南裔美国人的抗议队伍在呼喊口号。<br>
-    <br>
-    王军涛：习近平今天要访问的高中坐落在一个当年逃难越共占领的越南难民的居住地。一大早越南人就在这里抗议。<br>
-    <br>
-    王军涛：得知我们抗议习近平，一位黑人朋友拿来几块纸板写标语。夏业良向他介绍习近平压制人权的问题。他说他看到新闻了，习是专制统治者。看来，这里的各族民众都不欢迎习近平。<br>
-    <br>
-    王军涛：习近平还没到，主要路口的四个角都是抗议的人。<br>
-    <br>
-    王军涛：李进进和夏业良在向林肯高中学生演讲：习近平是个说谎者；他昨天说他喜欢美国国父的建国著作，但他是人权和民主的敌人。 <br>
-    <br>
-    王军涛：在反对者的影响下，课间休息的林肯高中学生与抗议者一起抗议 <br>
-    <br>
-    王军涛：习近平在林肯高中将面对觉醒的美国青年！这些学生接过抗议者的各种工具 <br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl1.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"><p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl2.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl3.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl4.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl5.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl6.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl7.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl8.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl9.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl10.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl11.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl12.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl13.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl14.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl15.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl16.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509240403intl17.jpg" alt="习近平在西雅图访问林肯高中遭到美国学生抗议"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509240403" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509231201221.jpg http://upload.bx.tl/news/temp13/201509231201222.jpg http://upload.bx.tl/news/temp13/201509231201223.jpg http://upload.bx.tl/news/temp13/201509231201224.jpg http://upload.bx.tl/news/temp13/201509231201225.jpg http://upload.bx.tl/news/temp13/201509231201226.jpg http://upload.bx.tl/news/temp13/201509231201227.jpg http://upload.bx.tl/news/temp13/201509231201228.jpg http://upload.bx.tl/news/temp13/201509231201229.jpg http://upload.bx.tl/news/temp13/2015092312012210.jpg http://upload.bx.tl/news/temp13/201509231201381.jpg http://upload.bx.tl/news/temp13/201509231201382.jpg http://upload.bx.tl/news/temp13/201509231201383.jpg http://upload.bx.tl/news/temp13/201509231201384.jpg http://upload.bx.tl/news/temp13/201509231201385.jpg http://upload.bx.tl/news/temp13/201509231201386.jpg http://upload.bx.tl/news/temp13/201509231201387.jpg--> 3270403       
-</p>
 <hr>
 <table width="620"><tr><td>
 <b></p>
