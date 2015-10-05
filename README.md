@@ -36,6 +36,41 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510051240.shtml" target="boxun-mirror">两政治局委员担保戴相龙案涉案者董文标外逃</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>两政治局委员担保 戴相龙案涉案者董文标外逃<br><font color="#000fC0">(<small>博讯北京时间2015年10月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510051240" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】本社据消息人士透露，正当习近平在美国纽约参加联合国首脑峰会之时，全国工商联副主席、原中国民生银行董事长董文标以开会之名出逃日本，迄今不归。因董涉嫌当局正在调查的前中国人民银行行长戴相龙案，其名字已列入边控名单，出境时曾在首都机场被拦，但他找到两名中共政治局委员孙政才、孙春兰出面担保，边防部门被迫放行。据悉事件已惊动中南海。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       知情人士对本社透露，董文标是以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境时，被北京市出入境管理局根据公安部的边控名单，控制了数小时。但董文标已有所准备，他找到了重庆市委书记孙政才的妻子胡颖；胡现还挂著民生银行旗下北京民生财富学院执行院长、民生文化国际交流中心总经理头衔，胡颖则找了其丈夫孙政才。 <br>
+    <br>
+     同时，董文标又找到另一位中共政治局委员、中央统战部部长孙春兰。两位姓孙的政治局委员似乎同一时间出面，向全国工商联主席全哲洙打招呼作“担保”，因有两位政治局委员担保，全哲洙只好以全国工商联名义，给公安部边防管理局、北京市出入境管理局出示担保传真。被中纪委圈定为边控对象的金融大鳄董文标，就这样大摇大摆离开国境，登上飞往日本的航班，至今未归。<br>
+    <br>
+    博闻全文报道：<a href="http://bowenpress.com/news/bowen_23992.html">点击这里</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510051240" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1141240       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510042159.shtml" target="boxun-mirror">紫禁城来鸿：意识形态“宦官群”正玩残习近平请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -738,27 +773,6 @@
 <b></p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509242334.shtml" target="boxun-mirror">高智晟接受美联社采访视频公布后又再次被抓</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>高智晟接受美联社采访视频公布后 又再次被抓<br><font color="#000fC0">(<small>博讯北京时间2015年9月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509242334" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-    博讯记者获悉，9月23日，美联社公布对著名维权律师高智晟的视频采访之后，高智晟于24日再次被抓。24日下午1点左右，多位国保搜查高律师居住的陕北老家。<br>
-    <br>
-    在美国的对华援助协会会长傅希秋牧师在24日晚上22时左右发出信息说：“可靠消息，就在美联社公布高律师采访后10几个小时北京时间24日下午1点多党国国宝多人开始搜查高律师居住地陕北老家。如先前所料，高律师又一次被失踪。他跟我讲，他做好了各项准备了。为我们的好弟兄祷告。上帝给他力量使他继续刚强壮胆。 ”<br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/DflUjveJNGU" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509242334" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3292334       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
