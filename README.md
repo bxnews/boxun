@@ -34,7 +34,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510042159.shtml" target="boxun-mirror">紫禁城来鸿：意识形态“宦官群”正玩残习近平请看博讯热点：习近平观察</a>
 </h2>
