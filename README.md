@@ -19,6 +19,42 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510061346.shtml" target="boxun-mirror">军队改革:部门变分队徐才厚郭伯雄原在军区撤消</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>军队改革:部门变分队 徐才厚郭伯雄原在军区撤消<br><font color="#000fC0">(<small>博讯北京时间2015年10月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510061346" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     【博闻社独家】中共军队改革方案内容不断曝光。军方消息人士对本社透露，改革的总体方案已经发到各大军区、军兵种的业务部门进行细化。根据方案，现有七大军区撤消改四大战区后，原军区机关各部门改为直属军委总部的分队，主要为发生战事时为本战区提供保障，每个战区辖10到15个分队。所有军官在任职期内要向部队和基层流动。有趣的是，被彻底撤消的三大军区是徐才厚、郭伯雄的发迹地。<br>
+    <br>
+     军方知情者对本社透露，这次军队改革的重头戏是军委总部和指挥机关的重组，军委原有四总部如日前本社已透露，其中，总参谋部升格，将仿照美国的参谋长联席会议，重建为由各兵种将领组成、为中央军委主席提供决策参考的军事智囊式机构。而军委总后勤部和总装备部合并，更名为后勤保障部。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    <a href="http://bowenpress.com/news/bowen_24309.html">博闻社报道全文</a><br>
+    -
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510061346" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2321346       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510050249.shtml" target="boxun-mirror">信力建被以三宗罪批捕实为以言治罪及涉香港占中</a>
 </h2>
 <p><tr>
@@ -728,46 +764,6 @@
     （以上信息摘自 杨澜微博）
  [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 1431330       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509252353.shtml" target="boxun-mirror">《华尔街日报》爆光成都军区黑客部队习奥会前的难堪请看博讯热点：习近平访美</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>《华尔街日报》爆光成都军区黑客部队 习奥会前的难堪<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月25日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      【博闻社综合】习近平访美行重头戏“习奥会”将于美东时间25日登场，美媒于此非常时刻，再次披露中国军方一支未爆光过的黑客78020部队。本社获悉，中方代表团因此事遭揭露大为紧张，美媒见报当日即急电北京查处。有关报道与23日美方指560万联邦雇员指纹遭中方窃取一起，势将成习奥会交锋热点。习近平如何应对，苦煞身边文胆智库。<br>
-    《华尔街日报》24日报导指，由顾问公司ThreatConnect和DGI联合发布的报告称，位于云南昆明的成都军区78020部队是解放军的骇客部队。加以2013年美国权威媒体《纽约时报》亦曾披露位于上海浦东、隶属于中国人民解放军61398部队的骇客组织，定为习奥会再添阴霾。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       报告追踪一名为“葛星”的该部队军人。表面上是一名研究泰国政治的学者，曾在学术期刊上发表过两篇论文，论文显示他属于成都军区78020部队。这是一只隶属成都军区的技术侦查部队，驻地昆明。<br>
-    维吉尼亚智库Project 2049 Institute执行主任、中国军队通信情报活动专家的石明凯（Mark Stokes）表示，中国人民解放军共有20多个类似78020部队的建制，其功能为情报收集、分析和电脑网络防御和开发。<br>
-    <br>
-    成都军区负责维护西藏安全，同时负责中国与越、缅及印度的边境安全。石明凯指出，成都军区还有一只类似的侦查部队，专门针对与西藏流亡的精神领袖达赖喇嘛（Dalai Lama）有关的网络系统。石明凯表示，鉴于成都军区边境维稳的任务重心，78020部队收集南海情报并不意外。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_21751.html">博闻社全文报道点击此处</a>
- [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 4672353       
 <hr>
 <table width="620"><tr><td>
 <b></p>
