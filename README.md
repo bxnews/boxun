@@ -58,7 +58,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510071143.shtml" target="boxun-mirror">窃听艾未未不奇怪，习近平也被“有关部门”监控请看博讯热点：习近平观察</a>
 </h2>
@@ -93,7 +93,7 @@
     <br>
     而“有关部门”在解释事件时公然称：他们的行为并不是针习主席或中央领导，而是依据国家有关法律法规，为保</td></tr></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510061346.shtml" target="boxun-mirror">军队改革:部门变分队徐才厚郭伯雄原在军区撤消</a>
 </h2>
