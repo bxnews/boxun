@@ -19,6 +19,41 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510071143.shtml" target="boxun-mirror">窃听艾未未不奇怪，习近平也被“有关部门”监控请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>窃听艾未未不奇怪，习近平也被“有关部门”监控<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510071143" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_24431.html">博闻社独家</a>】在中共媒体特定的语意环境中，“有关部门”通常是指一些不便明说、但属高度敏感的机构，例如公安、国安等等。近日传出艾未未装修办公室发现插头上有窃听装置，同时又有报道指广东民企教育家信力建被窃听一年有余，媒体对涉嫌此行为的机构均用“有关部门”代称。一个泱泱大国“有关部门”对自己的公民肆无忌惮，实在是可悲可笑。<br>
+    <br>
+     但国人可能有所不知，被“有关部门”如此放肆对待而深感烦恼的，绝对不止是普罗百姓，甚至连中共高层亦莫能幸免。本编辑收到来自中南海的爆料就显示，中共总书记、国家主席习近平，也成为“有关部门”监控窃听的对象，尽管“有关部门”被调查时宣称，他们是“无意间”截获与习主席有关的机密，但亦足可证明，“有关部门”的胡作非为已严重到何种程度。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+     中南海知情者透露，事情是从习近平一位心腹智库给外围人士部署一项调查项目，在传回北京某位领导人普通信箱时，被“有关部门”成功截获，截获后由于处理不善，又被习身边人安插在这个部门的亲信发现，报告上去。也就是说，习近平要求了解的东西，“有关部门”居然比习本人更早看到了。<br>
+    <br>
+    事情被发现后，中办保密局曾奉旨进行调查，结果发现，习身边的心腹智库不但电邮信箱被监控，连他们的手机号码(据说还有习夫人彭丽媛和女儿习明泽的手机号码)，也在“有关部门”的监听名单中！所幸习主席不亲自拿手机，否则恐怕连习也成了监听对象！<br>
+    <br>
+    而“有关部门”在解释事件时公然称：他们的行为并不是针习主席或中央领导，而是依据国家有关法律法规，为保</td></tr></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510061346.shtml" target="boxun-mirror">军队改革:部门变分队徐才厚郭伯雄原在军区撤消</a>
 </h2>
 <p><tr>
@@ -743,18 +778,6 @@
 </a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509251305" target="_new">支持此文作者/记者</a></small>)</font>
 </center>
                 <!--bodystart-->     【<a href="http://bowenpress.com/news/bowen_21308.html">博闻社独家</a>】正当习近平在美国八面威风地出席一场又一场活动，外界注意力都集中在大洋彼岸之时，在习的后院北京及至中国，一场新的“公共安全保</td></tr></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509250022.shtml" target="boxun-mirror">六四后首位被判"颠覆罪"的法官李建峰抵加拿大</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>六四后首位被判"颠覆罪"的法官李建峰抵加拿大<br><font color="#000fC0">(<small>博讯北京时间2015年9月25日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->     <img src="http://bowenpress.com/wp-content/uploads/2015/09/f184ccdd184184d184000e184f184184184184a184e184e184c18418418400184" width="550"><br>
-     【<a href="http://bowenpress.com/news/bowen_21585.html">博</a>
-</td></tr></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
