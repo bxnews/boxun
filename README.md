@@ -19,6 +19,47 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510071153.shtml" target="boxun-mirror">独家：谷丽萍招认蔡名照与令计划特殊关系请看博讯热点：令计划</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：谷丽萍招认蔡名照与令计划特殊关系<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510071153" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_24511.html">博闻社独家</a>】前中央外宣办主任、现新华社社长蔡名照与前中共中央办公厅主任令计划关系不同寻常再获证实。本社获悉，令计划的夫人谷丽萍在接受中纪委审查时招认，令计划落马前，蔡名照利用所掌外宣便利，曾安排她和海外某网站主编电话联系，要求该网站为令家负面传闻“解划”辟谣，唯最终未能挡住中纪委的调查步伐。<br>
+    <br>
+     来自中纪委的消息指，去年7月央视知名男主播芮成钢被纪检部门拘查后，外界即传出芮与谷丽萍关系密切，甚至有“姐弟恋”不当男女关系，其时，中纪委对令计划的调查正紧罗密鼓进行中，有关传闻显然对令氏十分不利，令计划和谷丽萍都十分紧张。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    这时，身为中央宣传部副部长、中央对外宣传办公室主任的蔡名照给他们出谋献策，亲自安排谷丽萍与海外某知名中文网站负责人电话联系，主动“供料”否认她和芮成钢有不当关系，称她和芮“其实只见过一面”。该网站后以独家消息做了发布，为谷丽萍作“辟谣”。<br>
+    <br>
+     中纪委知情者指，蔡名照当时作为掌管外宣的副部级高级领导人，是知道中央正对令氏进行调查，而当局对央视中高层的调查也是其中一部份；但蔡却利用自己主管工作的便利，为令氏家人出谋献策，排忧解难，此举明显属于违反组织纪律。<br>
+    <br>
+    当然，这些小动作无妨中央反腐败的决心，去年12月22日，当局宣告对令计划立案调查。同时，谷丽萍也被采取强制措施审查。同月，中央决定将蔡名照调离外宣口，改任新华社社长职。<br>
+    <br>
+     消息指，有关部门调查显示，蔡名照不但是令计划“党内山头”的一分子，而且两者还有重大经济利益交集。令计划弟弟令完成背后主持的“金融街”网站，就曾请蔡名照的二婚太太陈妩当高管，该网站后来在深交所及美国上市，令氏家族、蔡氏家族大获其利。<br>
+    <br>
+    消息指，在2008年“金融街”紧锣密鼓筹划上市之时，令计划夫妇、令完成夫妇与蔡名照夫妇曾一起在京西宾馆聚餐，商量有关上市宣传一事。谷丽萍通过芮成钢在央视经济频道，蔡名照则利用其掌握的海外外宣资源，令完成的妻子李平则利用自己曾在央视工作的人脉，对该网站进行大肆吹捧。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510071153" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4211153       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510071143.shtml" target="boxun-mirror">窃听艾未未不奇怪，习近平也被“有关部门”监控请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -769,17 +810,6 @@
 <b></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509251305.shtml" target="boxun-mirror">出访担心后院起火习近平下令北京“保平安”请看博讯热点：习近平访美</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>出访担心后院起火 习近平下令北京“保平安”<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509251305" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【<a href="http://bowenpress.com/news/bowen_21308.html">博闻社独家</a>】正当习近平在美国八面威风地出席一场又一场活动，外界注意力都集中在大洋彼岸之时，在习的后院北京及至中国，一场新的“公共安全保</td></tr></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
