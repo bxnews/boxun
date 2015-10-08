@@ -19,6 +19,41 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510071143.shtml" target="boxun-mirror">窃听艾未未不奇怪，习近平也被“有关部门”监控请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>窃听艾未未不奇怪，习近平也被“有关部门”监控<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510071143" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_24431.html">博闻社独家</a>】在中共媒体特定的语意环境中，“有关部门”通常是指一些不便明说、但属高度敏感的机构，例如公安、国安等等。近日传出艾未未装修办公室发现插头上有窃听装置，同时又有报道指广东民企教育家信力建被窃听一年有余，媒体对涉嫌此行为的机构均用“有关部门”代称。一个泱泱大国“有关部门”对自己的公民肆无忌惮，实在是可悲可笑。<br>
+    <br>
+     但国人可能有所不知，被“有关部门”如此放肆对待而深感烦恼的，绝对不止是普罗百姓，甚至连中共高层亦莫能幸免。本编辑收到来自中南海的爆料就显示，中共总书记、国家主席习近平，也成为“有关部门”监控窃听的对象，尽管“有关部门”被调查时宣称，他们是“无意间”截获与习主席有关的机密，但亦足可证明，“有关部门”的胡作非为已严重到何种程度。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+     中南海知情者透露，事情是从习近平一位心腹智库给外围人士部署一项调查项目，在传回北京某位领导人普通信箱时，被“有关部门”成功截获，截获后由于处理不善，又被习身边人安插在这个部门的亲信发现，报告上去。也就是说，习近平要求了解的东西，“有关部门”居然比习本人更早看到了。<br>
+    <br>
+    事情被发现后，中办保密局曾奉旨进行调查，结果发现，习身边的心腹智库不但电邮信箱被监控，连他们的手机号码(据说还有习夫人彭丽媛和女儿习明泽的手机号码)，也在“有关部门”的监听名单中！所幸习主席不亲自拿手机，否则恐怕连习也成了监听对象！<br>
+    <br>
+    而“有关部门”在解释事件时公然称：他们的行为并不是针习主席或中央领导，而是依据国家有关法律法规，为保</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510071153.shtml" target="boxun-mirror">独家：谷丽萍招认蔡名照与令计划特殊关系请看博讯热点：令计划</a>
 </h2>
 <p><tr>
@@ -60,40 +95,24 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510071143.shtml" target="boxun-mirror">窃听艾未未不奇怪，习近平也被“有关部门”监控请看博讯热点：习近平观察</a>
+	<a href="http://www.boxun.com/news/gb/pubvp/2015/10/201510061350.shtml" target="boxun-mirror">未来条件许可，习近平很可能会有惊人之举/紫荆来鸿请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
 
-                <br><b></b><center>窃听艾未未不奇怪，习近平也被“有关部门”监控<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510071143" target="_new">支持此文作者/记者</a></small>)</font>
+                <br><b></b><center>未来条件许可，习近平很可能会有惊人之举/ 紫荆来鸿<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201510061350" target="_new">支持此文作者/记者</a></small>)</font>
 </center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_24431.html">博闻社独家</a>】在中共媒体特定的语意环境中，“有关部门”通常是指一些不便明说、但属高度敏感的机构，例如公安、国安等等。近日传出艾未未装修办公室发现插头上有窃听装置，同时又有报道指广东民企教育家信力建被窃听一年有余，媒体对涉嫌此行为的机构均用“有关部门”代称。一个泱泱大国“有关部门”对自己的公民肆无忌惮，实在是可悲可笑。<br>
-    <br>
-     但国人可能有所不知，被“有关部门”如此放肆对待而深感烦恼的，绝对不止是普罗百姓，甚至连中共高层亦莫能幸免。本编辑收到来自中南海的爆料就显示，中共总书记、国家主席习近平，也成为“有关部门”监控窃听的对象，尽管“有关部门”被调查时宣称，他们是“无意间”截获与习主席有关的机密，但亦足可证明，“有关部门”的胡作非为已严重到何种程度。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
+                <!--bodystart-->     有些问题对于许多身在帝都，身在圈内的人来说，不能讲的那么直白，那么具体。否则是”违纪“，甚至有可能引来”牢狱之灾“。下面讲的都是公开的事例，但请先生细细品味其中的韵味。<br>
+    <br><center><font size="4"><b>一、王大人与老板的关系</b></font></center>
 <br>
-                       <br>
-     中南海知情者透露，事情是从习近平一位心腹智库给外围人士部署一项调查项目，在传回北京某位领导人普通信箱时，被“有关部门”成功截获，截获后由于处理不善，又被习身边人安插在这个部门的亲信发现，报告上去。也就是说，习近平要求了解的东西，“有关部门”居然比习本人更早看到了。<br>
     <br>
-    事情被发现后，中办保密局曾奉旨进行调查，结果发现，习身边的心腹智库不但电邮信箱被监控，连他们的手机号码(据说还有习夫人彭丽媛和女儿习明泽的手机号码)，也在“有关部门”的监听名单中！所幸习主席不亲自拿手机，否则恐怕连习也成了监听对象！<br>
+    老板登基是各派的妥协，胡温势力全力支持的结果。但登基不等于大权在握。老板上台后，敲山震虎，层层夺权，则是靠王某人冒着掉脑袋的危险，以反腐为利器，披荆斩棘，杀出来的一条血路。<br>
     <br>
-    而“有关部门”在解释事件时公然称：他们的行为并不是针习主席或中央领导，而是依据国家有关法律法规，为保</td></tr></p>
+    掌实权的顶级官员都是百炼成钢，绝顶聪明的人物。人人都知道，反腐是个高危的事业。反腐不管触动了那一方的利益，稍有不慎，都可能身败名裂，死无葬身之地。所以历届纪委书记在反腐问题上都很谨慎。”无为而治“，”多一事不如少一事“是常态。<br>
+    <br>
+    王大人是人精中的人精，地位已至极顶，升无可升，本来可以做太平官，完全没有必要赴汤蹈火，把自身置于不测之地。但王大人居然甘为”马前卒“，不顾个人安危，冲锋陷阵，把上上下下所有的人得罪了个遍。如果说这种绝决的行为是出自“党性”，出自“对无产阶级革命事业的忠诚”，那纯粹是不靠谱的童话故事，那连三岁的孩子都</td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510061346.shtml" target="boxun-mirror">军队改革:部门变分队徐才厚郭伯雄原在军区撤消</a>
 </h2>
@@ -131,42 +150,6 @@
 <p>
 	<small> ============== 2天前</small>
 </p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2015/10/201510061350.shtml" target="boxun-mirror">未来条件许可，习近平很可能会有惊人之举/紫荆来鸿请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>未来条件许可，习近平很可能会有惊人之举/ 紫荆来鸿<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201510061350" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     有些问题对于许多身在帝都，身在圈内的人来说，不能讲的那么直白，那么具体。否则是”违纪“，甚至有可能引来”牢狱之灾“。下面讲的都是公开的事例，但请先生细细品味其中的韵味。<br>
-    <br><center><font size="4"><b>一、王大人与老板的关系</b></font></center>
-<br>
-    <br>
-    老板登基是各派的妥协，胡温势力全力支持的结果。但登基不等于大权在握。老板上台后，敲山震虎，层层夺权，则是靠王某人冒着掉脑袋的危险，以反腐为利器，披荆斩棘，杀出来的一条血路。<br>
-    <br>
-    掌实权的顶级官员都是百炼成钢，绝顶聪明的人物。人人都知道，反腐是个高危的事业。反腐不管触动了那一方的利益，稍有不慎，都可能身败名裂，死无葬身之地。所以历届纪委书记在反腐问题上都很谨慎。”无为而治“，”多一事不如少一事“是常态。<br>
-    <br>
-    王大人是人精中的人精，地位已至极顶，升无可升，本来可以做太平官，完全没有必要赴汤蹈火，把自身置于不测之地。但王大人居然甘为”马前卒“，不顾个人安危，冲锋陷阵，把上上下下所有的人得罪了个遍。如果说这种绝决的行为是出自“党性”，出自“对无产阶级革命事业的忠诚”，那纯粹是不靠谱的童话故事，那连三岁的孩子都</td></tr></p>
-<p>
-	<small> ============== 2天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510050249.shtml" target="boxun-mirror">信力建被以三宗罪批捕实为以言治罪及涉香港占中</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>信力建被以三宗罪批捕 实为以言治罪及涉香港占中<br><font color="#000fC0">(<small>博讯北京时间2015年10月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510050249" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】本社获悉，内地知名民间教育家、企业家及温和派学者信力建，近日正式被广州市检察院以「销毁账户、偷税漏税及挪用资金」三宗罪批准逮捕，但公安在预审时明确暗示信，他之所以「进来」，完全是因为他那些「出格言论」。而且就是不能让他再沾教育事业的边。据透露，公安还明确告知信，他被治罪，还与去年底他支持香港占中运动有关。<br>
-    <br>
-    博闻长篇全文报道：<a href="http://bowenpress.com/news/bowen_23964.html">点击这里</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510050249" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1080249       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 3天前</small>
-</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510051240.shtml" target="boxun-mirror">两政治局委员担保戴相龙案涉案者董文标外逃</a>
 </h2>
 <p><tr>
@@ -196,6 +179,23 @@
     <br>
     博闻全文报道：<a href="http://bowenpress.com/news/bowen_23992.html">点击这里</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510051240" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1141240       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 3天前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510050249.shtml" target="boxun-mirror">信力建被以三宗罪批捕实为以言治罪及涉香港占中</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>信力建被以三宗罪批捕 实为以言治罪及涉香港占中<br><font color="#000fC0">(<small>博讯北京时间2015年10月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510050249" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】本社获悉，内地知名民间教育家、企业家及温和派学者信力建，近日正式被广州市检察院以「销毁账户、偷税漏税及挪用资金」三宗罪批准逮捕，但公安在预审时明确暗示信，他之所以「进来」，完全是因为他那些「出格言论」。而且就是不能让他再沾教育事业的边。据透露，公安还明确告知信，他被治罪，还与去年底他支持香港占中运动有关。<br>
+    <br>
+    博闻长篇全文报道：<a href="http://bowenpress.com/news/bowen_23964.html">点击这里</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510050249" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1080249       
 <hr>
 <table width="620"><tr><td>
 <b></p>
@@ -378,6 +378,86 @@
 <p>
 	<small> ============== 8天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509290400.shtml" target="boxun-mirror">傅政华掌610办实为靠边站公安国安将改组/紫禁城来鸿</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>傅政华掌610办实为靠边站 公安国安将改组/紫禁城来鸿<br><font color="#000fC0">(<small>博讯北京时间2015年9月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509290400" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】9月26日，《新疆日报》报道中央代表团出席新疆自治区成立60周年庆祝活动时，透露公安部副部长傅政华第一身份是“中央610办公室主任”，从而爆光傅政华已接掌“610办”这个正部级机构。外界有分析认为这或显示傅政华获重用，但北京消息对本社指，傅的职位安排非但不是升官，反而是靠边站，在习近平的政法团队他已完全失势，只等平安退休了。消息指，下月五中全会后，中共公安、国安等政法部门将大改组。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    接近中南海的消息人士对本社透露，过去两年多外界一直传傅政华在习近平拿下周永康、令计划的行动中立功，因而获习近平重用，从北京市公安局长升到公安部副部长、随后又成为公安部党委副书记，官居正部级，外界看好其仕途，视之为中共政法界的“明日之星”，甚至认为未来或会接掌公安部。<br>
+    <br>
+    中共政法部门将大改组<br>
+    <br>
+    不过，北京知情者对本社指，傅政华在中共拿下周永康、令计划的“反腐败大计中”有立功表现不假，主要是他在主掌北京市公安局时，于2012年3月18日令计划的儿子令谷在北京城区驾法拉利</td></tr></p>
+<p>
+	<small> ============== 9天前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509290355.shtml" target="boxun-mirror">习近平和彭丽媛座驾被截视频分析请看博讯热点：习近平访美</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平和彭丽媛座驾被截视频分析<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509290355" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    博讯记者西诺刚刚接到一个在9月25日堵截习近平车队的视频，通过该视频可以清楚地获知，习近平和彭丽媛座驾被一位身穿浅色上衣和蓝色裤子浅色鞋子的妇女堵截。<br>
+    <br>
+    视频开始有10辆摩托车队开道，这显示是国家级元首待遇的车队，当视频在29秒时刻，在车辆行驶方向的左侧有一位妇女站在一个悬挂3种旗帜的电线杆下，第32秒钟时这位妇女手里抓了一份材料开始向马路中间靠拢，第34秒当一辆白色保安车开过时，这位妇女开始加速冲向快速行驶的车队，第36秒钟这位妇女到达第一辆凯迪拉克车尾部，第40秒钟这位妇女将第二辆凯迪拉克车截停，这位妇女将该车逼向右侧停下，后续车陆续也停下，第42秒这位妇女钻到车子底下，同时马路左侧出现一位穿红色服装梳马尾辫，带着腰带的女青年（李焕君），在她身旁的警察摆出姿势防止进入马路。第44秒警察过来抓住截车妇女，一条警犬也在协助，随后警察将该妇女拖向马上左侧，警犬也加入拖人行动，第48秒，该妇女被拖入左侧人行道，同时访民郭红出现并鼓掌叫好。第49秒第二辆被截的凯迪拉克开始启动离开，第50秒一位手持雪山狮子旗的藏人在左侧观看。第53秒访民安子新手持照相机在拍摄现场照片。第57秒一辆浅灰色的福特车跟随3辆警车后驶过。1分11秒访民杭浩东和湖北女访民出现在马路左侧，马路行驶的警卫车飞速通过，1分18秒最后一辆警车通过现场。<br>
+    <br>
+    经过记者对马永田服饰的检查，证明这个视频中的截车妇女就是马永田。<br>
+    <br>
+    经比较现场截住的是习近平的座驾<br>
+    <br>
+    <img src="/news/images/2015/09/201509290355intl1.jpg" alt="习近平和彭丽媛座驾被截视频分析"><p><br>
+    <br>
+    这是马永田截住的凯迪拉克车<br>
+    <br>
+    <img src="/news/images/2015/09/201509290355intl2.jpg" alt="习近平和彭丽媛座驾被截视频分析"></p>
+<p><br>
+    <br>
+    这是网站上透露的习的车子<br>
+    <img src="/news/images/2015/09/201509290355intl3.jpg" alt="习近平和彭丽媛座驾被截视频分析"></p>
+<p><br>
+    <br>
+    这是现场的福特车<br>
+    <br>
+    <img src="/news/images/2015/09/201509290355intl4.jpg" alt="习近平和彭丽媛座驾被截视频分析"></p>
+<p><br>
+    这是网站上宣传的彭丽媛的福特车<br>
+    <br>
+    再根据马永田事后的追溯，可以判定，在21街和E街的交口处，由马永田截住了习近平和彭丽媛的座驾。<br>
+    <br>
+    博讯记者西诺 纽约报道。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509290355" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509281152491.jpg http://upload.bx.tl/news/temp13/201509281152492.jpg http://upload.bx.tl/news/temp13/201509281152493.jpg http://upload.bx.tl/news/temp13/201509281152494.jpg--> 3230355       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 9天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509292318.shtml" target="boxun-mirror">视频、多图：杭州审判中国民主党，维权人士冒雨声援，梁丽婉电动车被抢</a>
 </h2>
 <p><tr>
@@ -429,85 +509,48 @@
 <p>
 	<small> ============== 9天前</small>
 </p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509290355.shtml" target="boxun-mirror">习近平和彭丽媛座驾被截视频分析请看博讯热点：习近平访美</a>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509281416.shtml" target="boxun-mirror">马永田拦截习近平、彭丽媛的视频曝光请看博讯热点：习近平访美</a>
 </h2>
 <p><tr>
 <td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
 
-                <br><b></b><center>习近平和彭丽媛座驾被截视频分析<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509290355" target="_new">支持此文作者/记者</a></small>)</font>
+                <br><b></b><center>马永田拦截习近平、彭丽媛的视频曝光<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509281416" target="_new">支持此文作者/记者</a></small>)</font>
 </center>
-                <!--bodystart-->      <br>
+                <!--bodystart-->     <iframe width="560" height="315" src="https://www.youtube.com/embed/ycH_WIQLA-0" frameborder="0" allowfullscreen></iframe><br>
     <br>
-    博讯记者西诺刚刚接到一个在9月25日堵截习近平车队的视频，通过该视频可以清楚地获知，习近平和彭丽媛座驾被一位身穿浅色上衣和蓝色裤子浅色鞋子的妇女堵截。<br>
+    【博闻社】本社获取的这段视频，从远处拍到访民马永田在华盛顿拦截习近平、彭丽媛车队的全过程。<br>
     <br>
-    视频开始有10辆摩托车队开道，这显示是国家级元首待遇的车队，当视频在29秒时刻，在车辆行驶方向的左侧有一位妇女站在一个悬挂3种旗帜的电线杆下，第32秒钟时这位妇女手里抓了一份材料开始向马路中间靠拢，第34秒当一辆白色保安车开过时，这位妇女开始加速冲向快速行驶的车队，第36秒钟这位妇女到达第一辆凯迪拉克车尾部，第40秒钟这位妇女将第二辆凯迪拉克车截停，这位妇女将该车逼向右侧停下，后续车陆续也停下，第42秒这位妇女钻到车子底下，同时马路左侧出现一位穿红色服装梳马尾辫，带着腰带的女青年（李焕君），在她身旁的警察摆出姿势防止进入马路。第44秒警察过来抓住截车妇女，一条警犬也在协助，随后警察将该妇女拖向马上左侧，警犬也加入拖人行动，第48秒，该妇女被拖入左侧人行道，同时访民郭红出现并鼓掌叫好。第49秒第二辆被截的凯迪拉克开始启动离开，第50秒一位手持雪山狮子旗的藏人在左侧观看。第53秒访民安子新手持照相机在拍摄现场照片。第57秒一辆浅灰色的福特车跟随3辆警车后驶过。1分11秒访民杭浩东和湖北女访民出现在马路左侧，马路行驶的警卫车飞速通过，1分18秒最后一辆警车通过现场。<br>
+    视频由拍摄者给博讯记者西诺，当事人要求不公开名字。<br>
     <br>
-    经过记者对马永田服饰的检查，证明这个视频中的截车妇女就是马永田。<br>
+    <a href="/news/gb/intl/2015/09/201509280311.shtml">马永田亲述访民拦截习近平车队完整经过</a><br>
     <br>
-    经比较现场截住的是习近平的座驾<br>
-    <br>
-    <img src="/news/images/2015/09/201509290355intl1.jpg" alt="习近平和彭丽媛座驾被截视频分析"><p><br>
-    <br>
-    这是马永田截住的凯迪拉克车<br>
-    <br>
-    <img src="/news/images/2015/09/201509290355intl2.jpg" alt="习近平和彭丽媛座驾被截视频分析"></p>
-<p><br>
-    <br>
-    这是网站上透露的习的车子<br>
-    <img src="/news/images/2015/09/201509290355intl3.jpg" alt="习近平和彭丽媛座驾被截视频分析"></p>
-<p><br>
-    <br>
-    这是现场的福特车<br>
-    <br>
-    <img src="/news/images/2015/09/201509290355intl4.jpg" alt="习近平和彭丽媛座驾被截视频分析"></p>
-<p><br>
-    这是网站上宣传的彭丽媛的福特车<br>
-    <br>
-    再根据马永田事后的追溯，可以判定，在21街和E街的交口处，由马永田截住了习近平和彭丽媛的座驾。<br>
-    <br>
-    博讯记者西诺 纽约报道。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509290355" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201509281152491.jpg http://upload.bx.tl/news/temp13/201509281152492.jpg http://upload.bx.tl/news/temp13/201509281152493.jpg http://upload.bx.tl/news/temp13/201509281152494.jpg--> 3230355       
-</p>
+    习近平访美期间，各站现场都有大量视频传给博讯，对此，特别感谢赵岩、艾布拉和各界拍摄的朋友们。因博讯资源有限，团队需要改进，我们对现场访民等采访跟踪不足，有些信息来不及核实，有些失误，希望各界谅解。也感谢西诺快速收发视频等信息。希望大家求同存异，在细节问题上不必有情绪，欢迎直接给博讯指出问题，以及促使博讯改进。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509281416" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2571416       
 <hr>
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509290400.shtml" target="boxun-mirror">傅政华掌610办实为靠边站公安国安将改组/紫禁城来鸿</a>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509280404.shtml" target="boxun-mirror">视频：王兰青被欢迎习近平的队伍打晕反被警察铐走请看博讯热点：习近平访美</a>
 </h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
 
-                <br><b></b><center>傅政华掌610办实为靠边站 公安国安将改组/紫禁城来鸿<br><font color="#000fC0">(<small>博讯北京时间2015年9月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509290400" target="_new">支持此文作者/记者</a></small>)</font>
+                <br><b></b><center>视频：王兰青被欢迎习近平的队伍打晕 反被警察铐走<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509280404" target="_new">支持此文作者/记者</a></small>)</font>
 </center>
-                <!--bodystart-->      <br>
+                <!--bodystart-->       <iframe width="560" height="315" src="https://www.youtube.com/embed/nx-jweQvvew" frameborder="0" allowfullscreen></iframe><br>
     <br>
-     【博闻社独家】9月26日，《新疆日报》报道中央代表团出席新疆自治区成立60周年庆祝活动时，透露公安部副部长傅政华第一身份是“中央610办公室主任”，从而爆光傅政华已接掌“610办”这个正部级机构。外界有分析认为这或显示傅政华获重用，但北京消息对本社指，傅的职位安排非但不是升官，反而是靠边站，在习近平的政法团队他已完全失势，只等平安退休了。消息指，下月五中全会后，中共公安、国安等政法部门将大改组。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    接近中南海的消息人士对本社透露，过去两年多外界一直传傅政华在习近平拿下周永康、令计划的行动中立功，因而获习近平重用，从北京市公安局长升到公安部副部长、随后又成为公安部党委副书记，官居正部级，外界看好其仕途，视之为中共政法界的“明日之星”，甚至认为未来或会接掌公安部。<br>
-    <br>
-    中共政法部门将大改组<br>
-    <br>
-    不过，北京知情者对本社指，傅政华在中共拿下周永康、令计划的“反腐败大计中”有立功表现不假，主要是他在主掌北京市公安局时，于2012年3月18日令计划的儿子令谷在北京城区驾法拉利</td></tr></p>
+    【博闻社独家】纽约当地时间9月27日中午12点前后，来自河北保定的女访民王兰青在华尔道夫习近平途径之路，误入欢迎习近平的五星红旗的队伍，结果被群起攻击打晕在地。奇怪的是，纽约警察将王兰青上铐，带进了救护车，对打人者未有任何警告和干预。从视频可以看出，王兰青被警察拖起时人事不省，后来才恢复知觉，开始喊口号。警察拖走她是，五星旗人群哄笑（一个有尊严、文明的民族，即使在战场，对伤员被拖走也不应该哄笑，五星旗群体的行为展示出这个群体是多么的愚昧和残暴）<br>
+    视频为赵岩拍摄和提供。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509280404" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2350404       
+<hr>
+<table width="620"><tr><td>
+<b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/09/201509280408.shtml" target="boxun-mirror">习近平访美：第一千金习明泽随团藏身工作人员列请看博讯热点：习近平访美</a>
 </h2>
@@ -546,48 +589,17 @@
 <p>
 	<small> ============== 10天前</small>
 </p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509280404.shtml" target="boxun-mirror">视频：王兰青被欢迎习近平的队伍打晕反被警察铐走请看博讯热点：习近平访美</a>
+	<a href="http://www.boxun.com/news/gb/china/2015/09/201509271221.shtml" target="boxun-mirror">博闻社独家：中信证券更多不为人知的黑幕请看博讯热点：股市危机</a>
 </h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
 
-                <br><b></b><center>视频：王兰青被欢迎习近平的队伍打晕 反被警察铐走<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509280404" target="_new">支持此文作者/记者</a></small>)</font>
+                <br><b></b><center>博闻社独家：中信证券更多不为人知的黑幕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509271221" target="_new">支持此文作者/记者</a></small>)</font>
 </center>
-                <!--bodystart-->       <iframe width="560" height="315" src="https://www.youtube.com/embed/nx-jweQvvew" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    【博闻社独家】纽约当地时间9月27日中午12点前后，来自河北保定的女访民王兰青在华尔道夫习近平途径之路，误入欢迎习近平的五星红旗的队伍，结果被群起攻击打晕在地。奇怪的是，纽约警察将王兰青上铐，带进了救护车，对打人者未有任何警告和干预。从视频可以看出，王兰青被警察拖起时人事不省，后来才恢复知觉，开始喊口号。警察拖走她是，五星旗人群哄笑（一个有尊严、文明的民族，即使在战场，对伤员被拖走也不应该哄笑，五星旗群体的行为展示出这个群体是多么的愚昧和残暴）<br>
-    视频为赵岩拍摄和提供。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509280404" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2350404       
-<hr>
-<table width="620"><tr><td>
-<b></p>
+                <!--bodystart-->      <br>
+    【博</td></tr></p>
 <p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509281416.shtml" target="boxun-mirror">马永田拦截习近平、彭丽媛的视频曝光请看博讯热点：习近平访美</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>马永田拦截习近平、彭丽媛的视频曝光<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509281416" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <iframe width="560" height="315" src="https://www.youtube.com/embed/ycH_WIQLA-0" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    【博闻社】本社获取的这段视频，从远处拍到访民马永田在华盛顿拦截习近平、彭丽媛车队的全过程。<br>
-    <br>
-    视频由拍摄者给博讯记者西诺，当事人要求不公开名字。<br>
-    <br>
-    <a href="/news/gb/intl/2015/09/201509280311.shtml">马永田亲述访民拦截习近平车队完整经过</a><br>
-    <br>
-    习近平访美期间，各站现场都有大量视频传给博讯，对此，特别感谢赵岩、艾布拉和各界拍摄的朋友们。因博讯资源有限，团队需要改进，我们对现场访民等采访跟踪不足，有些信息来不及核实，有些失误，希望各界谅解。也感谢西诺快速收发视频等信息。希望大家求同存异，在细节问题上不必有情绪，欢迎直接给博讯指出问题，以及促使博讯改进。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509281416" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2571416       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509270035.shtml" target="boxun-mirror">视频：赵岩细说“拦习近平车告御状现象”请看博讯热点：习近平访美</a>
 </h2>
@@ -606,17 +618,40 @@
 <p>
 	<small> ============== 11天前</small>
 </p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509271221.shtml" target="boxun-mirror">博闻社独家：中信证券更多不为人知的黑幕请看博讯热点：股市危机</a>
+	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260704.shtml" target="boxun-mirror">视频：成功拦截习近平车队数名访民材料被受理请看博讯热点：习近平访美</a>
 </h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
 
-                <br><b></b><center>博闻社独家：中信证券更多不为人知的黑幕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509271221" target="_new">支持此文作者/记者</a></small>)</font>
+                <br><b></b><center>视频：成功拦截习近平车队 数名访民材料被受理<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509260704" target="_new">支持此文作者/记者</a></small>)</font>
 </center>
-                <!--bodystart-->      <br>
-    【博</td></tr></p>
+                <!--bodystart-->     女访民从习近平车前被抬走<br>
+    <br>
+    <img src="http://bowenpress.com/wp-content/uploads/2015/09/f193ccdd193193d193000e193f193193193193a193e193e193c19319319300193-620x315."><br>
+    <br>
+    ［<a href="http://bowenpress.com/news/bowen_21951.html">博闻社报道</a>］美国首都华盛顿当地时间25日中午，数名在美国申冤的访民冲过警戒线拦截习近平车队，导致车队短暂停留，其中疑为习近平的车为了躲避访民，偏向马路边。警察快速行动，车队短暂停留期间，示威的访民被控制，车队继续前行。其中，马永田北警察带走。<br>
+    <br>
+    拦截共发生两次:下午1点10分左右，习近平的车队经过18街与E街交叉口，当两辆凯迪拉克出现时，多位访民冲过去，将前面一辆凯迪拉克拦下，北京访民李焕君和上海访民葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来。那一辆车正好坐着习近平，葛丽芳和李焕君看到了习近平，习近平与访民对视了几秒钟。随后，警察冲过去将李焕君和葛丽芳带到警戒线以外，没说什么就当场放了，习近平的车也离开了。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/AqqeXMAe4HY" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    下午1时37分左右，彭丽媛的车队经过21街与C街交叉的地方，有四位访民冲出封锁线，其中马永田堵到了彭丽媛的车，这个车被堵到人行道，随后车开走，马永田被警察扣留。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/vGy62-WsTcE" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    24日拦截车队被警察扑倒受伤就医的张翠平已经出院。<br>
+    <br>
+    在25日中午拦截车队事件后，不到2小时，中方相关部门派出人员和访民谈话，将他们的申诉材料拿走。<br>
+    <br>
+    下午3点49分时，马永田仍在现场被警察问话。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/jCxev_3z-KQ" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/WUtNes8GY8I" frameborder="0" allowfullscreen></iframe>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509260704" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3760704       
+<hr>
+<table width="620"><tr><td>
+<b></p>
 <p>
-	<small> ============== 11天前</small>
+	<small> ============== 12天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260143.shtml" target="boxun-mirror">视频：各界人士华盛顿白宫国务院前抗议习近平访美请看博讯热点：习近平访美</a>
 </h2>
@@ -770,41 +805,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509260143" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1130143       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260704.shtml" target="boxun-mirror">视频：成功拦截习近平车队数名访民材料被受理请看博讯热点：习近平访美</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：成功拦截习近平车队 数名访民材料被受理<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509260704" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     女访民从习近平车前被抬走<br>
-    <br>
-    <img src="http://bowenpress.com/wp-content/uploads/2015/09/f193ccdd193193d193000e193f193193193193a193e193e193c19319319300193-620x315."><br>
-    <br>
-    ［<a href="http://bowenpress.com/news/bowen_21951.html">博闻社报道</a>］美国首都华盛顿当地时间25日中午，数名在美国申冤的访民冲过警戒线拦截习近平车队，导致车队短暂停留，其中疑为习近平的车为了躲避访民，偏向马路边。警察快速行动，车队短暂停留期间，示威的访民被控制，车队继续前行。其中，马永田北警察带走。<br>
-    <br>
-    拦截共发生两次:下午1点10分左右，习近平的车队经过18街与E街交叉口，当两辆凯迪拉克出现时，多位访民冲过去，将前面一辆凯迪拉克拦下，北京访民李焕君和上海访民葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来。那一辆车正好坐着习近平，葛丽芳和李焕君看到了习近平，习近平与访民对视了几秒钟。随后，警察冲过去将李焕君和葛丽芳带到警戒线以外，没说什么就当场放了，习近平的车也离开了。<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/AqqeXMAe4HY" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    下午1时37分左右，彭丽媛的车队经过21街与C街交叉的地方，有四位访民冲出封锁线，其中马永田堵到了彭丽媛的车，这个车被堵到人行道，随后车开走，马永田被警察扣留。<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/vGy62-WsTcE" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    24日拦截车队被警察扑倒受伤就医的张翠平已经出院。<br>
-    <br>
-    在25日中午拦截车队事件后，不到2小时，中方相关部门派出人员和访民谈话，将他们的申诉材料拿走。<br>
-    <br>
-    下午3点49分时，马永田仍在现场被警察问话。<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/jCxev_3z-KQ" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/WUtNes8GY8I" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509260704" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3760704       
 <hr>
 <table width="620"><tr><td>
 <b></p>
