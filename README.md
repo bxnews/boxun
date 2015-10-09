@@ -19,6 +19,20 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510092256.shtml" target="boxun-mirror">独家：董文标外逃民生当局边「辟谣」边应变</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：董文标外逃民生当局边「辟谣」边应变<br><font color="#000fC0">(<small>博讯北京时间2015年10月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510092256" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="/news/images/2015/10/201510092256china1.jpg" alt="独家：董文标外逃民生当局边「辟谣」边应变"><p><br>
+    <br>
+    【博闻社独家】本月5日，本社独家披露因涉高层贪腐案已被边控的中国全国工商联副主席、原中国民生银行董事长董文标，在两名现任政治局委员担保下於9月26日借开会之名出逃日本。中国民生投资前日回应指，有关报道是「别有用心恶意中伤」，称董出国是「有</p>
+</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/10/201510090711.shtml" target="boxun-mirror">博闻社和博讯新闻网收回其关于西京及其主席的报道</a>
 </h2>
 <p><tr>
@@ -661,41 +675,6 @@
 <b></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260704.shtml" target="boxun-mirror">视频：成功拦截习近平车队数名访民材料被受理请看博讯热点：习近平访美</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：成功拦截习近平车队 数名访民材料被受理<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509260704" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     女访民从习近平车前被抬走<br>
-    <br>
-    <img src="http://bowenpress.com/wp-content/uploads/2015/09/f193ccdd193193d193000e193f193193193193a193e193e193c19319319300193-620x315."><br>
-    <br>
-    ［<a href="http://bowenpress.com/news/bowen_21951.html">博闻社报道</a>］美国首都华盛顿当地时间25日中午，数名在美国申冤的访民冲过警戒线拦截习近平车队，导致车队短暂停留，其中疑为习近平的车为了躲避访民，偏向马路边。警察快速行动，车队短暂停留期间，示威的访民被控制，车队继续前行。其中，马永田北警察带走。<br>
-    <br>
-    拦截共发生两次:下午1点10分左右，习近平的车队经过18街与E街交叉口，当两辆凯迪拉克出现时，多位访民冲过去，将前面一辆凯迪拉克拦下，北京访民李焕君和上海访民葛丽芳钻到后面一辆加长的凯迪拉克的车底下，将车拦截下来。那一辆车正好坐着习近平，葛丽芳和李焕君看到了习近平，习近平与访民对视了几秒钟。随后，警察冲过去将李焕君和葛丽芳带到警戒线以外，没说什么就当场放了，习近平的车也离开了。<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/AqqeXMAe4HY" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    下午1时37分左右，彭丽媛的车队经过21街与C街交叉的地方，有四位访民冲出封锁线，其中马永田堵到了彭丽媛的车，这个车被堵到人行道，随后车开走，马永田被警察扣留。<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/vGy62-WsTcE" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    24日拦截车队被警察扑倒受伤就医的张翠平已经出院。<br>
-    <br>
-    在25日中午拦截车队事件后，不到2小时，中方相关部门派出人员和访民谈话，将他们的申诉材料拿走。<br>
-    <br>
-    下午3点49分时，马永田仍在现场被警察问话。<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/jCxev_3z-KQ" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/WUtNes8GY8I" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509260704" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3760704       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
