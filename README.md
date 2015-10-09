@@ -19,6 +19,50 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/pubvp/2015/10/201510090711.shtml" target="boxun-mirror">博闻社和博讯新闻网收回其关于西京及其主席的报道</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>博闻社和博讯新闻网收回其关于西京及其主席的报道<br><font color="#000fC0">(<small>博讯北京时间2015年10月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201510090711" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     BOWEN PRESS AND BOXUN NEWS RETRACT REPORTS ABOUT ATLANTIS INVESTMENT MANAGEMENT (Hong Kong) LTD. AND ITS PRINCIPAL<p>
+    (English Version)</p>
+<p>
+     In a series of articles published in September 2015, Bowen Press and Boxun News reported negative and untrue information about Hong Kong-based investment management firm Atlantis Investment Management (Hong Kong) Ltd. and its principal, Liu Yang. The reports  accused the company of financial-related crimes, including money laundering and market manipulation. The articles also linked Ms. Liu and her company to Jihua Ling and other unidentified  “corrupt officials from mainland China”Bowen Press and Boxun News acknowledge that their reports were insupportable, and the false reportsabout Atlantis and Ms. Liu should never have been published. As a result, Bowen Press and BoxunNews now render their unreserved apology to Ms. Liu, her company, and her husband, whom Bowen Press and Boxun News also mentioned in a false and negative light. 
+</p>
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       The entire series of articles has now been removed from the two websites, Bowen Press and Boxun News have taken measures to expunge the offending material from internet search engines, and they issue this formal retraction. Both Bowen Press and Boxun News regret the publication of these articles and any damage to the reputation of Ms. Liu and her company that may have resulted from the publication.<p>
+     博闻社和博讯新闻网收回其发表的关于西京投资管理(香港)有限公司及其主席的报道</p>
+<p>
+    (中文版本)</p>
+<p>
+    博闻社和博讯新闻网于2015 年9月发表了一系列关于设在香港的投资管理公司西京投资管理(香港)有限公司及其主席Liu Yang(刘央，音译)的负面的和不真实信息的文章。这些报道指责公司犯有与金融相关的罪行，包括洗钱和操纵市场。这些文章还把刘央女士和她的公司与Jihua Ling(令计划，音译)和其他未具名的“来自中国大陆的腐败官员”联系起来。</p>
+<p>
+    博闻社和博讯新闻网承认他们的报道是毫无根据的，关于西京公司和刘女士的不实报道本不应该发表出来。因此，博闻社和博讯新闻网现在对刘女士及其公司、以及博闻社和博讯新闻网也曾错误地和以负面方式所提及的她的丈夫表示毫无保留的道歉。</p>
+<p>
+    整个文章系列现在已从两个网站上删除，博闻社和博讯新闻网也已采取措施从互联网搜索引擎删除冒犯性的材料，并且发布了这份正式的收回声明。博闻社和博讯新闻网对发表这些文章以及因文章的发表而可能对刘女士和她的公司的名誉所造成的任何损害深表歉意。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201510090711" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)</p>
+<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
+<!----> 2670711       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510071143.shtml" target="boxun-mirror">窃听艾未未不奇怪，习近平也被“有关部门”监控请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -647,164 +691,6 @@
     <br>
     <iframe width="560" height="315" src="https://www.youtube.com/embed/WUtNes8GY8I" frameborder="0" allowfullscreen></iframe>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509260704" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3760704       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509260143.shtml" target="boxun-mirror">视频：各界人士华盛顿白宫国务院前抗议习近平访美请看博讯热点：习近平访美</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：各界人士华盛顿白宫国务院前抗议习近平访美<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509260143" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    <br>
-    2015年9月25日，各界人士在华盛顿白宫、国务院大楼前抗议习近平访问美国，要求释放政治犯、还藏人、维吾尔人、内蒙古人自由。<br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/y7rAFHsxdSw" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl1.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"><p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl2.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl3.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl4.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl5.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl6.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl7.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl8.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl9.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl10.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl11.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl12.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl13.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl14.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl15.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl16.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl17.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl18.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl19.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl20.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl21.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl22.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl23.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl24.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl25.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl26.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl27.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl28.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl29.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl30.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl31.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl32.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl33.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl34.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl35.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl36.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl37.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl38.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl39.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl40.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl41.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl42.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl43.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl44.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl45.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p><br>
-    <br>
-    <img src="/news/images/2015/09/201509260143intl46.jpg" alt="视频：各界人士华盛顿白宫国务院前抗议习近平访美"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509260143" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1130143       
-</p>
 <hr>
 <table width="620"><tr><td>
 <b></p>
