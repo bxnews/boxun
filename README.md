@@ -28,7 +28,7 @@
                 <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_25085.html">博</a>
 </td></tr></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510092256.shtml" target="boxun-mirror">独家：董文标外逃民生当局边「辟谣」边应变</a>
 </h2>
