@@ -19,6 +19,17 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510100845.shtml" target="boxun-mirror">中共又跨境犯罪从缅甸绑架维权律师王宇之子等人</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共又跨境犯罪 从缅甸绑架维权律师王宇之子等人<br><font color="#000fC0">(<small>博讯北京时间2015年10月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201510100845" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_25085.html">博</a>
+</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510092256.shtml" target="boxun-mirror">独家：董文标外逃民生当局边「辟谣」边应变</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -656,23 +667,6 @@
 </center>
                 <!--bodystart-->      <br>
     【博</td></tr></p>
-<p>
-	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/09/201509270035.shtml" target="boxun-mirror">视频：赵岩细说“拦习近平车告御状现象”请看博讯热点：习近平访美</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：赵岩细说“拦习近平车 告御状现象”<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201509270035" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      赵岩是纽约时报前中国问题研究员、博讯特约记者，他目前在华盛顿：<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/mhxjShw_EWY" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509270035" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1000035       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 13天前</small>
 </p>
