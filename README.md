@@ -19,6 +19,31 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510110217.shtml" target="boxun-mirror">广东上千村民与警激烈冲突焚烧警车多辆多人受伤请看博讯热点：突发事件</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>广东上千村民与警激烈冲突焚烧警车多辆多人受伤<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510110217" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      广东省阳春市春湾镇自由管理区，村民抗议焚烧厂的示威升级，村民连续两日与警察发生激烈冲突，双方多人受伤，多辆警车、轿车、货车被砸毁焚烧，10名村民被抓捕。<br>
+    <br>
+    为抗议海螺水泥厂私自在村内建垃圾焚烧场，自由管理区村民于本月3日发起示威，日夜将通往焚烧场的公路阻断，期间有多名村民因此遭到抓捕。<br>
+    <br>
+    10月9日，示威村民与警察发生冲突并掀翻警车一辆，持续到当天晚上，村民将一辆警车点燃焚烧。10月10日，示威再次升级，当天一早，上千村民聚集到海螺水泥厂门口，再次与警察发生激烈冲突，并焚烧了多辆警车、轿车、货车。<br>
+    <br>
+    目击村民“修炼阶段中”发帖说：今天1000多人聚集阳春海螺门前，反对阳春海螺建设焚烧场！<br>
+    <br>
+    现场图片以及视频显示，大量手持红旗、棍棒的村民与大量警察在水泥厂门口发生激烈冲突，期间警察向村民施放了大量催泪弹，现场浓烟滚滚，一片狼籍。现场有多辆警车、货车等被烧毁或正在燃烧，一些村民、警察倒在地上。<br>
+    <br>
+    目击村民“琪琪谦谦”发帖说：我家隔壁海螺水泥厂搞垃圾坟烧，村民们搞抗议，已经烧了2台警车，2台政府私家车了。<br>
+    <br>
+    据村民透露，冲突中至少有10名村民遭到抓捕，并有多人受伤。<br>
+    <br>
+    目击村民“怪叔叔窝窝头”发帖说：阳春市春湾镇自由海螺水泥厂门口，官兵来镇压村民，发生冲突，官兵向村民投放催泪弹。来了挺多警察的，还拦住路口，不让记者来</td></tr></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510100845.shtml" target="boxun-mirror">中共又跨境犯罪从缅甸绑架维权律师王宇之子等人</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -657,18 +682,6 @@
 <b></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509271221.shtml" target="boxun-mirror">博闻社独家：中信证券更多不为人知的黑幕请看博讯热点：股市危机</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>博闻社独家：中信证券更多不为人知的黑幕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509271221" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博</td></tr></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
