@@ -19,6 +19,22 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510122137.shtml" target="boxun-mirror">董文标出境不归之时中民投悄然退出165亿伦敦地标投资</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>董文标出境不归之时 中民投悄然退出165亿伦敦地标投资<br><font color="#000fC0">(<small>博讯北京时间2015年10月12日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      【博闻社综合】正当中国民生投资股份有限公司（简称“中民投”）董事长董文标被传违禁出境，疑外逃躲避协助中纪委调查之时，又传出中民投公司已悄然退出与总部基地（中国）控股集团有限公司合作建设的英国伦敦新国际金融城项目。这本是中民投海外的第一笔投资，投资额约165亿元人民币。事件无疑加重了董文标外逃的疑云。<br>
+    中民投今天向澎湃新闻证实有关退出伦敦投资的传闻，表示（<a href="http://bowenpress.com/news/bowen_25663.html">博闻社全文报道</a>）
+ [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 4482137       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510120723.shtml" target="boxun-mirror">紫禁城来鸿：中共五中全会四大议题爆光</a>
 </h2>
 <p><tr>
@@ -661,25 +677,6 @@
     <br>
     习近平访美期间，各站现场都有大量视频传给博讯，对此，特别感谢赵岩、艾布拉和各界拍摄的朋友们。因博讯资源有限，团队需要改进，我们对现场访民等采访跟踪不足，有些信息来不及核实，有些失误，希望各界谅解。也感谢西诺快速收发视频等信息。希望大家求同存异，在细节问题上不必有情绪，欢迎直接给博讯指出问题，以及促使博讯改进。
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201509281416" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2571416       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509280404.shtml" target="boxun-mirror">视频：王兰青被欢迎习近平的队伍打晕反被警察铐走请看博讯热点：习近平访美</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：王兰青被欢迎习近平的队伍打晕 反被警察铐走<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509280404" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->       <iframe width="560" height="315" src="https://www.youtube.com/embed/nx-jweQvvew" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    【博闻社独家】纽约当地时间9月27日中午12点前后，来自河北保定的女访民王兰青在华尔道夫习近平途径之路，误入欢迎习近平的五星红旗的队伍，结果被群起攻击打晕在地。奇怪的是，纽约警察将王兰青上铐，带进了救护车，对打人者未有任何警告和干预。从视频可以看出，王兰青被警察拖起时人事不省，后来才恢复知觉，开始喊口号。警察拖走她是，五星旗人群哄笑（一个有尊严、文明的民族，即使在战场，对伤员被拖走也不应该哄笑，五星旗群体的行为展示出这个群体是多么的愚昧和残暴）<br>
-    视频为赵岩拍摄和提供。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509280404" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2350404       
 <hr>
 <table width="620"><tr><td>
 <b></p>
