@@ -19,6 +19,46 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510120723.shtml" target="boxun-mirror">紫禁城来鸿：中共五中全会四大议题爆光</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>紫禁城来鸿：中共五中全会四大议题爆光<br><font color="#000fC0">(<small>博讯北京时间2015年10月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510120723" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_25487.html">博闻社独家</a>】中共十八届五中全会下周将召开，本社获悉，五中全会除了外界已知、备受关注的经济和人事议题，还有两项外界未知的议题：总结全国干部清查情况、通报军队改革方案及实施情况。据悉，本次会议的人事议题，有可能再度涉及领导干部特别是高级领导干部「能上能下」的问题。<br>
+    中南海消息人士对本社透露，九月底习近平访美回国后，即启动五中全会准备工作。因习近平要在本月20日出访英国，故五中全会召开的时间很可能是10月17或18日。官方公布五中全会的主要议程是，中央政治局向中央委员会报告工作，研究关于制定国民经济和社会发展第十三个五年规划的建议。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       官方未公布但五中全会例行要进行的第二个主要议题是，宣布取消令计划中央委员资格。令计划已于今年7月20日被中共宣布开除党籍公职，以涉嫌受贿罪对其立案侦查并予以逮捕。同时五中全会还将追认中央作出的开除陈川平(原太原市委书记)、王敏(原济南市委书记)、朱明国(原广东纪委书记)党籍的决定。<br>
+    <br>
+    去年以还有多名中共中央委员落马，包括内蒙古自治区副主席潘逸阳、南京市委书记杨卫泽、兰州军区副政委范长秘中将、云南副省长仇和、南宁市委书记余远辉；这五人都是候补中央委员，目前中纪委仍在立案调查中，纪律处分未出，可能要等六中全会才做党务处理。<br>
+    <br>
+    消息透露，五中全会第三个议题，是总结全党干部清查工作。这是中共为肃清周永康、令计划、徐才厚、郭伯雄在党内、军中余党而特别布署的一项工作，该工作由中组部、解放军总政治部负责，重点要从组织上解决干部队伍，特别是中高级领导干部队伍的纯洁问题。<br>
+    <br>
+    五中全会的第四项议题是，通报军队改革方案及实施情况，这是一项涉及全军、全国的大事，特别是裁军30万，要得到地方密切配合，才能推行。消息指，会议期间，总书记、军委主席将接见全体中委、候补中委中的军队代表，明确军队改革总体要求和时间表。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510120723" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2010723       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510110217.shtml" target="boxun-mirror">广东上千村民与警激烈冲突焚烧警车多辆多人受伤请看博讯热点：突发事件</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -640,43 +680,6 @@
     【博闻社独家】纽约当地时间9月27日中午12点前后，来自河北保定的女访民王兰青在华尔道夫习近平途径之路，误入欢迎习近平的五星红旗的队伍，结果被群起攻击打晕在地。奇怪的是，纽约警察将王兰青上铐，带进了救护车，对打人者未有任何警告和干预。从视频可以看出，王兰青被警察拖起时人事不省，后来才恢复知觉，开始喊口号。警察拖走她是，五星旗人群哄笑（一个有尊严、文明的民族，即使在战场，对伤员被拖走也不应该哄笑，五星旗群体的行为展示出这个群体是多么的愚昧和残暴）<br>
     视频为赵岩拍摄和提供。
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509280404" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2350404       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/09/201509280408.shtml" target="boxun-mirror">习近平访美：第一千金习明泽随团藏身工作人员列请看博讯热点：习近平访美</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平访美：第一千金习明泽随团藏身工作人员列<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年9月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201509280408" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】当地时间26日下午，中国国家主席习近平结束其对美国的首次国事访问，转到纽约出席联合国70周年活动。习此次访美内幕多多，其中一个鲜为人知的是，习近平和彭丽媛夫妇的千金女儿习明泽，也在随团成员中，名列随图翻译名单，参与对自己父母访美的形象包装策划。由于她使用化名，而且极为低调，以致连中方代表团中，知之亦甚少。<br>
-    <br>
-     来自随习访美中方代表团的消息告诉本社，中国第一千金习明泽这次随父母亲访美，是以中国外交部翻译室随团翻译的名义，而且用了化名。习明泽中学就读浙江外国语学校，该校为中国外交部培养了众多翻译人才。习明泽大学读浙江大学外语学院英文翻译专业，一年后即赴美国哈佛大学留学，直到父亲习近平接掌中国后，2014年她才回国。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    消息指，习近平夫妇从孩子读中学开始，就是按未来当英文翻译的目的培养习明泽的，故她的英文水平完全够格成为中国外交部翻译室一员。但目前不知道她是否属于外交部正式员工。不过，她已经不是第一次参与为父母亲外出考察访问做形象策划。其中一次被公开的，是今年初习近平带妻子彭丽媛回他当年插队的陕西延安梁家河村访旧，当时习明泽就陪伴在侧，且为父母亲拍照，虽有保镖为她挡驾，禁止任何人拍她的照片，但还有是人将她在场的消息在网上捅了出去。<br>
-    消息指，习近平视女儿为掌上明珠，这次对美国的国事访问是否要带女儿，习一度颇费踌躇，最后是中办主任栗战书拍板做出安排，而且采取高保密措施，代表团只有少数成员得知习千金跟团。由于习明泽已多次随父母外出，此次习近平访美，可谓习明泽毕业后最重要的「习作」，但她全程只居幕后，加上中办主任特别交待，知情者对此守口如瓶。<br>
-    <br>
-    消息人士告诉本社，（全文<a href="http://bowenpress.com/news/bowen_22262.html">请点击这里</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201509280408" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 260408       
 <hr>
 <table width="620"><tr><td>
 <b></p>
