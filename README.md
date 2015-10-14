@@ -28,7 +28,7 @@
                 <!--bodystart-->      <br>
     【博闻社独家】朝鲜</td></tr></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510140123.shtml" target="boxun-mirror">广东阳春垃圾焚烧事件持续升级数千人连日与警冲突请看博讯热点：突发事件</a>
 </h2>
@@ -86,7 +86,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510140255.shtml" target="boxun-mirror">央视狂轰韩国赌场来华拉客三线女星陪睡作诱饵</a>
 </h2>
@@ -143,7 +143,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510122137.shtml" target="boxun-mirror">董文标出境不归之时中民投悄然退出165亿伦敦地标投资</a>
 </h2>
