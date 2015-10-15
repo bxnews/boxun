@@ -82,7 +82,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510151254.shtml" target="boxun-mirror">周永康前爱将杨焕宁被踢出公安部贬掌安监局请看博讯热点：周永康</a>
 </h2>
@@ -125,7 +125,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510140307.shtml" target="boxun-mirror">刘云山任朝鲜大阅兵「电视转播总指挥」</a>
 </h2>
