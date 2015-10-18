@@ -64,7 +64,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510161753.shtml" target="boxun-mirror">中纪委一炮双开四高官周本顺涉五宗状</a>
 </h2>
