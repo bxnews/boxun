@@ -19,6 +19,43 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510211014.shtml" target="boxun-mirror">中信证券张育军、程博明或以「经济间谍罪」论处</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中信证券张育军、程博明或以「经济间谍罪」论处<br><font color="#000fC0">(<small>博讯北京时间2015年10月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510211014" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_26305.html">博闻社独家</a>】本社获悉，中国证监会前主席助理张育军、中信证券前总经理程博明以及一同被公安机关拘查的多名中信证券高管，可能会被当局以涉嫌「经济间谍」罪名论处，当局已掌握他们在中国政府救市之时与国外机串通，对外泄露中国政府决策机密，并进行内幕交易的事实。<br>
+    来自中国公安部的消息对本社透露，公安部奉中共高层指示对七月股灾进行调查，掌握了一些证券公司内外勾结、将中央救市决策出卖给国外机构，并借机抛售套现做空中国的证据，其中以国有中信证券最为严重，8月底当局拘捕中信证券董事总经理徐刚、执委葛小波和刘威三名高管。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       9月15日，当局又宣布拘捕中信证券总经理程博明等人，使中信证券被拘查人数达8人，占中信证券高层一半。而他们的罪名均为涉嫌内幕交易、泄露内幕资讯。<br>
+    一天之后的9月16日，当局又拘查中国证监会主席助理张育军，张育军成为中国证监会有史以来落马的最高级别的官员，也是十八大以来「一行三会」系统被查的最高级别领导干部。虽然当局只宣布张因涉嫌严重违纪接受组织调查，未透露真正原因，但外界认为其问题出在救市一事上。<br>
+    <br>
+    公安部消息指，张育军被拘查真正原因，是与中信证券勾结，透露中央救市的决策内幕，中信证券借机进行内幕交易，大获其利。而更为严重的是，中信证券高管又向境外机构泄露有关内幕，并伙同境外机构一起，洗劫中国股市，成为七月股灾的原因之一。<br>
+    <br>
+    消息透露，案件上报中央后，中共高层大为震怒，批示要依法严惩。公安部对张育军、程博明等人的案子调查已告结束，目前正准备采取进一步的司法程序。其中一个考虑，是以涉嫌「经济间谍犯罪」对他们处置。如罪名落实，将是内地有股市以来首宗「经济间谍犯罪」。<br>
+    消息形容，中共已认定七月股灾是一场内外势力勾结、陷中国政府于不义的阴谋，不但严重危及中国的金融稳定，更使中央政府在逾亿股民面前颜面扫地，信誉全无。当局期望对张育军和中信证券的严处，能起到杀一儆百、挽救民心的作用。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510211014" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1481014       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510192325.shtml" target="boxun-mirror">习近平访英防访民赴英喊冤专机真容曝光</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -692,23 +729,6 @@
     <br>
     博闻全文报道：<a href="http://bowenpress.com/news/bowen_23992.html">点击这里</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510051240" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1141240       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510050249.shtml" target="boxun-mirror">信力建被以三宗罪批捕实为以言治罪及涉香港占中</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>信力建被以三宗罪批捕 实为以言治罪及涉香港占中<br><font color="#000fC0">(<small>博讯北京时间2015年10月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510050249" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】本社获悉，内地知名民间教育家、企业家及温和派学者信力建，近日正式被广州市检察院以「销毁账户、偷税漏税及挪用资金」三宗罪批准逮捕，但公安在预审时明确暗示信，他之所以「进来」，完全是因为他那些「出格言论」。而且就是不能让他再沾教育事业的边。据透露，公安还明确告知信，他被治罪，还与去年底他支持香港占中运动有关。<br>
-    <br>
-    博闻长篇全文报道：<a href="http://bowenpress.com/news/bowen_23964.html">点击这里</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510050249" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1080249       
 <hr>
 <table width="620"><tr><td>
 <b></p>
