@@ -55,7 +55,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510241411.shtml" target="boxun-mirror">习近平卡梅伦「庄园植树」实为中方强要做戏</a>
 </h2>
@@ -90,7 +90,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2015/10/201510241318.shtml" target="boxun-mirror">博讯youtube视频帐号被注销的情况说明</a>
 </h2>
@@ -107,7 +107,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510231218.shtml" target="boxun-mirror">习近平保镖华盛顿接访后再现身英国</a>
 </h2>
