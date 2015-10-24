@@ -19,6 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/editorial/2015/10/201510241318.shtml" target="boxun-mirror">博讯youtube视频帐号被注销的情况说明</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>博讯youtube视频帐号被注销的情况说明<br><font color="#000fC0">(<small>博讯北京时间2015年10月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=editorial201510241318" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      博讯视频频道youtube.com/boxuntv 在美国当地时间23日凌晨被谷歌注销，因此，该帐号下的数千视频无法播放，如果账户不能恢复，我们过去两年拍摄、编辑发布的中国和美国各地的珍贵视频将丢失。我们一直把youtube当安全的视频保存和发布平台，但博讯数千视频中，个别视频被别有用心的“读者”举报有暴力镜头，最后一个被举报的视频标题是“视频：男子出轨被捉奸在床，与小三一起遭殴打（未成年人不宜）”。该视频是数人闯入一个房间殴打出轨者的事件，并无裸露。至于暴力，动手打人，类似视频甚至更为激烈血腥的视频常见于youtube等网络。<br>
+    <br>
+    博讯在争取谷歌恢复帐号，不过日后我们可能无法再发布任何暴力视频，包括强拆、警察打人等。或许，这样会让世界更和谐、美好，让世界人民感受到中国人民的幸福美满、中国梦的早日到来。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=editorial201510241318" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3311318       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510231218.shtml" target="boxun-mirror">习近平保镖华盛顿接访后再现身英国</a>
 </h2>
 <p><tr>
@@ -683,42 +700,6 @@
     掌实权的顶级官员都是百炼成钢，绝顶聪明的人物。人人都知道，反腐是个高危的事业。反腐不管触动了那一方的利益，稍有不慎，都可能身败名裂，死无葬身之地。所以历届纪委书记在反腐问题上都很谨慎。”无为而治“，”多一事不如少一事“是常态。<br>
     <br>
     王大人是人精中的人精，地位已至极顶，升无可升，本来可以做太平官，完全没有必要赴汤蹈火，把自身置于不测之地。但王大人居然甘为”马前卒“，不顾个人安危，冲锋陷阵，把上上下下所有的人得罪了个遍。如果说这种绝决的行为是出自“党性”，出自“对无产阶级革命事业的忠诚”，那纯粹是不靠谱的童话故事，那连三岁的孩子都</td></tr></p>
-<p>
-	<small> ============== 18天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510061346.shtml" target="boxun-mirror">军队改革:部门变分队徐才厚郭伯雄原在军区撤消</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>军队改革:部门变分队 徐才厚郭伯雄原在军区撤消<br><font color="#000fC0">(<small>博讯北京时间2015年10月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510061346" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【博闻社独家】中共军队改革方案内容不断曝光。军方消息人士对本社透露，改革的总体方案已经发到各大军区、军兵种的业务部门进行细化。根据方案，现有七大军区撤消改四大战区后，原军区机关各部门改为直属军委总部的分队，主要为发生战事时为本战区提供保障，每个战区辖10到15个分队。所有军官在任职期内要向部队和基层流动。有趣的是，被彻底撤消的三大军区是徐才厚、郭伯雄的发迹地。<br>
-    <br>
-     军方知情者对本社透露，这次军队改革的重头戏是军委总部和指挥机关的重组，军委原有四总部如日前本社已透露，其中，总参谋部升格，将仿照美国的参谋长联席会议，重建为由各兵种将领组成、为中央军委主席提供决策参考的军事智囊式机构。而军委总后勤部和总装备部合并，更名为后勤保障部。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    <a href="http://bowenpress.com/news/bowen_24309.html">博闻社报道全文</a><br>
-    -
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510061346" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2321346       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 18天前</small>
 </p>
