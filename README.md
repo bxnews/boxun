@@ -19,6 +19,41 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510241411.shtml" target="boxun-mirror">习近平卡梅伦「庄园植树」实为中方强要做戏</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平卡梅伦「庄园植树」实为中方强要做戏<br><font color="#000fC0">(<small>博讯北京时间2015年10月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201510241411" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】中国国家主席习近平已圆满结束英国之旅，海外媒体无不吐槽堂堂大英帝国对金主中国卑躬屈膝，无不啧叹北京豪掷400亿英镑，以另类方式羞辱这个老牌帝国，并为170年前的鸦片战争雪耻。<br>
+     其实北京用另类方式戏弄大英帝国的远不止这些。本社获悉，这次习近平访英的全部过程安排，基本都是按北京的设计和要求进行，尤其是习近平在伦敦最后一天前往卡梅伦的郊外别墅举行「庄园会晤」，更是中方特别为习近平量身定制，其中的「植树」更显地地道道中共特色。为那棵树，中方要苦口婆心说服英方，给最讲礼仪的大英帝国上了一堂中国特色的「文明课」。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    在10月22日习近平与卡梅伦的「庄园会」中，英方媒体极少有报道中英两国领导人在契克 （<a href="http://bowenpress.com/news/bowen_28146.html">博闻全文报道</a>）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201510241411" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 901411       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2015/10/201510241318.shtml" target="boxun-mirror">博讯youtube视频帐号被注销的情况说明</a>
 </h2>
 <p><tr>
@@ -683,25 +718,6 @@
 <b></p>
 <p>
 	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2015/10/201510061350.shtml" target="boxun-mirror">未来条件许可，习近平很可能会有惊人之举/紫荆来鸿请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>未来条件许可，习近平很可能会有惊人之举/ 紫荆来鸿<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201510061350" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     有些问题对于许多身在帝都，身在圈内的人来说，不能讲的那么直白，那么具体。否则是”违纪“，甚至有可能引来”牢狱之灾“。下面讲的都是公开的事例，但请先生细细品味其中的韵味。<br>
-    <br><center><font size="4"><b>一、王大人与老板的关系</b></font></center>
-<br>
-    <br>
-    老板登基是各派的妥协，胡温势力全力支持的结果。但登基不等于大权在握。老板上台后，敲山震虎，层层夺权，则是靠王某人冒着掉脑袋的危险，以反腐为利器，披荆斩棘，杀出来的一条血路。<br>
-    <br>
-    掌实权的顶级官员都是百炼成钢，绝顶聪明的人物。人人都知道，反腐是个高危的事业。反腐不管触动了那一方的利益，稍有不慎，都可能身败名裂，死无葬身之地。所以历届纪委书记在反腐问题上都很谨慎。”无为而治“，”多一事不如少一事“是常态。<br>
-    <br>
-    王大人是人精中的人精，地位已至极顶，升无可升，本来可以做太平官，完全没有必要赴汤蹈火，把自身置于不测之地。但王大人居然甘为”马前卒“，不顾个人安危，冲锋陷阵，把上上下下所有的人得罪了个遍。如果说这种绝决的行为是出自“党性”，出自“对无产阶级革命事业的忠诚”，那纯粹是不靠谱的童话故事，那连三岁的孩子都</td></tr></p>
-<p>
-	<small> ============== 18天前</small>
 </p>
 <table>
     <tr>
