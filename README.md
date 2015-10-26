@@ -19,6 +19,42 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510261808.shtml" target="boxun-mirror">中共五中全会军委和政治局将有重大人事异动</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共五中全会军委和政治局将有重大人事异动<br><font color="#000fC0">(<small>博讯北京时间2015年10月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510261808" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】中共十八届五中全会今天(26日)至29日在北京京西宾馆举行。本社获悉，本次会议除了官方宣传的研究「十三五」规划，其实最重要的是高层人事变动，本社获悉，此次人事变动包括中央军委人事异动，以及中央政治局亦将有重大人事异动。<br>
+    <br>
+    胡春华将出使新疆，接替张春贤<br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510261808china1.jpg" alt="中共五中全会军委和政治局将有重大人事异动"><p><br>
+    <br>
+    北京消息人士对本社透露，中央军委的改组动作，主要是要配合军队业已进行的大改革，其中一名副主席要退休。而新任军委副主席热门人选，为习近平亲自钦点，但要交中央全会批准通过。<br>
+    <br>
+    本社还获悉，此次五中全会更重要的人事变动议程，可能是中央政治局委员的重新布局。其中一项议程是，政治局委员兼广东省委书记胡春华可能转赴新疆，接替张春贤出任新疆自治区党委书记，成为真正的封疆大吏。<br>
+    <br>
+    而现任新疆自治区党委书记张春贤，可能会改任全国政协副主席，回北京安老。<br>
+    <br>
+    张春贤因受周永康事件牵累，将回京养老<br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510261808china2.jpg" alt="中共五中全会军委和政治局将有重大人事异动"></p>
+<p><br>
+    <br>
+    53岁的胡春华是前朝总书记胡锦涛的爱将，属中共政坛团派领军人物，甚至被视为是中共第六代掌军人物，作为中共精心培养的接班人，他已先后在西藏、河北、内蒙古、广东主政练历，此番习近平又建议让他出掌麻烦多多的新疆，用意如何，有待观察。<br>
+    <br>
+    北京有消息指，习近平上台后，未来人事安排未必会接受前朝的隔代钦点方式，加上习并不喜欢四平八稳、守成不足、缺乏创新的接班人，所以所谓「团派将在中共二十大接班」之说，基本上没戏。<br>
+    <br>
+    而镇守新疆5年的张春贤此番可能获调回京，基本上可算是「软着陆」。本社曾披露，张春贤是2009年乌鲁木齐7.5事件发生后，由时任中央政法委书记、政治局常委周永康钦点，从湖南省委书记职上接替被问责辞职的王乐泉，于2010年调任新疆的。张春贤因此晋身中央政治局，成为中共副国级领导人。<br>
+    <br>
+    胡春华未来能否接班成疑<br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510261808china3.jpg" alt="中共五中全会军委和政治局将有重大人事异动"></p>
+<p><br>
+    <br>
+    消息人士指，张春贤是通过其任职央视的妻子李修平，认识周永康的填房</p>
+</td></tr></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510241513.shtml" target="boxun-mirror">视频：场面火爆,杭州出动警察强拆民房打成一片请看博讯热点：强行拆迁</a>
 </h2>
 <p><tr>
@@ -680,41 +716,6 @@
 <b></p>
 <p>
 	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510071143.shtml" target="boxun-mirror">窃听艾未未不奇怪，习近平也被“有关部门”监控请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>窃听艾未未不奇怪，习近平也被“有关部门”监控<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510071143" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_24431.html">博闻社独家</a>】在中共媒体特定的语意环境中，“有关部门”通常是指一些不便明说、但属高度敏感的机构，例如公安、国安等等。近日传出艾未未装修办公室发现插头上有窃听装置，同时又有报道指广东民企教育家信力建被窃听一年有余，媒体对涉嫌此行为的机构均用“有关部门”代称。一个泱泱大国“有关部门”对自己的公民肆无忌惮，实在是可悲可笑。<br>
-    <br>
-     但国人可能有所不知，被“有关部门”如此放肆对待而深感烦恼的，绝对不止是普罗百姓，甚至连中共高层亦莫能幸免。本编辑收到来自中南海的爆料就显示，中共总书记、国家主席习近平，也成为“有关部门”监控窃听的对象，尽管“有关部门”被调查时宣称，他们是“无意间”截获与习主席有关的机密，但亦足可证明，“有关部门”的胡作非为已严重到何种程度。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-     中南海知情者透露，事情是从习近平一位心腹智库给外围人士部署一项调查项目，在传回北京某位领导人普通信箱时，被“有关部门”成功截获，截获后由于处理不善，又被习身边人安插在这个部门的亲信发现，报告上去。也就是说，习近平要求了解的东西，“有关部门”居然比习本人更早看到了。<br>
-    <br>
-    事情被发现后，中办保密局曾奉旨进行调查，结果发现，习身边的心腹智库不但电邮信箱被监控，连他们的手机号码(据说还有习夫人彭丽媛和女儿习明泽的手机号码)，也在“有关部门”的监听名单中！所幸习主席不亲自拿手机，否则恐怕连习也成了监听对象！<br>
-    <br>
-    而“有关部门”在解释事件时公然称：他们的行为并不是针习主席或中央领导，而是依据国家有关法律法规，为保</td></tr></p>
-<p>
-	<small> ============== 19天前</small>
 </p>
 <table>
     <tr>
