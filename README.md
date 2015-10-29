@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5分钟前</small>
+	<small> ============== 10分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510261808.shtml" target="boxun-mirror">中共五中全会军委和政治局将有重大人事异动</a>
 </h2>
