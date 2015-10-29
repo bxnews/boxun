@@ -19,6 +19,58 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510290132.shtml" target="boxun-mirror">四川成都数千司机围堵交委大楼与警冲突数十人被拘请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>四川成都数千司机围堵交委大楼与警冲突数十人被拘<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510290132" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      四川省成都市交委钓鱼查扣Uber快车并殴打司机，引发数千司机围堵位于茶店子的交委大楼，掀翻一辆用来“钓鱼”的轿车，持续到当天深夜，示威司机遭到数百警察镇压，期间大量司机被殴打，数十人被抓捕。<br>
+    <br>
+    周二（10月27日）下午，成都市交委工作人员在成都市茶店子客运站附近“钓鱼”查扣了一辆Uber快车，并殴打了该车的司机，引发大量司机不满，迅速聚集到成都市交委门口抗议，要求交委释放被查扣的司机。<br>
+    <br>
+    目击网友“dAisy-小米”发帖说：成都UBER司机在茶店子公交站被交委钓鱼执法，专车司机被执法人员暴打，引来上千名专车司机聚集示威，要求交委放人，放车，随即现场先后出现大量警察维持治安，专车司机把三环路堵了。<br>
+    <br>
+    持续到当天晚上，不断有司机赶到交委，一辆用来“钓鱼”的轿车被愤怒的司机掀翻，引发大量市民围观，有数百警察到现场驱逐示威司机，据目击网友透露，至少有数千人聚集在现场。视频显示，现场人山人海喊声一片，公路被堵的水泄不通，不时有示威司机和警察发生冲突。<br>
+    <br>
+    目击网友“风行”发帖说：事情闹大了，上万人了，优步司机滴滴司机在茶店子客运站掀翻交委钓鱼车，武警部队，警察都有1000多人了。<br>
+    <br>
+    当天深夜，示威司机被警察暴力驱散，期间有大量司机遭到警察殴打，数十名司机以及路人被警察抓捕。<br>
+    <br>
+    目击网友“不倦的驼铃”发帖说：几千人围住客运站，当地警方出动了几百人，强行驱散维权人群，抓捕，殴打了几十个维权司机！<br>
+    <br>
+    “不倦的驼铃”说：原本一件小事，只需要交委打人者出面给大家一个交待的事情，最终闹成了群体事件！抓了几十个人，有个路过的都被抓了，就是因为后退的时候慢了点！<br>
+    <br>
+    有网友透露，28日白天又有多名专车司机遭到抓捕。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510290132china1.jpg" alt="四川成都数千司机围堵交委大楼与警冲突数十人被拘"><p><br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510290132china2.jpg" alt="四川成都数千司机围堵交委大楼与警冲突数十人被拘"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510290132china3.jpg" alt="四川成都数千司机围堵交委大楼与警冲突数十人被拘"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510290132china4.jpg" alt="四川成都数千司机围堵交委大楼与警冲突数十人被拘"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510290132china5.jpg" alt="四川成都数千司机围堵交委大楼与警冲突数十人被拘"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510290132china6.jpg" alt="四川成都数千司机围堵交委大楼与警冲突数十人被拘"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510290132china7.jpg" alt="四川成都数千司机围堵交委大楼与警冲突数十人被拘"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510290132china8.jpg" alt="四川成都数千司机围堵交委大楼与警冲突数十人被拘"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/10/201510290132china9.jpg" alt="四川成都数千司机围堵交委大楼与警冲突数十人被拘"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510290132" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201510280917231.jpg http://upload.bx.tl/news/temp13/201510280917232.jpg http://upload.bx.tl/news/temp13/201510280917233.jpg http://upload.bx.tl/news/temp13/201510280917234.jpg http://upload.bx.tl/news/temp13/201510280917421.jpg http://upload.bx.tl/news/temp13/201510280917422.jpg http://upload.bx.tl/news/temp13/201510280917423.jpg http://upload.bx.tl/news/temp13/201510280917424.jpg http://upload.bx.tl/news/temp13/201510280917491.jpg--> 140132       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510261808.shtml" target="boxun-mirror">中共五中全会军委和政治局将有重大人事异动</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -670,50 +722,6 @@
     <br>
     【博闻社独家】本月5日，本社独家披露因涉高层贪腐案已被边控的中国全国工商联副主席、原中国民生银行董事长董文标，在两名现任政治局委员担保下於9月26日借开会之名出逃日本。中国民生投资前日回应指，有关报道是「别有用心恶意中伤」，称董出国是「有</p>
 </td></tr></p>
-<p>
-	<small> ============== 20天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2015/10/201510090711.shtml" target="boxun-mirror">博闻社和博讯新闻网收回其关于西京及其主席的报道</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>博闻社和博讯新闻网收回其关于西京及其主席的报道<br><font color="#000fC0">(<small>博讯北京时间2015年10月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201510090711" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     BOWEN PRESS AND BOXUN NEWS RETRACT REPORTS ABOUT ATLANTIS INVESTMENT MANAGEMENT (Hong Kong) LTD. AND ITS PRINCIPAL<p>
-    (English Version)</p>
-<p>
-     In a series of articles published in September 2015, Bowen Press and Boxun News reported negative and untrue information about Hong Kong-based investment management firm Atlantis Investment Management (Hong Kong) Ltd. and its principal, Liu Yang. The reports  accused the company of financial-related crimes, including money laundering and market manipulation. The articles also linked Ms. Liu and her company to Jihua Ling and other unidentified  “corrupt officials from mainland China”Bowen Press and Boxun News acknowledge that their reports were insupportable, and the false reportsabout Atlantis and Ms. Liu should never have been published. As a result, Bowen Press and BoxunNews now render their unreserved apology to Ms. Liu, her company, and her husband, whom Bowen Press and Boxun News also mentioned in a false and negative light. 
-</p>
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       The entire series of articles has now been removed from the two websites, Bowen Press and Boxun News have taken measures to expunge the offending material from internet search engines, and they issue this formal retraction. Both Bowen Press and Boxun News regret the publication of these articles and any damage to the reputation of Ms. Liu and her company that may have resulted from the publication.<p>
-     博闻社和博讯新闻网收回其发表的关于西京投资管理(香港)有限公司及其主席的报道</p>
-<p>
-    (中文版本)</p>
-<p>
-    博闻社和博讯新闻网于2015 年9月发表了一系列关于设在香港的投资管理公司西京投资管理(香港)有限公司及其主席Liu Yang(刘央，音译)的负面的和不真实信息的文章。这些报道指责公司犯有与金融相关的罪行，包括洗钱和操纵市场。这些文章还把刘央女士和她的公司与Jihua Ling(令计划，音译)和其他未具名的“来自中国大陆的腐败官员”联系起来。</p>
-<p>
-    博闻社和博讯新闻网承认他们的报道是毫无根据的，关于西京公司和刘女士的不实报道本不应该发表出来。因此，博闻社和博讯新闻网现在对刘女士及其公司、以及博闻社和博讯新闻网也曾错误地和以负面方式所提及的她的丈夫表示毫无保留的道歉。</p>
-<p>
-    整个文章系列现在已从两个网站上删除，博闻社和博讯新闻网也已采取措施从互联网搜索引擎删除冒犯性的材料，并且发布了这份正式的收回声明。博闻社和博讯新闻网对发表这些文章以及因文章的发表而可能对刘女士和她的公司的名誉所造成的任何损害深表歉意。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201510090711" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)</p>
-<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
-<!----> 2670711       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 20天前</small>
 </p>
