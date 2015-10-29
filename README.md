@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510291048.shtml" target="boxun-mirror">军队大清洗向中下级波及曾提前晋升者重审</a>
 </h2>
