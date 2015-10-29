@@ -71,6 +71,44 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510291048.shtml" target="boxun-mirror">军队大清洗向中下级波及曾提前晋升者重审</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>军队大清洗向中下级波及 曾提前晋升者重审<br><font color="#000fC0">(<small>博讯北京时间2015年10月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510291048" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】本社获悉，中共中央军委近日又有动作，以肃清徐才厚、郭伯雄流，纯洁部队干部队伍为由，在全军开展新一轮干部大清查，针对大校以及少将这两级的军官，搞人人过关，特别是2008年以后凡获提前晋升者，一律重新审查，主要调查是否涉及买官和腐败，顺便为军队改革做准备。清查活动由总政治部负责。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       北京知情人士对本社透露，中共十八届五中全会会期已过半，对十三五规划的审议获得高度一致的评价；但其它的会议议程进展并没有原先想象的顺利，特别是关于党和军队高层人事调整方面，争议较大，使高层提出的议案存在变数。另外就是对军队改革方案，军中代表和地方代表看法迥异，甚至出现两极的相反看法。<br>
+    <br>
+     本社获悉，就在五中全会前夕，中央军委又在全军开始新一轮干部大清查，针对的是大校及少将这两级军官；名义仍然是「从组织上、思想上肃清徐才厚、郭伯雄的影响」。方法是人人过关，特别是2008年以后，没按军衔条例晋升，而获提前升官者，一律要重新审查，重点是清查有无买官、腐败等现象。这项工作仍由总政治部负责，时间为一周。<br>
+    <br>
+    知情者对本社指，（<a href="http://bowenpress.com/news/bowen_36707.html">博闻社报道全文</a>）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510291048" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2211048       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510261808.shtml" target="boxun-mirror">中共五中全会军委和政治局将有重大人事异动</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -710,20 +748,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 19天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510092256.shtml" target="boxun-mirror">独家：董文标外逃民生当局边「辟谣」边应变</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：董文标外逃民生当局边「辟谣」边应变<br><font color="#000fC0">(<small>博讯北京时间2015年10月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510092256" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="/news/images/2015/10/201510092256china1.jpg" alt="独家：董文标外逃民生当局边「辟谣」边应变"><p><br>
-    <br>
-    【博闻社独家】本月5日，本社独家披露因涉高层贪腐案已被边控的中国全国工商联副主席、原中国民生银行董事长董文标，在两名现任政治局委员担保下於9月26日借开会之名出逃日本。中国民生投资前日回应指，有关报道是「别有用心恶意中伤」，称董出国是「有</p>
-</td></tr></p>
-<p>
-	<small> ============== 20天前</small>
 </p>
 <table>
     <tr>
