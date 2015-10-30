@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/10/201510301250.shtml" target="boxun-mirror">《博讯》习近平访美被假项目骗、令计划关押地曝光</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>《博讯》习近平访美被假项目骗、令计划关押地曝光<br><font color="#000fC0">(<small>博讯北京时间2015年10月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510301250" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2015/10/201510301250china1.jpg" alt="《博讯》习近平访美被假项目骗、令计划关押地曝光"><p><br>
+    </p>
+</td></tr></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510290132.shtml" target="boxun-mirror">四川成都数千司机围堵交委大楼与警冲突数十人被拘请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -737,17 +749,6 @@
     目击村民“怪叔叔窝窝头”发帖说：阳春市春湾镇自由海螺水泥厂门口，官兵来镇压村民，发生冲突，官兵向村民投放催泪弹。来了挺多警察的，还拦住路口，不让记者来</td></tr></p>
 <p>
 	<small> ============== 19天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510100845.shtml" target="boxun-mirror">中共又跨境犯罪从缅甸绑架维权律师王宇之子等人</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中共又跨境犯罪 从缅甸绑架维权律师王宇之子等人<br><font color="#000fC0">(<small>博讯北京时间2015年10月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201510100845" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_25085.html">博</a>
-</td></tr></p>
-<p>
-	<small> ============== 20天前</small>
 </p>
 <table>
     <tr>
