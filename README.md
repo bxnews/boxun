@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 15分钟前</small>
+	<small> ============== 20分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511020013.shtml" target="boxun-mirror">“第一千金”习明泽未跟随习近平访问英国</a>
 </h2>
@@ -94,7 +94,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 24分钟前</small>
+	<small> ============== 29分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510301250.shtml" target="boxun-mirror">《博讯》习近平访美被假项目骗、令计划关押地曝光</a>
 </h2>
