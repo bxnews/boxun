@@ -71,6 +71,21 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511021736.shtml" target="boxun-mirror">姜野飞、董广平关押地查明：不在曼谷，家属已会见！</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>姜野飞、董广平关押地查明：不在曼谷，家属已会见！<br><font color="#000fC0"><small>(博讯北京时间2015年11月02日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511021736" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->李 方      <br><br><b>关押地距离曼谷约35公里，是移民局另一个监狱</b><br>    <br>    昨日获得消息，姜野飞、董广平二人关押地不在曼谷，而是在距离曼谷约35公里的Prathomthani省Tanyaburi区监狱（Detention House Of Pratumtani）。<br>    昨日，据一泰国朋友通过曼谷移民局打听消息，移民局警察说：“因为曼谷IDC 人满为患，所以暂时关押在外省，Tanyaburi监狱地方大，缴了罚款也许就转过来了。”朋友问过会否引渡中国，移民局值班警察称不知情。<br>    今天早晨，姜野飞妻子楚玲、董广平妻子谷书华、曼谷民运人士黎小龙以及翻译小林几人打车前往Tanyaburi监狱探监，并见到了二人。<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl1.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    监狱大门<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl2.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    楚玲手写的监狱英文名：Detention House Of Pratumtani<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl3.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    监狱在Google地图上的位置<br>    <br><br><b>二人遭罚款，将于月底移送曼谷中心移民监IDC</b><br>    <br>    楚玲告诉记者：姜野飞说很挂念她，让她在外面好好吃饭，保重身体。楚玲告诉他外面朋友们都在积极营救他们。据他们说，董广平状态不错，和妻子谷书花有说有笑。<br>    据了解，二人对非法居留泰国一事已认罪，他们将会分别在11月21号、26号转送移民监 。姜野飞罚款5000泰铢，董广平罚款6000泰铢，因为偷越国境和超期滞留罚款数额有区别。<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl4.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    监狱的囚犯登记表，图中4973号是姜野飞，4974号是董广平<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl5.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    家属楚玲、谷书花和民主党曼谷负责人黎小龙，在监狱前合影<br>    <br><br><b>曼谷民运同仁呼吁捐款帮助二人家属，渡过难关</b><br>    <br>    二人家属表示，海外各界朋友为营救姜野飞、董广平二人做出了很多努力，在此表示感谢。在泰中国民主党负责人黎小龙说：不能让英雄流血又流泪，首先积极营救姜、董，同时妥善安置好他们的家人。他呼吁大家力所能及为落难二人家属捐款，帮助他们渡过难关。稍后将会公布捐款账号。<br>    总部在荷兰海牙的中国民主党海外委员会已响应他们的呼吁，执行主席陈忠和先生已和同仁在为落难者家属筹措捐款。<br>    <br><br><b>内部消息称：泰国移民局卫星定位抓人</b><br>    <br>    2015年10月28日13:00被移民局调查所卫星定位抓共5人（2人有8字头的泰国公民证，1人有中国护照签证不过期），到了移民局调查所放了3人。<br>    2015年10月29日14:00送上法院法庭《Dusit Kwaeng Court ศาลแขวงดุสิต》<br>    董广平认罪；非法入境、非法居留。法庭判罚款6000泰铢。<br>    姜野飞认罪；签证过期。法庭判罚款5000泰铢。<br>    然后送去监狱Detention House Of Pratumtani， 姜野飞25天，董广平30天。之后再送回移民局曼谷拘留所（IDC），等待走下个法律程序。<br>     <br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511021736" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/11/02)--> <!--bodyend-->       
+           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511020224061.jpg http://upload.bx.tl/news/temp13/201511020224062.jpg http://upload.bx.tl/news/temp13/201511020224064.jpg http://upload.bx.tl/news/temp13/201511020227251.jpg http://upload.bx.tl/news/temp13/201511020224063.jpg--> 2561735       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511020013.shtml" target="boxun-mirror">“第一千金”习明泽未跟随习近平访问英国</a>
 </h2>
 <p><tr>
@@ -745,22 +760,6 @@
 <b></p>
 <p>
 	<small> ============== 19天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510122137.shtml" target="boxun-mirror">董文标出境不归之时中民投悄然退出165亿伦敦地标投资</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>董文标出境不归之时 中民投悄然退出165亿伦敦地标投资<br><font color="#000fC0">(<small>博讯北京时间2015年10月12日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      【博闻社综合】正当中国民生投资股份有限公司（简称“中民投”）董事长董文标被传违禁出境，疑外逃躲避协助中纪委调查之时，又传出中民投公司已悄然退出与总部基地（中国）控股集团有限公司合作建设的英国伦敦新国际金融城项目。这本是中民投海外的第一笔投资，投资额约165亿元人民币。事件无疑加重了董文标外逃的疑云。<br>
-    中民投今天向澎湃新闻证实有关退出伦敦投资的传闻，表示（<a href="http://bowenpress.com/news/bowen_25663.html">博闻社全文报道</a>）
- [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 4482137       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 21天前</small>
 </p>
 <table>
     <tr>
