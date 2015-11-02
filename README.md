@@ -19,6 +19,58 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511020105.shtml" target="boxun-mirror">江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511020105" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      江西省上饶市鄱阳县饶埠镇詹家村等多条村庄，长期遭受相邻的万年县石镇工业园内多家化工厂排放的毒气毒水污染，导致村民出现呕吐胸闷、皮肤红斑等中毒现象，一些受污染严重的村民已患上癌症，境内的乐安河大量鱼虾被毒死，村民多次抗议无果。<br>
+    <br>
+    周日（11月1日），受污染比较严重的多条村村民发起联合示威，上午8点左右，上万村民手持“全民行动拒绝污染、重污染有毒化工企业滚出去”等横幅，游行到万年县石镇工业园，要求园内的污染工厂搬离。<br>
+    <br>
+    村民“遗忘”发帖说：原因是因万年县七八家化工厂排污水，放毒烟引起村民身上皮肤病，农作物死亡，小时候放牛可以在河边喝水，现在严重污染。部分靠的比较近的村民得癌症，学校学生身上长满了皮肤病，河流鱼大量死亡。老百姓多次和政府沟通，但没有效果。<br>
+    <br>
+    期间，愤怒的村民砸毁了部分工厂设备，欲强行拆除有毒工厂，与数百警察发生激烈冲突，一度遭警察使用催泪弹驱逐并开枪镇压，导致多名村民受伤。<br>
+    <br>
+    村民“陶笑xiao”发帖说：老人只是想要喝干净的水，去投诉就招警察开枪，原来枪是用来打这么无辜的老人，用棍子打破老人的头，用枪刺穿老人的胸膛，用催泪弹刺激老人让老人流泪，他们只是简单讨个理想，要以前的生活喝着干净的水，招来这样的回击。<br>
+    <br>
+    另一名村民“啥。得”说：万年干部为一己之私利于乐安河的老百姓而不顾，建有毒化工厂，今天老百姓举行万人大游行，可恶政府向手无寸铁老百姓开枪了，真是丧尽天良！<br>
+    <br>
+    网络图片显示，大批的村民聚集在工业园区门口、政府门口以及附近的街道上，到处是警察释放催泪弹发出的浓烟，一些村民受伤被送入医院。在一段视频中，警察向聚集在一栋大楼门口的村民连续施放了数枚催泪弹，现场浓烟滚滚，喊声一片。<br>
+    <br>
+    村民“雨中飘荡的回忆”发帖说：狗屁政府竟然出动防暴大队，开枪，用棍打伤百姓，贪污，受贿无处不在，真是官字两个口。万人游行，场面很乱。<br>
+    <br>
+    当地政府当天中午发布公告称，村民打砸工厂并造成一名警察受伤。至当天下午，村民发布到网络的一些信息已遭到删除，未有村民透露是否有村民遭到抓捕。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511020105china1.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"><p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511020105china2.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511020105china3.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511020105china4.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511020105china5.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511020105china6.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511020105china7.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
+<p><br>
+    </p>
+<div align="center"><img src="http://upload.bx.tl/news/temp13/201511010942014.jpg" width="500"></div>
+<br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511020105china9.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"><p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511020105" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511010941351.jpg http://upload.bx.tl/news/temp13/201511010941352.jpg http://upload.bx.tl/news/temp13/201511010941353.jpg http://upload.bx.tl/news/temp13/201511010941354.jpg http://upload.bx.tl/news/temp13/201511010942011.jpg http://upload.bx.tl/news/temp13/201511010942012.jpg http://upload.bx.tl/news/temp13/201511010942013.jpg http://upload.bx.tl/news/temp13/201511010942014.jpg http://upload.bx.tl/news/temp13/201511010942011.jpg--> 300105       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511020013.shtml" target="boxun-mirror">“第一千金”习明泽未跟随习近平访问英国</a>
 </h2>
 <p><tr>
@@ -42,7 +94,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4分钟前</small>
+	<small> ============== 9分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510301250.shtml" target="boxun-mirror">《博讯》习近平访美被假项目骗、令计划关押地曝光</a>
 </h2>
@@ -704,46 +756,6 @@
                 <!--bodystart-->      【博闻社综合】正当中国民生投资股份有限公司（简称“中民投”）董事长董文标被传违禁出境，疑外逃躲避协助中纪委调查之时，又传出中民投公司已悄然退出与总部基地（中国）控股集团有限公司合作建设的英国伦敦新国际金融城项目。这本是中民投海外的第一笔投资，投资额约165亿元人民币。事件无疑加重了董文标外逃的疑云。<br>
     中民投今天向澎湃新闻证实有关退出伦敦投资的传闻，表示（<a href="http://bowenpress.com/news/bowen_25663.html">博闻社全文报道</a>）
  [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 4482137       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 21天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510120723.shtml" target="boxun-mirror">紫禁城来鸿：中共五中全会四大议题爆光</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁城来鸿：中共五中全会四大议题爆光<br><font color="#000fC0">(<small>博讯北京时间2015年10月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510120723" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【<a href="http://bowenpress.com/news/bowen_25487.html">博闻社独家</a>】中共十八届五中全会下周将召开，本社获悉，五中全会除了外界已知、备受关注的经济和人事议题，还有两项外界未知的议题：总结全国干部清查情况、通报军队改革方案及实施情况。据悉，本次会议的人事议题，有可能再度涉及领导干部特别是高级领导干部「能上能下」的问题。<br>
-    中南海消息人士对本社透露，九月底习近平访美回国后，即启动五中全会准备工作。因习近平要在本月20日出访英国，故五中全会召开的时间很可能是10月17或18日。官方公布五中全会的主要议程是，中央政治局向中央委员会报告工作，研究关于制定国民经济和社会发展第十三个五年规划的建议。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       官方未公布但五中全会例行要进行的第二个主要议题是，宣布取消令计划中央委员资格。令计划已于今年7月20日被中共宣布开除党籍公职，以涉嫌受贿罪对其立案侦查并予以逮捕。同时五中全会还将追认中央作出的开除陈川平(原太原市委书记)、王敏(原济南市委书记)、朱明国(原广东纪委书记)党籍的决定。<br>
-    <br>
-    去年以还有多名中共中央委员落马，包括内蒙古自治区副主席潘逸阳、南京市委书记杨卫泽、兰州军区副政委范长秘中将、云南副省长仇和、南宁市委书记余远辉；这五人都是候补中央委员，目前中纪委仍在立案调查中，纪律处分未出，可能要等六中全会才做党务处理。<br>
-    <br>
-    消息透露，五中全会第三个议题，是总结全党干部清查工作。这是中共为肃清周永康、令计划、徐才厚、郭伯雄在党内、军中余党而特别布署的一项工作，该工作由中组部、解放军总政治部负责，重点要从组织上解决干部队伍，特别是中高级领导干部队伍的纯洁问题。<br>
-    <br>
-    五中全会的第四项议题是，通报军队改革方案及实施情况，这是一项涉及全军、全国的大事，特别是裁军30万，要得到地方密切配合，才能推行。消息指，会议期间，总书记、军委主席将接见全体中委、候补中委中的军队代表，明确军队改革总体要求和时间表。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510120723" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2010723       
 <hr>
 <table width="620"><tr><td>
 <b></p>
