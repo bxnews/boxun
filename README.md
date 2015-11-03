@@ -439,7 +439,7 @@
      习近平专机除了驾驶员是国航专飞有关航线的资深驾驶员，他们要经过严格的政审才能 （<a href="http://bowenpress.com/news/bowen_27058.html"></a>
 </td></tr></p>
 <p>
-	<small> ============== 15天前</small>
+	<small> ============== 16天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510180950.shtml" target="boxun-mirror">军改前夕事故频发三季度逾40军人殉职习下令调查请看博讯热点：习近平观察</a>
 </h2>
@@ -486,7 +486,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 16天前</small>
+	<small> ============== 17天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510161753.shtml" target="boxun-mirror">中纪委一炮双开四高官周本顺涉五宗状</a>
 </h2>
@@ -525,7 +525,7 @@
     当时本社获悉，自从令计划、周永康的问题被中纪委立案审查后，周本顺就是涉案人之一，这不仅是因为他是周永康一手从基层提拔上来的人，属于周永康的「政法系」代表人物；更重要的是2012年3月18日凌晨，令计划的儿子令谷在北京驾法拉利跑车载两名女大学生</p>
 </td></tr></p>
 <p>
-	<small> ============== 18天前</small>
+	<small> ============== 19天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/10/201510151255.shtml" target="boxun-mirror">中国学者潘瑞可：习近平是中国的实事求是派请看博讯热点：习近平观察</a>
 </h2>
@@ -590,7 +590,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 19天前</small>
+	<small> ============== 20天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510151254.shtml" target="boxun-mirror">周永康前爱将杨焕宁被踢出公安部贬掌安监局请看博讯热点：周永康</a>
 </h2>
@@ -633,7 +633,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 19天前</small>
+	<small> ============== 20天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510140307.shtml" target="boxun-mirror">刘云山任朝鲜大阅兵「电视转播总指挥」</a>
 </h2>
@@ -644,7 +644,7 @@
                 <!--bodystart-->      <br>
     【博闻社独家】朝鲜</td></tr></p>
 <p>
-	<small> ============== 20天前</small>
+	<small> ============== 21天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510140123.shtml" target="boxun-mirror">广东阳春垃圾焚烧事件持续升级数千人连日与警冲突请看博讯热点：突发事件</a>
 </h2>
@@ -702,7 +702,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 20天前</small>
+	<small> ============== 21天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/10/201510140255.shtml" target="boxun-mirror">央视狂轰韩国赌场来华拉客三线女星陪睡作诱饵</a>
 </h2>
@@ -759,7 +759,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 20天前</small>
+	<small> ============== 21天前</small>
 </p>
 <table>
     <tr>
