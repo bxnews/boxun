@@ -64,7 +64,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511061824.shtml" target="boxun-mirror">确认：中共已替姜野飞董广平缴罚金，紧急联络接收国请看博讯热点：抗议示威</a>
 </h2>
@@ -119,7 +119,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511060242.shtml" target="boxun-mirror">刘云山之子刘乐飞并未被调查，与中信证券无关请看博讯热点：刘云山</a>
 </h2>
@@ -152,7 +152,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/11/201511032234.shtml" target="boxun-mirror">中石化高层集体淫乱背后的腐败：顶风作案仍不收手请看博讯热点：情妇反腐</a>
 </h2>
