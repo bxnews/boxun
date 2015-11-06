@@ -64,7 +64,62 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511061824.shtml" target="boxun-mirror">确认：中共已替姜野飞董广平缴罚金，紧急联络接收国请看博讯热点：抗议示威</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>确认：中共已替姜野飞董广平缴罚金，紧急联络接收国<br><font color="blue" size="2">请看博讯热点：<a href="/hot/protest.shtml">抗议示威
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511061824" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->                                李 方<br>
+    <br>
+     联合国难民署官员说：中共替姜野飞董广平交了罚金 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       今日下午得到消息，联合国难民署官员约谈姜野飞妻子楚玲，和董广平妻子谷书花，明确告诉他们：“中共已经在今天上午替姜野飞董广平缴纳了罚金，因此，现在他们二人随时有被引渡危险。”<br>
+    <br>
+    难民署火速批准姜野飞董广平家属难民身份<br>
+    与此同时，难民署启动紧急措施，于今天下午，快速批准了楚玲、谷书花和女儿董雪睿的难民身份，为第三国接收他们扫清了障碍。<br>
+    难民署官员说，他们也在紧急联络接收国，接收他们。<br>
+    楚玲告诉记者：“今天下午，我在联合国难民署泰国办事处门口举牌，要求救助我丈夫，UN官员将我叫进去，在办公室和我正式谈话，并且有翻译。翻译明确说，中共已经在今天早上替我丈夫和董广平交了罚款。难民署官员说，他们也很紧张，正在紧急运作。随后，递给了我难民证，我被快速批准了。官员还说，要我们尽快筹集每人5万泰铢的保释金，将二人保释出来。官员说，他们关在移民监狱里，难民署不能保证他们的安全。”<br>
+    “现在，筹集这5万泰铢保释金是个大麻烦。”楚玲对记者说。<br>
+    记者同时拨通谷书花电话，正是她也在今天下午和女儿一起获批难民身份。“今天下午难民署通知我很女儿，给了我们难民证。现在5万泰铢保释金和联系接收国，是最大的问题。”谷书花说。<br>
+    <br>
+    呼吁紧急捐款，帮助姜野飞董广平缴纳保释金！<br>
+    姜野飞、董广平现在继续每人五万泰铢（约合一万元人民币）保释金，难民署官员说，他们在移民监狱里面很难保证安全，保释出来等待接收过安置，相对会安全些。目前，他们的家属已经开通了捐款账号，紧急呼吁各方同仁，积极帮助捐款。<br>
+    账户持有人：楚玲、谷书华；账户监管人：黎小龙、颜伯钧、杨崇；账户资金专款专用，实行月报表定期公开，希望全社会监督。<br>
+        Account Name:MRS.GU SHUHUA（账户名称：古书花）<br>
+        Account No.1540092178（账号：1540092178）<br>
+        SWIFT CODE:KRTHTHBK<br>
+        ADDRESS:KRUNGTHAI BANK PCL THAILAND<br>
+         TALHADNOI BRANCH(200154)<br>
+         1976 KAOLHAM RD. TALHADNOI, SAMPANTAWONG,<br>
+         BANGKOK 10100 THAILAND <br>
+         BANK TEL. +6622364866-7(银行电话)<br>
+        姜野飞夫人楚玲电话：+66955809380<br>
+    <br>
+    http://www.boxun.com/news/gb/intl/2015/11/201511031804.shtml#.Vjx9WfkrLIU<br>
+     
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511061824" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1901824       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511060242.shtml" target="boxun-mirror">刘云山之子刘乐飞并未被调查，与中信证券无关请看博讯热点：刘云山</a>
 </h2>
@@ -97,7 +152,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/11/201511032234.shtml" target="boxun-mirror">中石化高层集体淫乱背后的腐败：顶风作案仍不收手请看博讯热点：情妇反腐</a>
 </h2>
@@ -705,49 +760,6 @@
     总之，习和他的中共基于根深蒂固的历史经验，以一种“实事求是”的哲学原则在约束着自己的执政路径。如果一定要按西方的习惯称呼其为某个政治派别的话，那么可以说，习是中国的“实事求是”派。<br>
      
  [博讯综合报道] <!--bodyend-->(博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center> <!----> 4791255       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 22天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510151254.shtml" target="boxun-mirror">周永康前爱将杨焕宁被踢出公安部贬掌安监局请看博讯热点：周永康</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>周永康前爱将杨焕宁被踢出公安部贬掌安监局<br><font color="blue" size="2">请看博讯热点：<a href="/hot/zyk.shtml">周永康
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月15日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510151254" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】被视为是周永康在公安系统余党的公安部常务副部长、党委副书记杨焕宁，终于被调离公安系统，调任国家安监总局局长。本社获得消息显示，杨焕宁此次被赶离公安部，与近日中共在各地宣判、开审周永康旧部如出一辙，是中共对周永康余党大清理的一部份。<br>
-    <br>
-     内地媒体报道，公安部常务副部长、党委副书记杨焕宁调任国家安监总局局长，今天上午已到任，将全面负责安监总局工作。国家安监总局消息透露，今天上午中组部有关人员到安监总局召开会议并公布了这一消息。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    58岁的杨焕宁山东安丘人，北京大学法学院刑法专业毕业，在职研究生学历，法学博士学位。现任中共中央委员，担任国家安监总局局长前职务为公安部常务副部长(排名第一副部长)、党委副书记(正部长级)，副总警监警衔。<br>
-    <br>
-    此次杨调动跨度较大，引起外界关注。从重要的部委正部级位置，调往国务院一个直属局任局长，虽同为正部级，但地位重要性完全不可与公安部同日而语。<br>
-    <br>
-    本社获悉，杨此次调动实为贬职。杨是周永康任公安部长、中央政法委时代的爱将，2008年4月，北京奥运会临近，周永康将杨焕宁从辽宁省召回，晋升为常务副部长、党组副书记，专责奥运其间的保安工作，特别是防范“藏独”、“疆独”的恐怖袭击活动。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_26076.html">博闻社报道全文</a>。<br>
-    －
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510151254" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1571254       
 <hr>
 <table width="620"><tr><td>
 <b></p>
