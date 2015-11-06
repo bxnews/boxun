@@ -19,6 +19,53 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511060853.shtml" target="boxun-mirror">中石化更多黑幕：新旧高层勾结、巨额资金流失请看博讯热点：反腐打老虎</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中石化更多黑幕：新旧高层勾结、巨额资金流失<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511060853" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     《博讯》杂志11月号独家曝光中石化高层淫乱、腐败，引起业界关注，博讯接连收到更多资料，令人震惊的更多黑幕将逐渐揭开。<br>
+    <br>
+     最新信息显示，10月15日，中国石化集团公司在海南洋浦组织召开中石化（香港）海南洋浦成品油保税库建设项目问题整改工作现场会，声称要进一步贯彻落实中央巡视组反馈意见，加大整改力度，强化责任追究，发挥警示作用，推进全面从严治党、从严治企，为企业持续健康发展提供坚强保障。与会者观看了《查处洋浦成品油保税库建设项目违纪违法系列案件纪实片》，对相关违规违纪违法问题查处情况进行了通报，十建公司 、中石化 （香港）公司、工程部、集团财务部、炼化工程公司等5家单位做了表态发言。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    但是他们没有公开的一个秘密就是，这是一个根本不应该投资的项目！完全是苏树林当政时期，为他及家人谋取私利而度身定做的项目，由时任香港公司的一把手张国强〔巳因受贿罪被香港法院判刑〕具体实施执行的。所以这不是一个仅仅是投资失误的项目，从开头就注定是一个盗取国家财产的陷井，所有的工程都由苏的家人暗中包揽再转包。至今工程费用巳超支逾20亿。苏调任高升后，接任的傅成玉明知项目有问题却装聋作哑，继续投资支持，对张国强及有关人等给予庇护，自己也从中渔利。所以张国强最终是因在香港受贿被廉政公署拘捕，而非中石化主动采取措施，从而可见中石化高层是如何狼狈为奸的！<br>
+    <br>
+    消息称，还有以下至今未有处理的事项：<br>
+    广东石化的财务总监田杭良擅自挪用5000万美元给民企广东南方石油公司的肖亮平使用，所涉资金至今未能追回。但未闻任何处理措施，竟不了了之？<br>
+    <br>
+    集团财务总监戴厚良兼任香港中石化化工销售公司董事长，该化工销售公司的业务负责人竟内外勾结，开出信用证购货，而对方只使用假单椐兑现信用证，并无实质交货。导致近一亿美元的流失！至今亦未闻有任何的处理，又是不了了之？<br>
+    <br>
+    曾因张国强受贿案件而被香港廉政公署要求协助调查的中石化香港公司燃油公司负责人张伟，每年都令公司业务亏损3至5亿元。目前仍然消遥自在，视中纪委的禁令如无物。就在10月25日左右还使用公费在深圳东部华侨城打高尔球及吃喝玩乐。<br>
+    <br>
+    看看中石化集团的内部管理已经到了何等混乱的地步？对抗中央及中纪委的决心是如何之大！<br>
+    <br>
+    本系列报道博讯将会不断跟进。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511060853" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 400852       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511060242.shtml" target="boxun-mirror">刘云山之子刘乐飞并未被调查，与中信证券无关请看博讯热点：刘云山</a>
 </h2>
 <p><tr>
@@ -706,17 +753,6 @@
 <b></p>
 <p>
 	<small> ============== 22天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510140307.shtml" target="boxun-mirror">刘云山任朝鲜大阅兵「电视转播总指挥」</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>刘云山任朝鲜大阅兵「电视转播总指挥」<br><font color="#000fC0">(<small>博讯北京时间2015年10月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201510140307" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社独家】朝鲜</td></tr></p>
-<p>
-	<small> ============== 23天前</small>
 </p>
 <table>
     <tr>
