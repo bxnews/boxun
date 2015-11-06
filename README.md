@@ -19,6 +19,39 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511060242.shtml" target="boxun-mirror">刘云山之子刘乐飞并未被调查，与中信证券无关请看博讯热点：刘云山</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>刘云山之子刘乐飞并未被调查，与中信证券无关<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liuyunshan.shtml">刘云山
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511060242" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     【博闻社综合】近日，多家海外中文媒体相继报道刘云山之子刘乐飞被停职审查、双规、其亲信疑涉违法交易被捕等文章，指中信产业投资基金管理有限公司董事长兼首席执行官、中信证券董事兼副董事长刘乐飞因金融腐败被调查，甚至已被双规，金融界人人自危。其实，从今年8月中信证券高管徐刚等人被查开始，就有传闻此事与刘乐飞关联。而据中信集团的高层透露，刘乐飞目前一切正常，中信证券高管被调查一事与其并无关系。<br>
+    <br>
+     刘乐飞1973年出生，自2014年3月起担任中信证券副董事长。刘乐飞在中信证券任副董事长职务，是根据法律规定做出的制度安排。中信产业基金是中信证券的大股东，刘乐飞作为中信产业基金的董事长兼CEO，理应兼任中信证券副董事长，但他并不参与中信证券的任何决策，中信产业基金与中信证券是两个完全独立的实体。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    <a href="http://bowenpress.com/news/bowen_38455.html">刘云山之子刘乐飞并未被调查</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511060242" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 270242       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/11/201511032234.shtml" target="boxun-mirror">中石化高层集体淫乱背后的腐败：顶风作案仍不收手请看博讯热点：情妇反腐</a>
 </h2>
 <p><tr>
@@ -682,64 +715,6 @@
 </center>
                 <!--bodystart-->      <br>
     【博闻社独家】朝鲜</td></tr></p>
-<p>
-	<small> ============== 23天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510140123.shtml" target="boxun-mirror">广东阳春垃圾焚烧事件持续升级数千人连日与警冲突请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>广东阳春垃圾焚烧事件持续升级数千人连日与警冲突<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510140123" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      广东省阳春市春湾镇自由管理区村民反垃圾焚烧厂示威持续发酵，参与人数已增至数千人，10月12至13日，村民连续两日与前来镇压村民的上千警察发生多次冲突，共计数十村民被打伤，大量村民遭到抓捕，大量摩托车、农用车被警察砸毁，数辆警车和政府车辆被村民砸毁。<br>
-    <br>
-    为抗议海螺水泥厂私自在村内建垃圾焚烧场，自由管理区村民于本月3日发起示威，日夜将通往焚烧场的公路阻断，期间有多名村民因此遭到抓捕。9至10日，上千村民连续两日与警察发生激烈冲突，双方多人受伤，多辆警车、轿车、货车被村民烧毁，11名村民被抓捕，当地政府随后出动上千警察进村镇压村民。<br>
-    <br>
-    12日，当地的交通已被全副武装的警察全面封锁，禁止村民出入，见人就抓。村民表示，12日下午阳春交通已停止运营，只要是持有阳春身份证的人均不能返回家乡，就连在门口看热闹讨论的人也被抓走。同时，事件的信息亦被当地政府全面封锁。<br>
-    <br>
-    网友“10点半''晚安”发帖说：没回家的班车车票卖，开私家车回都查车，见到阳春的身份证，无条件不准放行，在门口看热闹，讨论这件事的人，都被抓了。<br>
-    <br>
-    12日，在警察抓走多名村民后，村民被激怒再次走上街头，大约七、八千村民与警察在村子与海螺水泥厂一带发生多次激烈冲突。<br>
-    <br>
-    目击村民“怪叔叔窝窝头”发帖说：阳春市春湾镇警民大战，群众因海螺水泥厂私建垃圾焚烧场游行抗议，警察拦路，打伤抓走了四个要经此路回家的村民引发民愤。<br>
-    <br>
-    另一名目击村民“青葱岁月”发帖说：今日再次起冲突，现在连省道都给拦截了。警察叔叔你没事做查什么身份证，在农村有几个人会随身带身份证出门的，真是吃饱撑的，防媒体也不用这样子？那些警察莲十几岁的学生都打到晕，因为今日中午比几只狗咬到高村三只十几岁的学生，才会那么多的村民出来的。<br>
-    <br>
-    现场图片以及视频显示，大量村民在街道、公路等地与警察对战，到处是碎石、被掀翻的警车、政府车，以及警察施放催泪弹后产生的浓烟，多名村民受伤头破血流。<br>
-    <br>
-    目击村民“间客”发帖说：目前现场已过七八千人，阳春人民桥已被封，禁止人上了。大家明日小心了，今天海螺特警已过千，自由附近附近落单的人特警见一个打一个。<br>
-    <br>
-    “间客”说：明日战况如何，主要是看天堂、罗定等外援能否来到，同时能来多少人。自由已被围困，今晚自由又唔知会俾捉几多人，请组织者尽量引多外援，减轻自由同胞的内部压力，如果自由被彻底压制，事后来多少人都无济于事了，望告知。<br>
-    <br>
-    直至13日下午，双方仍在不断发生冲突，共计有数十村民被警察打伤，大量村民被抓捕，大量摩托车、农用车被警察砸毁。<br>
-    <br>
-    村民“心为人民”发帖说：好黑暗的阳春春湾镇，那些特警不是人，有老人家被打伤，医院不接收特警打伤的病人，封锁道路封锁消息，想要人不知除非己莫为。<br>
-    <br>
-    （网络图片）<br>
-    <img src="/news/images/2015/10/201510140123china1.jpg" alt="广东阳春垃圾焚烧事件持续升级数千人连日与警冲突"><p><br>
-    <img src="/news/images/2015/10/201510140123china2.jpg" alt="广东阳春垃圾焚烧事件持续升级数千人连日与警冲突"></p>
-<p><br>
-    <img src="/news/images/2015/10/201510140123china3.jpg" alt="广东阳春垃圾焚烧事件持续升级数千人连日与警冲突"></p>
-<p><br>
-    <img src="/news/images/2015/10/201510140123china4.jpg" alt="广东阳春垃圾焚烧事件持续升级数千人连日与警冲突"></p>
-<p><br>
-    <img src="/news/images/2015/10/201510140123china5.jpg" alt="广东阳春垃圾焚烧事件持续升级数千人连日与警冲突"></p>
-<p><br>
-    <img src="/news/images/2015/10/201510140123china6.jpg" alt="广东阳春垃圾焚烧事件持续升级数千人连日与警冲突"></p>
-<p><br>
-    <img src="/news/images/2015/10/201510140123china7.jpg" alt="广东阳春垃圾焚烧事件持续升级数千人连日与警冲突"></p>
-<p><br>
-    <img src="/news/images/2015/10/201510140123china8.jpg" alt="广东阳春垃圾焚烧事件持续升级数千人连日与警冲突"></p>
-<p><br>
-    <img src="/news/images/2015/10/201510140123china9.jpg" alt="广东阳春垃圾焚烧事件持续升级数千人连日与警冲突"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510140123" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201510130912431.jpg http://upload.bx.tl/news/temp13/201510130912432.jpg http://upload.bx.tl/news/temp13/201510130912433.jpg http://upload.bx.tl/news/temp13/201510130912434.jpg http://upload.bx.tl/news/temp13/201510130913021.jpg http://upload.bx.tl/news/temp13/201510130913022.jpg http://upload.bx.tl/news/temp13/201510130913023.jpg http://upload.bx.tl/news/temp13/201510130913024.jpg http://upload.bx.tl/news/temp13/201510130913081.jpg--> 1050123       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 23天前</small>
 </p>
