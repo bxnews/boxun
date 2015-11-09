@@ -19,6 +19,57 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511090839.shtml" target="boxun-mirror">蔡军取代传闻跳楼的刘子荣任总参空管局局长</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>蔡军取代传闻跳楼的刘子荣任总参空管局局长<br><font color="#000fC0">(<small>博讯北京时间2015年11月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511090839" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     【博闻社综合】日前，中共空军军官蔡军履新国家空管委办公室副主任、总参空管局局长。而前任刘子荣正被调查时，今年2月被传跳楼自杀，目前生死不明。刘或涉去年中国民航“神秘禁飞事件”，即帮助“大老虎”出逃事件。<br>
+    <br>
+     据中共民航资源网11月2日消息，中共国家空管委办公室副主任、总参空管局局长蔡军一行10月28日下午到南京航空航天大学调研，同行的有中共国家空管委办公室计划财务处处长吕军华、工程技术处处长杜江。期间，南京航空航天大学副校长王永亮、民航学院党委书记倪晓众等出席了座谈会。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    上述报导显示，蔡军已经于今年10月28日之前出任中共国家空管委办公室副主任、总参空管局局长一职。蔡军曾任中共空军司令部航管部部长。<br>
+    <br>
+    前任中共国家空管委办公室副主任、总参谋部空管局局长是刘子荣。<br>
+    <br>
+    而据法广于 2015-02-12报道，中国空域管制的最高机构国家空管委办公室，副主任刘子荣大校于本月10日跳楼自杀，目前生死不明。报道指，刘跳楼前正接受军委纪委的调查。<br>
+    <br>
+    有港媒指刘子荣应知晓去年7月到8月波及华北地区12大机场航班“神秘禁飞事件”的内幕。也有分析称，刘或因帮助“大老虎”出逃而接受军纪委调查。<br>
+    <br>
+    当时民航“禁飞”期间，有消息称，中共一高级将领男扮女装、使用假护照企图出逃被海关拦截，其级别与不薄（注：徐才厚）相当。该消息暗指郭伯雄出逃。<br>
+    <br>
+    “神秘禁飞事件”期间，外界广传多名空军将领被调查，其中包括北京军区空军政治部副主任陈红岩、广州军区空军后勤部部长王声、成都军区空军政治部主任王毅等。<br>
+    <br>
+    目前，此传言中提及的3名空军将领中，除成都军区空军政治部主任王毅外，陈红岩和王声被调查。<br>
+    <br>
+    空管委目前的主任是副总理马凯，这个职位自空管委在1986年1月成立以来，一般皆由国务院副总理兼任，在马凯之前的主任有李鹏、邹家华、吴邦国、黄菊和张德江。<br>
+    <br>
+    博闻社详细报道：<a href="http://bowenpress.com/news/bowen_39131.html">蔡军取代传闻跳楼的刘子荣任总参空管局局长</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511090839" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 330839       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511071535.shtml" target="boxun-mirror">新华社女记者齐力反腐受迫害含冤惨死请看博讯热点：打压媒体和记者</a>
 </h2>
 <p><tr>
@@ -795,53 +846,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 21天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510180950.shtml" target="boxun-mirror">军改前夕事故频发三季度逾40军人殉职习下令调查请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>军改前夕事故频发 三季度逾40军人殉职 习下令调查<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月18日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510180950" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社综合】中共军队大改革序幕已掀开，脱胎换骨式的改革震撼外界，同样震撼军内。本社获悉，就在军改要开始的节骨眼上，解放军内部事故频发，并导致军人生命和军队装备财产重大损失。仅刚过去的三季度，就40多名军人因事故意外死亡。军委主席习近平下令调查，总政治部已组成庞大工作组，深入军中调查，顺便就军改事宜了解部队的思想动态。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       来自中共军委总部的消息透露，今年第三季度军队内部事故报告统计结果，让中央军委领导人大感震惊，陆、海、空、二炮和武警在三个月发生意外事故近百宗，共导致40多名军人殉职，以及军队装备和财产的重大损失。该事故率不但创下季度同比新高，也创下近20年来季度事故率最高的记录。<br>
-    <br>
-    消息指，习近平掌军后，军队真刀真枪演练大大加强，陆海空三军混练、以师旅为单位的跨区长途奔袭拉练、尤其是空军全天候不分日夜演练、海军远洋训练等，较以往多，强度也较以大大升级。但最近两三年的意外事故统计显示，季度事故发生率通常不超过二、三十宗，死亡人数在单位数(10以内)，但今年三季度情况大大出乎意料。<br>
-    <br>
-    消息透露，中央军委为此专门开会研究，尽管每宗事故报告都详列了事故原因和有关分析，但军委主席习近平仍决定，由总政治部组织工作组，分头深入事故部队，进行重新调查，首要的问题是要搞清楚，这些事故是否与军队要大改革对军人心理造成冲击有关。同时顺便掌握军队基层的思想动态，了解基层对军队改革的看法。<br>
-    <br>
-    军方消息人士表示，地方和舆论对军队事故的了解和认识，通常只停留在空军坠机等空难事故，因这些故事容易被地方发现，从而引起媒体报道。但其实，军队事故绝大部份是不被外界所识的，一是军队有严格的保密制度，二来，军营出事通常只在军营了结，第三，像海军在海上出事，根本不可能有外人知道。<br>
-    <br>
-    最经典是2003年4月16日，海军北海舰队361号潜艇在山东外海内长山以东海域进行训练时，由于指挥操纵不当造成机械故障失事，艇上70名官兵全部遇难，潜艇失联10天后浮起，才被出海渔民发现。事故隐瞒多年后，才渐渐见光。<br>
-    <br>
-    去年6月17日，广州军区联勤部位于湖南省衡阳市的76122部队弹药库，疑因装卸弹药时不慎，引发连环大爆炸，由于事件太大，军方不得不透过新华社发稿，称事故造成正在进行弹药入库的17名官兵遇难； 除此不到百字的短信外，再无任何详情。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_26540.html">博闻社报道详情</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510180950" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 140950       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 22天前</small>
 </p>
 <table>
     <tr>
