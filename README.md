@@ -845,7 +845,7 @@
      习近平专机除了驾驶员是国航专飞有关航线的资深驾驶员，他们要经过严格的政审才能 （<a href="http://bowenpress.com/news/bowen_27058.html"></a>
 </td></tr></p>
 <p>
-	<small> ============== 21天前</small>
+	<small> ============== 22天前</small>
 </p>
 <table>
     <tr>
