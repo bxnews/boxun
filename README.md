@@ -68,7 +68,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511071535.shtml" target="boxun-mirror">新华社女记者齐力反腐受迫害含冤惨死请看博讯热点：打压媒体和记者</a>
 </h2>
