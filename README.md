@@ -57,7 +57,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511131019.shtml" target="boxun-mirror">中国外交部公开宣布放弃南海纳土纳群岛主权请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -98,7 +98,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511120556.shtml" target="boxun-mirror">紫禁来鸿：失势多病无心恋栈李克强十九大或让贤请看博讯热点：习近平观察</a>
 </h2>
