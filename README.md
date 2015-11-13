@@ -19,6 +19,47 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511131019.shtml" target="boxun-mirror">中国外交部公开宣布放弃南海纳土纳群岛主权请看博讯热点：南沙、西沙争端</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中国外交部公开宣布放弃南海纳土纳群岛主权<br><font color="blue" size="2">请看博讯热点：<a href="/hot/south_china_sea.shtml">南沙、西沙争端
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月13日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社】中国外交部发言人洪磊在12日的例行记者会上宣告，南沙纳土纳群岛主权属于印尼，中方没有表示异议。令外界一片哗然，质疑外交部突然公开卖国，不满北京一夜放弃了这个自宋朝以来就一直被视为中国人故土、面积比南沙陆地大1000倍的群岛。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       以下为有关纳土纳群岛的一些历史记载。原刊于中国官方各媒体网站。<br>
+    <br>
+    纳土纳群岛位于南中国海西南部，距曾母暗沙约400公里，距中国内地陆地约1900公里，距印尼加里曼丹岛最近之处225公里。目前其隶属印尼廖内群岛省管辖，居住人口约9万，由272个岛屿组成，面积达2110平方公里。同时，该区域是著名的石油和天然气蕴藏地。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_39822.html">博闻社报道全文</a><br>
+    <br>
+    －
+ [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 3441018       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511120556.shtml" target="boxun-mirror">紫禁来鸿：失势多病无心恋栈李克强十九大或让贤请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -857,28 +898,6 @@
 <b></p>
 <p>
 	<small> ============== 20天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510231218.shtml" target="boxun-mirror">习近平保镖华盛顿接访后再现身英国</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平保镖华盛顿接访后再现身英国<br><font color="#000fC0">(<small>博讯北京时间2015年10月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201510231218" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社】2015年10月21日，习近平冒雨参观英国帝国理工学院。有眼尖的中国访民发现，官方发布图片中的一名习的保镖，正是9月26日在华盛顿出面接待拦截习近平车队访民的中方安全人员主管。<br>
-    <br>
-    习近平9月26日在美国华盛顿进行访问时，车队被数十中国访民先后两次拦截，成功拦截车队并躺在车轮下的访民马永田透露，后来当局派一名官员来接受访民申冤材料，并和李焕君合影。<br>
-    <img src="http://bowenpress.com/wp-content/uploads/2015/10/6996efdd38b0767328bdfc1bbe7b932f"><br>
-    马永田透露，这名保镖当时坐在副驾驶的位置，应该是中方负责习近平安全的有关负责人。发生拦车事件后，照片中的男士从中美元首会面现场出来，和访民交谈，接收了他们的材料，并和李焕君合影。<br>
-    <img src="http://bowenpress.com/wp-content/uploads/2015/10/f139ccdd139139d139000e139f139139139139a139e139e139c13913913900139" width="600"><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/ycH_WIQLA-0" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201510231218" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 791218       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 21天前</small>
 </p>
 <table>
     <tr>
