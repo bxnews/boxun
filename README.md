@@ -19,6 +19,46 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511131020.shtml" target="boxun-mirror">独家：范长龙犯颜直谏上书习近平吁军改推后</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：范长龙犯颜直谏上书习近平吁军改推后<br><font color="#000fC0">(<small>博讯北京时间2015年11月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511131020" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+     【博闻社独家】由习近平亲自倡导的中共军队改革如箭在弦。本社获得的消息透露，有鉴于改革方案在军队中高层引起的反应太强烈，抗拒心普遍，现任中央军委第一副主席范长龙以个人名义上书军委主席习近平和中央军委，要求将军改实施的时间延后两个月，以便有足够时间进行军改的思想和组织准备工作。范此举无疑于犯颜上谏，正被军方喉舌群起围攻。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       中南海知情者对本社透露，范长龙是以写信的方式，以个人名义给习近平和中央军委上书，他首先表示个人无条件拥护和支持军改方案，肯定军改方案的大方向是正确的，对中国军队走向现代化，对实现中华民族伟大复兴意义重大。但范上书表示，由于此次军改动作太大，军队中高层反应非常强烈，普遍存在抗拒心和疑虑。<br>
+    <br>
+    范长龙在上书中具体罗列了一些军队中高层中，存在的抗拒心和疑虑的现象，例如、、<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_39960.html">博闻社报道全文</a><br>
+    <br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511131020" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 831020       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511131019.shtml" target="boxun-mirror">中国外交部公开宣布放弃南海纳土纳群岛主权请看博讯热点：南沙、西沙争端</a>
 </h2>
 <p><tr>
@@ -58,7 +98,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511120556.shtml" target="boxun-mirror">紫禁来鸿：失势多病无心恋栈李克强十九大或让贤请看博讯热点：习近平观察</a>
 </h2>
@@ -876,23 +916,6 @@
                        <br>
     在10月22日习近平与卡梅伦的「庄园会」中，英方媒体极少有报道中英两国领导人在契克 （<a href="http://bowenpress.com/news/bowen_28146.html">博闻全文报道</a>）
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201510241411" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 901411       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 20天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/editorial/2015/10/201510241318.shtml" target="boxun-mirror">博讯youtube视频帐号被注销的情况说明</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>博讯youtube视频帐号被注销的情况说明<br><font color="#000fC0">(<small>博讯北京时间2015年10月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=editorial201510241318" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      博讯视频频道youtube.com/boxuntv 在美国当地时间23日凌晨被谷歌注销，因此，该帐号下的数千视频无法播放，如果账户不能恢复，我们过去两年拍摄、编辑发布的中国和美国各地的珍贵视频将丢失。我们一直把youtube当安全的视频保存和发布平台，但博讯数千视频中，个别视频被别有用心的“读者”举报有暴力镜头，最后一个被举报的视频标题是“视频：男子出轨被捉奸在床，与小三一起遭殴打（未成年人不宜）”。该视频是数人闯入一个房间殴打出轨者的事件，并无裸露。至于暴力，动手打人，类似视频甚至更为激烈血腥的视频常见于youtube等网络。<br>
-    <br>
-    博讯在争取谷歌恢复帐号，不过日后我们可能无法再发布任何暴力视频，包括强拆、警察打人等。或许，这样会让世界更和谐、美好，让世界人民感受到中国人民的幸福美满、中国梦的早日到来。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=editorial201510241318" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3311318       
 <hr>
 <table width="620"><tr><td>
 <b></p>
