@@ -39,7 +39,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511131020.shtml" target="boxun-mirror">独家：范长龙犯颜直谏上书习近平吁军改推后</a>
 </h2>
