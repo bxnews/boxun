@@ -19,6 +19,28 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511140945.shtml" target="boxun-mirror">香港书商阿海（桂民海）离开泰国公寓视频</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>香港书商阿海（桂民海）离开泰国公寓视频<br><font color="#000fC0">(<small>博讯北京时间2015年11月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511140945" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     （博讯独家）阿海最后一次离开公寓时间是10月17日，有一名华人男子陪同，之后未再回到公寓。阿海“失联”后，曾有四名男子进入他的公寓，“使用”了他的电脑，长达两个多小时。并且，这四名男子要带走阿海的电脑，但是物业经理不同意，未能带走。<br>
+    <br>
+    10月17日视频：<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/hC-3qjdapn8" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    物业经理告诉泰国朋友：<br>
+        “17D业主于10月17日，同一名讲中国话男子离开公寓后，就再也没有回来过。离开时，他开自己的车走的。11月3日曾有四名男子，其中有一名讲泰语的，其他几名应该是中国人，进入了17D 公寓。物业管理处接到了业主本人的电话，告知有四位客人，请允许进入他的房间。他的房间平时并不锁门。物业处做了登记，允许他们进入该公寓。四人进入后打开业主电脑。使用了两个多小时。业主曾交代说，可以让他们在公寓过夜。但是四人两个多小时后离开，离开时要带走业主的电脑，但是物业管理处没有答应。”<br>
+        访客登记表显示，11月3日有四名访客进入阿海公寓，阿海不在公寓内。登记人“何伟”，离开时间13:40 。管理处说他们大约11点多进入，在阿海房间逗留两个多小时。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511140945" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2550945       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511131020.shtml" target="boxun-mirror">独家：范长龙犯颜直谏上书习近平吁军改推后</a>
 </h2>
 <p><tr>
@@ -881,41 +903,6 @@
     <br>
     `
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510241513" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 121513       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 21天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/10/201510241411.shtml" target="boxun-mirror">习近平卡梅伦「庄园植树」实为中方强要做戏</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平卡梅伦「庄园植树」实为中方强要做戏<br><font color="#000fC0">(<small>博讯北京时间2015年10月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201510241411" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社独家】中国国家主席习近平已圆满结束英国之旅，海外媒体无不吐槽堂堂大英帝国对金主中国卑躬屈膝，无不啧叹北京豪掷400亿英镑，以另类方式羞辱这个老牌帝国，并为170年前的鸦片战争雪耻。<br>
-     其实北京用另类方式戏弄大英帝国的远不止这些。本社获悉，这次习近平访英的全部过程安排，基本都是按北京的设计和要求进行，尤其是习近平在伦敦最后一天前往卡梅伦的郊外别墅举行「庄园会晤」，更是中方特别为习近平量身定制，其中的「植树」更显地地道道中共特色。为那棵树，中方要苦口婆心说服英方，给最讲礼仪的大英帝国上了一堂中国特色的「文明课」。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    在10月22日习近平与卡梅伦的「庄园会」中，英方媒体极少有报道中英两国领导人在契克 （<a href="http://bowenpress.com/news/bowen_28146.html">博闻全文报道</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201510241411" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 901411       
 <hr>
 <table width="620"><tr><td>
 <b></p>
