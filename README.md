@@ -55,7 +55,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511140945.shtml" target="boxun-mirror">香港书商阿海（桂民海）离开泰国公寓视频</a>
 </h2>
