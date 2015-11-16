@@ -40,6 +40,49 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511161259.shtml" target="boxun-mirror">流亡泰国民运人士姜野飞董广平疑被遣返中国</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>流亡泰国民运人士姜野飞董广平疑被遣返中国<br><font color="#000fC0">(<small>博讯北京时间2015年11月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511161259" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    <br>
+      博讯报道（11月16日），据某人权机构以及泰国移民监消息，10月28日被泰国警方抓捕的中国民运人士姜野飞和董广平疑似于2015年11月12日遣返中国。目前，两位当事人家属在联合国难民署（UN）门口等待来自UN的确认。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    据姜野飞妻子楚玲消息：12号晚上10点20分姜野飞和董广平他俩被带走。走时要求衣服鞋子都穿上，以往换房间不用穿鞋和衣服就可以，那天带人的气势不像是换房，而是另有目的。<br>
+    <br>
+    据楚玲说：以前关在15A房间的时候，有电话可以偷偷打出来和外面取得联系。但是换到5号房间之后，那里没有电话，只能是3天放风时打公用电话。<br>
+    <br>
+    楚玲据姜野飞狱友消息：姜野飞当时感觉不好，临走向狱友交代了很多话。但是，现在楚玲还不知道姜野飞对那个狱友说了些什么。<br>
+    <br>
+    据泰国移民监消息：移民监警察说姜董二人已被遣返中国，一同被遣返的有五人，除了姜董二人之外，另外三人身份情况不明。<br>
+    <br>
+    此前，联合国难民署（UN）一直让当事人家属保持低调，并且多次保证姜董二人不会被遣返中国，等候联合国难民署（UN）的协调。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511161259" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2351259       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511160528.shtml" target="boxun-mirror">巴黎恐袭撼动G20峰会习近平修改演讲稿</a>
 </h2>
 <p><tr>
@@ -850,44 +893,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510290132" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201510280917231.jpg http://upload.bx.tl/news/temp13/201510280917232.jpg http://upload.bx.tl/news/temp13/201510280917233.jpg http://upload.bx.tl/news/temp13/201510280917234.jpg http://upload.bx.tl/news/temp13/201510280917421.jpg http://upload.bx.tl/news/temp13/201510280917422.jpg http://upload.bx.tl/news/temp13/201510280917423.jpg http://upload.bx.tl/news/temp13/201510280917424.jpg http://upload.bx.tl/news/temp13/201510280917491.jpg--> 140132       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 18天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510291048.shtml" target="boxun-mirror">军队大清洗向中下级波及曾提前晋升者重审</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>军队大清洗向中下级波及 曾提前晋升者重审<br><font color="#000fC0">(<small>博讯北京时间2015年10月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510291048" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社独家】本社获悉，中共中央军委近日又有动作，以肃清徐才厚、郭伯雄流，纯洁部队干部队伍为由，在全军开展新一轮干部大清查，针对大校以及少将这两级的军官，搞人人过关，特别是2008年以后凡获提前晋升者，一律重新审查，主要调查是否涉及买官和腐败，顺便为军队改革做准备。清查活动由总政治部负责。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       北京知情人士对本社透露，中共十八届五中全会会期已过半，对十三五规划的审议获得高度一致的评价；但其它的会议议程进展并没有原先想象的顺利，特别是关于党和军队高层人事调整方面，争议较大，使高层提出的议案存在变数。另外就是对军队改革方案，军中代表和地方代表看法迥异，甚至出现两极的相反看法。<br>
-    <br>
-     本社获悉，就在五中全会前夕，中央军委又在全军开始新一轮干部大清查，针对的是大校及少将这两级军官；名义仍然是「从组织上、思想上肃清徐才厚、郭伯雄的影响」。方法是人人过关，特别是2008年以后，没按军衔条例晋升，而获提前升官者，一律要重新审查，重点是清查有无买官、腐败等现象。这项工作仍由总政治部负责，时间为一周。<br>
-    <br>
-    知情者对本社指，（<a href="http://bowenpress.com/news/bowen_36707.html">博闻社报道全文</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510291048" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2211048       
 <hr>
 <table width="620"><tr><td>
 <b></p>
