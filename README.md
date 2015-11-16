@@ -19,6 +19,44 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511160528.shtml" target="boxun-mirror">巴黎恐袭撼动G20峰会习近平修改演讲稿</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>巴黎恐袭撼动G20峰会 习近平修改演讲稿<br><font color="#000fC0">(<small>博讯北京时间2015年11月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511160528" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】11月13日夜间突然发生在巴黎的连环恐怖攻击，使得将在土耳其安塔利亚召开的2015年「20国集团」(G20)高峰会笼罩在恐怖攻击的阴影之下。出席峰会的中国国家主席习近平，也要临时修改演说稿，以应变化。<br>
+    继2001年美国911事件之后，巴黎恐袭让出席本次G20峰会的领袖们不再纸上谈兵和坐而论道，再次并肩作战。为此，东道主土耳其与各国代表团紧急磋商，在保留原定世界经济和难民危机议题的前提下，将重点突出联合反恐议题。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       博闻社独家获悉，出于对巴黎恐怖攻击中无辜遇难者的尊重和悼念，土耳其将缩短当地时间15日晚上举行的领袖晚宴和欢迎仪式的规模和时间。与会的20国领袖将尽可能重点探讨各国联合反恐的新举措，并发布联合声明。<br>
+    <br>
+    法国总统奥朗德此前已亲自致电土耳其总理厄尔多安，由于巴黎发生前所未有恐袭的缘故，他将不会出席本次峰会，改由法国外交部长和财政部长代表法国与会；厄尔多安和与会其他各国领袖已对奥朗德的决定表示尊重和理解。<br>
+    <br>
+    此外，博闻社独家了解，巴黎恐袭迫使将出席高峰会的中国国家主席习近平要求「笔杆子」王沪宁连夜修改相关发言稿和演讲稿，尤其是收敛他原本想强调的中国梦和世界梦，将重点改变为各国联合反恐的重要性。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511160528" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 600528       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511140945.shtml" target="boxun-mirror">香港书商阿海（桂民海）离开泰国公寓视频</a>
 </h2>
 <p><tr>
@@ -870,44 +908,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 21天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510241513.shtml" target="boxun-mirror">视频：场面火爆,杭州出动警察强拆民房打成一片请看博讯热点：强行拆迁</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：场面火爆,杭州出动警察强拆民房打成一片<br><font color="blue" size="2">请看博讯热点：<a href="/hot/chaiqian.shtml">强行拆迁
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年10月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510241513" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    <iframe src="https://player.vimeo.com/video/143449826" width="500" height="667" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> <p><a href="https://vimeo.com/143449826">Untitled</a> from <a href="https://vimeo.com/boxun">boxun</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
-<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       这是2015年10月23日，浙江省杭州市上城区近江村发生的强拆事件。政府出动大批警察和“特保”抓捕、殴打涉事人和拍照者。民众破口大骂，场面一片混乱。<br>
-    <br>
-    `
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201510241513" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 121513       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 23天前</small>
 </p>
 <table>
     <tr>
