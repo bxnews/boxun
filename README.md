@@ -38,7 +38,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511160528.shtml" target="boxun-mirror">巴黎恐袭撼动G20峰会习近平修改演讲稿</a>
 </h2>
@@ -76,7 +76,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511140945.shtml" target="boxun-mirror">香港书商阿海（桂民海）离开泰国公寓视频</a>
 </h2>
