@@ -19,6 +19,91 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511170105.shtml" target="boxun-mirror">中共军改下月底启动方案缩水裁官减少</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共军改下月底启动 方案缩水裁官减少<br><font color="#000fC0">(<small>博讯北京时间2015年11月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511170105" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】本社获悉，中共军队改革下月底开始正式启动。首先要动是军委直属机构，明年一月开始改四总部，二月动七大军区。由于此次军改动作很大，军队中高层将领意见太多，军改方案有所改动，包括原七大军区二级部门整编后保留，改为各战区所属二级局。改革比预期退步，裁减军官相对变少。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       军方消息人士对本社透露，此次军改方案在军队内部引起震荡属意料中事，但为保证改革成功，中央军委深化改革领导小组还是将改革时间稍为延后，推到今年12月底启动；改革方案亦作了局部调整，顶层设计不变，即军委领导机构的改革不变，七大军区撤改为四大战区不变，但战区组成有所变化。<br>
+    <br>
+    消息透露，经军委主席习近平拍板决定，军队改革方案从下月底开始实施，首先要动的是军委直属机构，如国防大学、国防科技大学、军事科学院等科研及教学机构的转轨；明年一月底开始对军委四总部改革。<br>
+    <br>
+    军委总部改革方案诚如早前本社所透露，成立陆、海、空三军总部，原军委四总部大变身，总后与总装合并，组成新的后勤保障部门。总参谋部仿照美军参谋长联席会议升格，由三军总部首长和相关将领组成，为军委主席决策提供参谋意见。原四总部改编后成为军委办事机构，不再有一级权限。<br>
+    <br>
+     消息形容，改革后的中央军委，基本上就是军委主席和总参谋部进行决策，副主席作用将大大弱化，甚至形同虚设。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_40657.html">博闻社全文报道</a><br>
+    <br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511170105" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3140105       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511170103.shtml" target="boxun-mirror">习近平访美成果玩乌笼中美高铁项目被指假大空</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平访美成果玩乌笼 中美高铁项目被指假大空<br><font color="#000fC0">(<small>博讯北京时间2015年11月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511170103" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】今年9、10两个月，中国国家主席习近平先后对美国和英国这两个西方大国进行国事访问；中共官媒号称取得丰硕成果，其中访美成果洋洋洒洒五大类49项。不过大部份为看不见摸不着「务虚」成果，看得见、摸得着的成果大部份又以中方付钱为代价，如向波音购买300架飞机、中美合作建设美国洛杉矶至拉斯维加斯的高铁项目等。<br>
+    <br>
+     香港出版的最新一期《博讯》月刊透露，就是这些中方掏钱的「巨大成果」，也有不少涉嫌假大空，或八字还没一撇的空中楼阁项目。例如中美合作洛杉矶至拉斯维加斯高铁项目，该项目曾被美国媒体形容为「骗子」项目，早在20年前已有美国公司提出，起起伏伏，未见有影。此次被中方拣起，作为中国高铁向西方输出的标志性成果之一，纳入习近平访美成果目录。有美国媒体指，该项目「借尸还魂」，中国可能要成冤大头。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    根据中国外交部清单，「洛杉矶至拉斯维加斯的高铁项目」排习近平访美第二大类的第25条：「中国铁路国际(美国)有限公司与美国沙漠快线有限责任公司和帕姆代尔高速铁路有限责任公司在2015年9月13日签署组建美国西部快线项目合资公司框架协议。」清单没有列出这项彰显中国高铁走出世界的伟大胜利的项目，到底具体为何，要花多少钱。<br>
+    <br>
+    事实上习近平访美前，中方已于9月17日在北京召开中美经济合作记者会，通告此重事项。当时中共中央财办副主任舒国增透露，中美组建合资公司建设并经营「西部快线高速铁路」，从美国内华达州拉斯维加斯，到加州胜利谷和帕姆代尔，最终到洛杉矶，全长370公里，计划总投资127亿美元，预计工程于2016年9月底开工，工期为三年左右。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_40454.html">博闻社全文报道</a><br>
+    <br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511170103" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2080103       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511161953.shtml" target="boxun-mirror">国际救援失败，姜野飞董广平上周五晚被遣返回中国请看博讯热点：抗议示威</a>
 </h2>
 <p><tr>
@@ -863,43 +948,6 @@
 <b></p>
 <p>
 	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511020013.shtml" target="boxun-mirror">“第一千金”习明泽未跟随习近平访问英国</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>“第一千金”习明泽未跟随习近平访问英国<br><font color="#000fC0">(<small>博讯北京时间2015年11月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511020013" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->       【博闻社独家】10月27日，中共十八届五中全会召开的第二天，一段名为《十三五之歌》英语短片在网上悄然流传，该片用摇滚加动漫方式，为五中全会正在审议的十三五规划作解读宣传，由于别开生面，破了当局过往宣传重大方针政策的一贯做法，吸引不少网民点击，发布5小时短片在国内主要视频网站上点击量已破500万。<br>
-    <br>
-    这部由复兴路上工作室制作、片长仅3分钟的宣传片，不但被放上中国人看不到的youtube上传播，官方新华社、人民日报等均在官方网络平台上热推，并刊文评论誉之为“神曲”。本社获悉，这段神曲其幕后执导者，正是习近平的独生女儿习明泽，“中国第一千金”不但全权负责，并且全程参与了《十三五之歌》的前期策划、撰稿、编辑和后期制作。<br>
-    <br>
-    来自北京知情者的消息透露，9月底习近平携夫人彭丽媛出访美国，第一千金习明泽曾随团赴美(博闻社曾独家披露报道)，以外交部翻译室随员的身份而且化名随团。出于种种考虑，尤其是安全因素，只有少数高层知道个中详情。<br>
-    <br>
-     但10月下旬习近平携夫人出访英国，习千金并无跟随。海外有媒体揣测习千金曾跟随访英，将与习近平和彭丽媛一起出席皇室国宴的外交部女翻译当成第一千金，搞出大乌笼。<br>
-    <br>
-    知情者对本社指，习明泽随父母从美国回来后，就（<a href="http://bowenpress.com/news/bowen_37447.html">博闻社全文报道</a>）<br>
-    <br>
-    －
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511020013" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2040013       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/10/201510301250.shtml" target="boxun-mirror">《博讯》习近平访美被假项目骗、令计划关押地曝光</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>《博讯》习近平访美被假项目骗、令计划关押地曝光<br><font color="#000fC0">(<small>博讯北京时间2015年10月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201510301250" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2015/10/201510301250china1.jpg" alt="《博讯》习近平访美被假项目骗、令计划关押地曝光"><p><br>
-    </p>
-</td></tr></p>
-<p>
-	<small> ============== 18天前</small>
 </p>
 <table>
     <tr>
