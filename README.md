@@ -61,7 +61,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511170103.shtml" target="boxun-mirror">习近平访美成果玩乌笼中美高铁项目被指假大空</a>
 </h2>
@@ -102,7 +102,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511161953.shtml" target="boxun-mirror">国际救援失败，姜野飞董广平上周五晚被遣返回中国请看博讯热点：抗议示威</a>
 </h2>
