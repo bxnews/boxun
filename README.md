@@ -19,6 +19,53 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511180710.shtml" target="boxun-mirror">中民投主席董文标拒归国金融大鳄成海外流亡者？请看博讯热点：反腐打老虎</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中民投主席董文标拒归国 金融大鳄成海外流亡者？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月18日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511180710" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】中国全国工商联副主席、中国民生投资股份有限公司(中民投)董事局主席、原民生银行董事长董文标两月前借开会为名，买通两名中共高层为其违规担保出境，实为外逃。本社获悉，已被中纪委列为协查禁出境的董文标迄今仍拒绝回国，滞留外国，且妻女均已出国，一家人在外国“避风头”，实为担心回国后落入法网。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    本月5日，本社独家披露因涉中共高层贪腐案被边控的董文标，在两名现任政治局委员担保下于9月26日借开会之名出逃日本。中民投回应指本社报道是“别有用心恶意中伤”，称董出国是“有并购项目”。董又在印尼找了一家相熟华商，到其公司拍张合影然后对外发布，以证其在外“洽谈业务”，实为蒙骗舆论。<br>
+    <br>
+    本社获悉，董选择中共总书记习近平访美期间违规出国，因其得悉信息中共要对金融界进行反贪腐，诸多目标人物都与他有关，有高层人士暗示他出去“避避风头”，因而千方百计找借口，买通关系，混出国外。<br>
+    <br>
+    董文标违规出国至今已两个月，逾期不归，借口是妻子女儿都在国外(据悉她们早已取得外国居留权)，想多陪妻女。但据了解，董现与妻女以新加坡为常居地。董出国后，中民投的工作主要由总裁李怀珍主持；董则通过电信等方式进行遥控指挥。<br>
+    <br>
+    10月28日，董文标又现身中民创业俱乐部在新加坡举行的启动仪式，除董文标外，中民投副主席史玉柱、李银珩，以及中民投32家股东单位代表和中民投经营层高管出席仪式，中民投总裁李怀珍主持会议。外界质疑如此一个中国企业的“俱乐部”，何故要千里迢迢、兴师动众飞到新加坡启动，知情者一语道白：主要就为配合董文标滞外不归！<br>
+    <br>
+    消息指，董文标主政民生银行其间，留下一屁股烂账，其中一家民企贷款70亿，另外一家贷款17亿，都是经董的手批出，“有去无回”；更重要的是，董文标涉嫌利用手中权力，拉拢腐蚀金融高官，向高官家人输送利益，其中包括前央行行长戴相龙的女婿车峰，车现已被当局拘查，戴相龙亦被中纪委约谈，董文标深知身陷风暴眼。<br>
+    <br>
+    本社上月初披露，董文标是以去日本参加国际金融会议为名，于9月26日上午从北京首都国际机场出境，被北京市出入境管理局根据公安部的边控名单，控制了数小时。但董文标找到了重庆市委书记孙政才的妻子胡颖；胡是民生银行旗下北京民生财富学院执行院长、民生文化国际交流中心总经理头衔，胡颖则找了其丈夫孙政才。<br>
+    <br>
+    同时，董文标又找到另一位中共政治局委员、中央统战部部长孙春兰。因孙的丈夫唐骏当年做生意，曾获董文标支持，批给巨额贷款。两位姓孙的政治局委员先后向全国工商联主席全哲洙打招呼“担保”，全哲洙只好以全国工商联名义，给公安部边防管理局、北京市出入境管理局出示担保传真。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_40851.html">中民投主席董文标拒归国 金融大鳄成海外流亡者？</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511180710" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2300710       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 29分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511170105.shtml" target="boxun-mirror">中共军改下月底启动方案缩水裁官减少</a>
 </h2>
 <p><tr>
@@ -928,21 +975,6 @@
     <img src="http://www.boxun.com/news/images/2015/11/201511020105china9.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"><p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511020105" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511010941351.jpg http://upload.bx.tl/news/temp13/201511010941352.jpg http://upload.bx.tl/news/temp13/201511010941353.jpg http://upload.bx.tl/news/temp13/201511010941354.jpg http://upload.bx.tl/news/temp13/201511010942011.jpg http://upload.bx.tl/news/temp13/201511010942012.jpg http://upload.bx.tl/news/temp13/201511010942013.jpg http://upload.bx.tl/news/temp13/201511010942014.jpg http://upload.bx.tl/news/temp13/201511010942011.jpg--> 300105       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511021736.shtml" target="boxun-mirror">姜野飞、董广平关押地查明：不在曼谷，家属已会见！</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>姜野飞、董广平关押地查明：不在曼谷，家属已会见！<br><font color="#000fC0"><small>(博讯北京时间2015年11月02日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511021736" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->李 方      <br><br><b>关押地距离曼谷约35公里，是移民局另一个监狱</b><br>    <br>    昨日获得消息，姜野飞、董广平二人关押地不在曼谷，而是在距离曼谷约35公里的Prathomthani省Tanyaburi区监狱（Detention House Of Pratumtani）。<br>    昨日，据一泰国朋友通过曼谷移民局打听消息，移民局警察说：“因为曼谷IDC 人满为患，所以暂时关押在外省，Tanyaburi监狱地方大，缴了罚款也许就转过来了。”朋友问过会否引渡中国，移民局值班警察称不知情。<br>    今天早晨，姜野飞妻子楚玲、董广平妻子谷书华、曼谷民运人士黎小龙以及翻译小林几人打车前往Tanyaburi监狱探监，并见到了二人。<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl1.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    监狱大门<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl2.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    楚玲手写的监狱英文名：Detention House Of Pratumtani<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl3.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    监狱在Google地图上的位置<br>    <br><br><b>二人遭罚款，将于月底移送曼谷中心移民监IDC</b><br>    <br>    楚玲告诉记者：姜野飞说很挂念她，让她在外面好好吃饭，保重身体。楚玲告诉他外面朋友们都在积极营救他们。据他们说，董广平状态不错，和妻子谷书花有说有笑。<br>    据了解，二人对非法居留泰国一事已认罪，他们将会分别在11月21号、26号转送移民监 。姜野飞罚款5000泰铢，董广平罚款6000泰铢，因为偷越国境和超期滞留罚款数额有区别。<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl4.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    监狱的囚犯登记表，图中4973号是姜野飞，4974号是董广平<br>    <img src="http://www.boxun.com/news/images/2015/11/201511021736intl5.jpg" alt="姜野飞、董广平关押地查明：不在曼谷，家属已会见！"><br>    家属楚玲、谷书花和民主党曼谷负责人黎小龙，在监狱前合影<br>    <br><br><b>曼谷民运同仁呼吁捐款帮助二人家属，渡过难关</b><br>    <br>    二人家属表示，海外各界朋友为营救姜野飞、董广平二人做出了很多努力，在此表示感谢。在泰中国民主党负责人黎小龙说：不能让英雄流血又流泪，首先积极营救姜、董，同时妥善安置好他们的家人。他呼吁大家力所能及为落难二人家属捐款，帮助他们渡过难关。稍后将会公布捐款账号。<br>    总部在荷兰海牙的中国民主党海外委员会已响应他们的呼吁，执行主席陈忠和先生已和同仁在为落难者家属筹措捐款。<br>    <br><br><b>内部消息称：泰国移民局卫星定位抓人</b><br>    <br>    2015年10月28日13:00被移民局调查所卫星定位抓共5人（2人有8字头的泰国公民证，1人有中国护照签证不过期），到了移民局调查所放了3人。<br>    2015年10月29日14:00送上法院法庭《Dusit Kwaeng Court ศาลแขวงดุสิต》<br>    董广平认罪；非法入境、非法居留。法庭判罚款6000泰铢。<br>    姜野飞认罪；签证过期。法庭判罚款5000泰铢。<br>    然后送去监狱Detention House Of Pratumtani， 姜野飞25天，董广平30天。之后再送回移民局曼谷拘留所（IDC），等待走下个法律程序。<br>     <br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511021736" target="_new">支持此文作者/记者</a> <!--(Modified on 2015/11/02)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511020224061.jpg http://upload.bx.tl/news/temp13/201511020224062.jpg http://upload.bx.tl/news/temp13/201511020224064.jpg http://upload.bx.tl/news/temp13/201511020227251.jpg http://upload.bx.tl/news/temp13/201511020224063.jpg--> 2561735       
 <hr>
 <table width="620"><tr><td>
 <b></p>
