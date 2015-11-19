@@ -19,6 +19,100 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511190755.shtml" target="boxun-mirror">香港书商桂明海女儿收到短信确为其失踪期间所发请看博讯热点：打压媒体和记者</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>香港书商桂明海女儿收到短信确为其失踪期间所发<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511190755" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      香港书商桂明海妻子、女儿收到的电信确为失踪期间桂明海所发<br>
+    <br>
+     【博闻社独家】瑞典籍香港书商桂民海（阿海），在泰国神秘失踪，其出版社三名员工则在深圳被抓。阿海妻子称曾经接到阿海电话，而桂民海的女儿收到父亲一个“奇怪讯息”，内容指过了一笔钱到她银行帐户。据泰国方面的知情人称，阿海发给妻子和女儿的电话和信息确实为阿海所发，同时告知阿海已经在11月13日与其他五名人员被遣返回中国。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    桂明海所住的泰国芭提雅公寓名叫Silver Beach （银海滩）。据其物业经理介绍，桂明海所住17D业主于10月17日，同一名讲中国话男子离开公寓后，就再也没有回来过。据消息人士的信息，桂明海此时已经被抓，秘密关押在泰国政府移民监狱内，并未被遣返。<br>
+    <br>
+    该消息人士还透露，阿海被捕以后一方面担心自己的人身安全，另一方面担心资料被盗以及妻女以及财产安全。幸得一位西籍的人士秘密帮助，帮助阿海与妻子女儿沟通。同时为了保护帮助者，阿海在相关信息中没有透露自己被关押。<br>
+    <br>
+    消息人士指，11月13日与阿海一起同机被遣返的还有联合国难民姜野飞与董广平两位人士。海外对姜野飞与董广平两位人士救援虽然已经失败，但是，姜野飞妻子楚玲、董广平妻子谷书华、女儿董雪瑞却于曼谷时间11月18日被营救搭机前往加拿大多伦多。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_41236.html">香港书商桂明海妻子、女儿收到的电信确为失踪期间桂明海所发</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511190755" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3220755       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511190757.shtml" target="boxun-mirror">《香港晨报》金主蒯辙元被控诈骗因得罪张晓明</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>《香港晨报》金主蒯辙元被控诈骗因得罪张晓明<br><font color="#000fC0">(<small>博讯北京时间2015年11月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511190757" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】曾在香港传媒体界引起风波的《香港晨报》幕后搞手蒯辙元，被内地公安从斐济“跨国拘捕”回国一年后，即将在珠海市中级人民法院开审，罪名是涉嫌诈骗。据了解本案不但涉及中联办前文宣部长郝铁川，更可能涉及中联办主任张晓明；消息指蒯被捕前曾举报张晓明违纪涉贪。本案因案情敏感，未知法院是否会公开审理。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    知情人士对本社透露，持有澳洲身份的蒯辙元是去年5月初在斐济中共当局跨国追捕的，当时他正以幕后金主身份筹办《香港晨报》；最终被内地受害人举报他借名行骗，因而向公安报案，其被捕罪名是涉嫌诈骗；落网之后一直关在珠海，内地公安部门经过近一年半调查侦察，案宗早前已移送检察院，进入审查起诉阶段，预计很快将提交法院审理。<br>
+    <br>
+    有关蒯辙元涉诈骗被内地公安拘捕一事，去年五月香港曾轰动一时，媒体多有报道，因事件累及正在筹备之中的《香港晨报》胎死腹中，「出师未捷身先死」，200多名参与筹备的员工受累，事件还惹出该报筹备的高层人士被人追斩受伤事件。<br>
+    <br>
+    消息人士透露，外界有所不知的是，本案远非蒯辙元借香港办报之名在内地坑蒙拐骗那么简单，而且还涉及中央人民政府驻香港联络办(中联办)；时任中联办文宣部部长郝铁川因为深度介入蒯「投资办报」之事，全力相助，本以为有功，岂料陷入骗局，有口难办，惹祸上身。<br>
+    <br>
+    蒯案东窗事发后，中联办主任张晓明怒将郝铁川赶回上海，可怜的郝部长来港前贵为大学教授、华东政法学院副院长、上海市委宣传部副部长，官居正厅级，本来仕途大好，以为来港镀金三五年，回去拿个副部级，殊料被蒯骗子拖落水，惹来一身骚，回上海后不但升官无望，连教鞭亦无法再执，只能屈就出任上海文史馆长位。<br>
+    <br>
+    消息透露，蒯辙元作为与内地政坛千丝万缕、背景复杂人士，其被捕还与中联办主任张晓明有关。知情者透露，蒯曾实名举报张晓明涉贪腐问题，包括出席商家活动滥要「赞助」，从几十万到几百万不等；他为商家题字也公开索酬，有的高达千万元。<br>
+    <br>
+    消息透露，正因为上述缘故，蒯辙元打着中联办名义办所谓《香港晨报》到处行骗被揭发后，张晓明怒不可遏，一面处罚赶走郝铁川，一面向上告状，据悉状纸递到了中共政治局常委、全国人大委员长张德江台面。消息指最终蒯啷铛入狱、面临重判，与中联办主任张晓明「告御状」不无关系。<br>
+    <br>
+    现年47岁的蒯辙元南京人，持澳洲护照，据悉背景复杂。据内地百度百科收录，他有研究生学历，曾任港澳发展战略研究中心主任、国际战略研究会常务副会长、中国社会科学院特约研究员、北京大学传播与文化研究所专家、研究员。<br>
+    <br>
+    曾任全国青年联合会常委、中共中央国家机关青联副主席，全国高级党政干部著作编辑出版委员会副主任，中国法学会会员、海峡两岸法学交流促进会常务理事，中国国际跨国公司研究会副会长，中国管理科学研究院教授、学术委员会副秘书长等。<br>
+    <br>
+    主要贡献：长期从事理论研究与写作、行政、管理、编辑出版工作，主要参加决策管理等社科项目的研究，获得过中国科技论坛一等奖，全国诗歌大赛特等奖，中国青年论坛一等奖。<br>
+    <br>
+    主要作品包括《长征前后的邓颖超》、《康克清传奇》、《荣毅仁小传》；专著《风范长存天地间》、《民族之光》、《世纪之交的求索》、《危机下的中国》、 《崩溃边缘》、《中国大转型》、[ 《中国战略纵横论》等数百万字的著作。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_41190.html">《香港晨报》金主蒯辙元被控诈骗因得罪张晓明</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511190757" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3550757       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511180710.shtml" target="boxun-mirror">中民投主席董文标拒归国金融大鳄成海外流亡者？请看博讯热点：反腐打老虎</a>
 </h2>
 <p><tr>
@@ -889,97 +983,6 @@
 <b></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2015/11/201511032234.shtml" target="boxun-mirror">中石化高层集体淫乱背后的腐败：顶风作案仍不收手请看博讯热点：情妇反腐</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中石化高层集体淫乱背后的腐败：顶风作案仍不收手<br><font color="blue" size="2">请看博讯热点：<a href="/hot/qingfu.shtml">情妇反腐
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201511032234" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     《博讯》杂志十一月号独家刊登一个发生于中石化内部高层淫乱的真实故事，中石化的员工早就听闻，而且在一个个公共情妇的背后，确实掩盖着许许多多、十分丑恶的腐败现象！至今如此，顶风作案。<br>
-    <img src="http://www.boxun.com/news/images/2015/10/201510301250china1.jpg"><br>
-     当年由于苏树林、傅成玉、王天普历届高层的庇护，有这样一大群腐败分子盘踞在各个要害岗位上，集团副总兼香港公司董事长张建华、董事、高级副总裁兼财务总监戴厚良都是其中一份子。他们通过中石化香港公司的负责人张为在华东、华南、香港、新加坡输送利益大肆捞钱，二张狼狈为奸互相利用，对燃料油业务一手遮天，据为己有，中饱私囊，严重损害国企利益，与某些上市公司勾结，转移资产。令香港公司一年就蒙受了数十亿的损失，还有巨额资金不知去向。他们巳成为贪得无厌的硕鼠和蛀虫。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    在香港公司前一把手张国强被香港法院判刑后，中石化香港公司在仍然被廉政公署监控调查近一年的情况下，仍对各项反腐工作置若罔闻，仍不收手，胆大妄为，以身试法。中化石集团对被廉政公署调查的与张国强案有关的嫌疑分子既不跟进调查也不处理，更有甚之的是中纪委巡查组对中石化巡查后明令要求中石化香港辞退所有中石化司局级以上干部安插在公司各个岗位的子女，但是他们就是顶住不执行。让员工感觉一头雾水，到底他们哪里来这么大的胆子？！<br>
-    <br>
-    读读这期杂志的内容就能想象出，一伙没有了道德底线的人还有什么坏事干不出来！
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201511032234" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
-<!----> 2862234       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511020105.shtml" target="boxun-mirror">江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511020105" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      江西省上饶市鄱阳县饶埠镇詹家村等多条村庄，长期遭受相邻的万年县石镇工业园内多家化工厂排放的毒气毒水污染，导致村民出现呕吐胸闷、皮肤红斑等中毒现象，一些受污染严重的村民已患上癌症，境内的乐安河大量鱼虾被毒死，村民多次抗议无果。<br>
-    <br>
-    周日（11月1日），受污染比较严重的多条村村民发起联合示威，上午8点左右，上万村民手持“全民行动拒绝污染、重污染有毒化工企业滚出去”等横幅，游行到万年县石镇工业园，要求园内的污染工厂搬离。<br>
-    <br>
-    村民“遗忘”发帖说：原因是因万年县七八家化工厂排污水，放毒烟引起村民身上皮肤病，农作物死亡，小时候放牛可以在河边喝水，现在严重污染。部分靠的比较近的村民得癌症，学校学生身上长满了皮肤病，河流鱼大量死亡。老百姓多次和政府沟通，但没有效果。<br>
-    <br>
-    期间，愤怒的村民砸毁了部分工厂设备，欲强行拆除有毒工厂，与数百警察发生激烈冲突，一度遭警察使用催泪弹驱逐并开枪镇压，导致多名村民受伤。<br>
-    <br>
-    村民“陶笑xiao”发帖说：老人只是想要喝干净的水，去投诉就招警察开枪，原来枪是用来打这么无辜的老人，用棍子打破老人的头，用枪刺穿老人的胸膛，用催泪弹刺激老人让老人流泪，他们只是简单讨个理想，要以前的生活喝着干净的水，招来这样的回击。<br>
-    <br>
-    另一名村民“啥。得”说：万年干部为一己之私利于乐安河的老百姓而不顾，建有毒化工厂，今天老百姓举行万人大游行，可恶政府向手无寸铁老百姓开枪了，真是丧尽天良！<br>
-    <br>
-    网络图片显示，大批的村民聚集在工业园区门口、政府门口以及附近的街道上，到处是警察释放催泪弹发出的浓烟，一些村民受伤被送入医院。在一段视频中，警察向聚集在一栋大楼门口的村民连续施放了数枚催泪弹，现场浓烟滚滚，喊声一片。<br>
-    <br>
-    村民“雨中飘荡的回忆”发帖说：狗屁政府竟然出动防暴大队，开枪，用棍打伤百姓，贪污，受贿无处不在，真是官字两个口。万人游行，场面很乱。<br>
-    <br>
-    当地政府当天中午发布公告称，村民打砸工厂并造成一名警察受伤。至当天下午，村民发布到网络的一些信息已遭到删除，未有村民透露是否有村民遭到抓捕。<br>
-    <br>
-    （网络图片）<br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511020105china1.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"><p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511020105china2.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511020105china3.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511020105china4.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511020105china5.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511020105china6.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511020105china7.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"></p>
-<p><br>
-    </p>
-<div align="center"><img src="http://upload.bx.tl/news/temp13/201511010942014.jpg" width="500"></div>
-<br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511020105china9.jpg" alt="江西鄱阳万人游行强拆有毒工厂遭警察开枪镇压多人伤"><p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511020105" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511010941351.jpg http://upload.bx.tl/news/temp13/201511010941352.jpg http://upload.bx.tl/news/temp13/201511010941353.jpg http://upload.bx.tl/news/temp13/201511010941354.jpg http://upload.bx.tl/news/temp13/201511010942011.jpg http://upload.bx.tl/news/temp13/201511010942012.jpg http://upload.bx.tl/news/temp13/201511010942013.jpg http://upload.bx.tl/news/temp13/201511010942014.jpg http://upload.bx.tl/news/temp13/201511010942011.jpg--> 300105       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
 </p>
 <table>
     <tr>
