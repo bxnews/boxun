@@ -56,7 +56,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 29分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511190757.shtml" target="boxun-mirror">《香港晨报》金主蒯辙元被控诈骗因得罪张晓明</a>
 </h2>
@@ -111,7 +111,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 29分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511180710.shtml" target="boxun-mirror">中民投主席董文标拒归国金融大鳄成海外流亡者？请看博讯热点：反腐打老虎</a>
 </h2>
