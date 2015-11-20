@@ -19,6 +19,51 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511201136.shtml" target="boxun-mirror">香港出版商阿海被遣返当局将追究其出版物作者</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>香港出版商阿海被遣返 当局将追究其出版物作者<br><font color="#000fC0">(<small>博讯北京时间2015年11月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511201136" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】本社获悉，瑞典籍香港出版商桂民海（阿海)在泰国疑被中共秘密警察跨国诱捕后，于上周五被中共以专机遣返中国，显示本案非同寻常，中共已从阿海的电脑中，掌握了所有跟阿海有稿件来往的中港作者名单，有关人士呼吁作者当保重。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    据知情人透露：上周五，香港专门出版中共政治禁书的出版商桂民海（阿海）和其他四人被泰国当局移送中国政府秘密警察用专机正式遣返回大陆。<br>
+    <br>
+    阿海10月中旬被秘密警察伙同当地人从曼谷寓所带走后，之后阿海的电脑曾经在11月3日被中国秘密警察在帕提亚的寓所里拷贝，里面的资料应该全部暴露。<br>
+    <br>
+    据跟阿海合作的知情人透露，阿海的电脑里应该有分布在世界各地包括中国大陆的写作者（投稿者）的信息，甚至还可能有稿费转账资料，目前这些人都将面临严重的威胁。<br>
+    <br>
+    另据其他渠道的消息说，阿海十年前在大陆有一个未结的交通肇事案，中国政府非常可能使用这个借口遣返并羁押阿海，阿海短时间内获得救援离开中国的前景将非常暗淡。<br>
+    <br>
+    如果阿海长期被羁押甚至入狱，就会给中国方面提供捏造其他罪证的机会，甚至牵连其他写作者被控“窃取情报”之类的罪名连带入狱。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_41279.html">香港出版商阿海被遣返 中国当局将追究其出版物作者</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511201136" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 261136       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511190755.shtml" target="boxun-mirror">香港书商桂明海女儿收到短信确为其失踪期间所发请看博讯热点：打压媒体和记者</a>
 </h2>
 <p><tr>
@@ -945,39 +990,6 @@
     http://www.boxun.com/news/gb/intl/2015/11/201511031804.shtml#.Vjx9WfkrLIU<br>
      
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511061824" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1901824       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511060242.shtml" target="boxun-mirror">刘云山之子刘乐飞并未被调查，与中信证券无关请看博讯热点：刘云山</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>刘云山之子刘乐飞并未被调查，与中信证券无关<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liuyunshan.shtml">刘云山
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511060242" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【博闻社综合】近日，多家海外中文媒体相继报道刘云山之子刘乐飞被停职审查、双规、其亲信疑涉违法交易被捕等文章，指中信产业投资基金管理有限公司董事长兼首席执行官、中信证券董事兼副董事长刘乐飞因金融腐败被调查，甚至已被双规，金融界人人自危。其实，从今年8月中信证券高管徐刚等人被查开始，就有传闻此事与刘乐飞关联。而据中信集团的高层透露，刘乐飞目前一切正常，中信证券高管被调查一事与其并无关系。<br>
-    <br>
-     刘乐飞1973年出生，自2014年3月起担任中信证券副董事长。刘乐飞在中信证券任副董事长职务，是根据法律规定做出的制度安排。中信产业基金是中信证券的大股东，刘乐飞作为中信产业基金的董事长兼CEO，理应兼任中信证券副董事长，但他并不参与中信证券的任何决策，中信产业基金与中信证券是两个完全独立的实体。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    <a href="http://bowenpress.com/news/bowen_38455.html">刘云山之子刘乐飞并未被调查</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511060242" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 270242       
 <hr>
 <table width="620"><tr><td>
 <b></p>
