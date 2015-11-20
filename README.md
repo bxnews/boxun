@@ -19,6 +19,60 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511201218.shtml" target="boxun-mirror">马云收购南早已到最后阶段中共借阿里打造监控大网络</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>马云收购南早已到最后阶段 中共借阿里打造监控大网络<br><font color="#000fC0">(<small>博讯北京时间2015年11月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511201218" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->          【博闻社独家】本社获悉，中国首富马云旗下阿里巴巴集团收购香港英文《南华早报》，有关谈判目前已到最后阶段，该收购不但是马云欲建构庞大传媒帝国的一步，也符合北京有关当局要进一步抢夺香港媒体话语权的战略构思。有消息指，中共还要利用阿里巴巴大数据库和影响力，构建一个监控社会的庞大机器。<br>
+        <img src="http://www.boxun.com/news/images/2015/11/201511201213china1.jpg" alt=" 马云收购南早到最后阶段 中共借阿里打造监控大网络"><br>
+         马云收购郭鸿年的南华早报，已到最后关头 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+        本月初，英文中国日报曾简讯披露阿里巴巴收购《南华早报》的消息，连南早官方微博也同一天迅速转发了有关报导，尽管中国日报随后删除了报道，但马云在接受媒体采访问及时，并没有否认有关消息。<br>
+    <br>
+        知情者告诉本社，有关的收购谈判现在已经到了最后的地步，《南华早报》被收入阿里巴巴囊中，几乎已是铁板钉钉。马云拿下南早，不仅是为满足其打造传媒帝国的需要，更符合北京当局进一步争夺香港舆论话语权的目标，因而得到北京当局的背后支持和祝福。<br>
+    <br>
+        <img src="http://www.boxun.com/news/images/2015/11/201511201213china2.jpg" alt=" 马云收购南早到最后阶段 中共借阿里打造监控大网络"><br>
+        南华早报是香港影响力最大的英文报纸<br>
+    <br>
+        阿里近两年的投资一直在加强对媒体的布局，从2013年入股新浪微博开始，到如今阿里系力量已投资科技媒体虎嗅、36氪以及财经媒体第一财经，华数传媒、无界新闻、封面传媒等等。<br>
+    <br>
+        此外，阿里巴巴正在与国内互联网最大的新闻综合门户之一新浪洽谈收购事宜。有报导指，马云的新目标还包括新浪微博、光线传媒(Enlight Media)、华谊兄弟、中国商务集团(China Business Network, CBN)，以及优酷、土豆网等。<br>
+    <br>
+        有报道指，马云对南早的收购不仅止于经营权转换，整个南早的编辑团队也随之大换血。媒体已披露，与北京关系密切的南早副总编谭卫儿将从2016年1月1日起接替现任总编辑王向伟，而南早在过去半年至少有36位员工离职，出现“大逃亡”情况。<br>
+    <br>
+        由于南早曾在2013年对马云的专访中，报导马云支持邓小平在「六四天安门事件」中镇压学生的决定，引发外界极大的争议，这使得马云收购南早之举更显得玩味。<br>
+    <br>
+        知情者还指，北京当局还有一项重大战略，要利用阿里巴巴的数据库和影响面，构建一个庞大的信息监控网络。目前，阿里巴巴的商业大数据是全中国第一，阿里巴巴的「智慧城市」通道是淘宝、支付宝和新浪微博，市民可以通过这些App查询和办理医疗、社保、违章罚款、户政、出入境等政务服务。当局计划，要利用阿里的数据库，成为监控追踪民众的工具。北京当局极其重视阿里巴巴。<br>
+    <br>
+        香港回归中国18年来，媒体生态已经发生巨大变化，电视台，报纸纷纷被北方来的资本然红，近年互联网崛起，又有神秘的资金到香港投资新闻网站，加上不断有香港新闻人，新闻机构被中共当局以各种罪名诱到内地判刑、打压，有舆论形容，香港媒体和新闻出版正面临前所未有的红色恐怖。<br>
+    <br>
+        根据虎嗅报导，尽管近年来，南早因为拥有者郭鹤年、郭孔演父子将家族生意瞄准中国，在报导上为郭氏家族保驾护航，更在曾任吉林省政协委员的现任总编王向伟的主导下，亲北京倾向日益明显，但如果阿里巴巴拿下南早，更符合北京利益。<br>
+    <br>
+        毕竟，由内地出身的中国人来经营，或许总是比出身马来西亚华裔、长居香港的郭氏家族要更令正日益收紧中国言论的北京感到放心。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511201218" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4601218       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511201136.shtml" target="boxun-mirror">香港出版商阿海被遣返当局将追究其出版物作者</a>
 </h2>
 <p><tr>
@@ -935,61 +989,6 @@
     <br>
     本系列报道博讯将会不断跟进。
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511060853" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 400852       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511061824.shtml" target="boxun-mirror">确认：中共已替姜野飞董广平缴罚金，紧急联络接收国请看博讯热点：抗议示威</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>确认：中共已替姜野飞董广平缴罚金，紧急联络接收国<br><font color="blue" size="2">请看博讯热点：<a href="/hot/protest.shtml">抗议示威
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511061824" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->                                李 方<br>
-    <br>
-     联合国难民署官员说：中共替姜野飞董广平交了罚金 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       今日下午得到消息，联合国难民署官员约谈姜野飞妻子楚玲，和董广平妻子谷书花，明确告诉他们：“中共已经在今天上午替姜野飞董广平缴纳了罚金，因此，现在他们二人随时有被引渡危险。”<br>
-    <br>
-    难民署火速批准姜野飞董广平家属难民身份<br>
-    与此同时，难民署启动紧急措施，于今天下午，快速批准了楚玲、谷书花和女儿董雪睿的难民身份，为第三国接收他们扫清了障碍。<br>
-    难民署官员说，他们也在紧急联络接收国，接收他们。<br>
-    楚玲告诉记者：“今天下午，我在联合国难民署泰国办事处门口举牌，要求救助我丈夫，UN官员将我叫进去，在办公室和我正式谈话，并且有翻译。翻译明确说，中共已经在今天早上替我丈夫和董广平交了罚款。难民署官员说，他们也很紧张，正在紧急运作。随后，递给了我难民证，我被快速批准了。官员还说，要我们尽快筹集每人5万泰铢的保释金，将二人保释出来。官员说，他们关在移民监狱里，难民署不能保证他们的安全。”<br>
-    “现在，筹集这5万泰铢保释金是个大麻烦。”楚玲对记者说。<br>
-    记者同时拨通谷书花电话，正是她也在今天下午和女儿一起获批难民身份。“今天下午难民署通知我很女儿，给了我们难民证。现在5万泰铢保释金和联系接收国，是最大的问题。”谷书花说。<br>
-    <br>
-    呼吁紧急捐款，帮助姜野飞董广平缴纳保释金！<br>
-    姜野飞、董广平现在继续每人五万泰铢（约合一万元人民币）保释金，难民署官员说，他们在移民监狱里面很难保证安全，保释出来等待接收过安置，相对会安全些。目前，他们的家属已经开通了捐款账号，紧急呼吁各方同仁，积极帮助捐款。<br>
-    账户持有人：楚玲、谷书华；账户监管人：黎小龙、颜伯钧、杨崇；账户资金专款专用，实行月报表定期公开，希望全社会监督。<br>
-        Account Name:MRS.GU SHUHUA（账户名称：古书花）<br>
-        Account No.1540092178（账号：1540092178）<br>
-        SWIFT CODE:KRTHTHBK<br>
-        ADDRESS:KRUNGTHAI BANK PCL THAILAND<br>
-         TALHADNOI BRANCH(200154)<br>
-         1976 KAOLHAM RD. TALHADNOI, SAMPANTAWONG,<br>
-         BANGKOK 10100 THAILAND <br>
-         BANK TEL. +6622364866-7(银行电话)<br>
-        姜野飞夫人楚玲电话：+66955809380<br>
-    <br>
-    http://www.boxun.com/news/gb/intl/2015/11/201511031804.shtml#.Vjx9WfkrLIU<br>
-     
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511061824" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1901824       
 <hr>
 <table width="620"><tr><td>
 <b></p>
