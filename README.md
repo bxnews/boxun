@@ -71,7 +71,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511201136.shtml" target="boxun-mirror">香港出版商阿海被遣返当局将追究其出版物作者</a>
 </h2>
@@ -116,7 +116,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511190755.shtml" target="boxun-mirror">香港书商桂明海女儿收到短信确为其失踪期间所发请看博讯热点：打压媒体和记者</a>
 </h2>
