@@ -714,7 +714,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11天前</small>
+	<small> ============== 12天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511090839.shtml" target="boxun-mirror">蔡军取代传闻跳楼的刘子荣任总参空管局局长</a>
 </h2>
