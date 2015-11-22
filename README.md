@@ -19,6 +19,39 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511221346.shtml" target="boxun-mirror">习近平访美评估报告爆光邓小平以来最失败的一次请看博讯热点：习近平访美</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平访美评估报告爆光 邓小平以来最失败的一次<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511221346" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】由中共中央外事工作领导小组主持整理的“习近平主席对美国国事访问效果评估报告”部份内容爆光。报告显示，此次访问虽取得预期效果，但存在重大漏洞和疏忽，其中习近平被美方当面质询三件事，一是纽约法院受理中国访民起诉习；二是中国国内打压律师；三是黑客攻击；事件令习颜面大失，迁怒外交部。习这次访美，可能是自邓小平以来四代中共最高领导人访美最失败的一次。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    接近中南海的人士对本社透露，今年9月底习近平对美国的访问，和10月下旬对英国的访问，在中共内部被视为今年外交的重头戏，外交部早在一年前就开始准备，与美、英有关部门协商沟通，特别是访美行程，驻美大使崔天凯堪称费尽心机、呕心沥血，与白宫和美国国务院讨论落实个一个细节。<br>
+    <br>
+    在出访日期快到，看到美方仍不就网络黑客窃密问题梗梗于怀，中方又匆匆派出两位分管外交和安全的国务委员杨洁</td></tr></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511201218.shtml" target="boxun-mirror">马云收购南早已到最后阶段中共借阿里打造监控大网络</a>
 </h2>
 <p><tr>
@@ -67,6 +100,34 @@
     <br>
         毕竟，由内地出身的中国人来经营，或许总是比出身马来西亚华裔、长居香港的郭氏家族要更令正日益收紧中国言论的北京感到放心。
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511201218" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4601218       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2天前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511201138.shtml" target="boxun-mirror">视频曝光：四名男子进入香港出版商桂民海的公寓请看博讯热点：打压媒体和记者</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频曝光：四名男子进入香港出版商桂民海的公寓<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511201138" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    【博闻社独家】香港著名出版商阿海（桂民海）10月17日最后一次出现在泰国的公寓，博讯网日前公布了其离开时的视频，本社刚获得了阿海最后一次停车，以及11月3日四名男子进入阿海公寓的视频。视频显示，其中一名戴帽子的男子应该是此次行动的领导。<br>
+    <br>
+    此前博讯报道四名男子在阿海房间呆了2小时，最新信息显示，他们在房间呆了大约半小时。<br>
+    <br>
+    博闻社今天稍早披露，阿海失踪后被泰国秘密关押在IDC（移民监狱），直到11月13日，阿海和姜野飞、董广平以及另外两人被遣返中国。整个过程看，泰国政府直接参与了绑架、关押和配合北京非法遣送。<br>
+    <br>
+    <iframe width="500" height="281" src="https://www.youtube.com/embed/B0hN0RZMW8Y" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="500" height="281" src="https://www.youtube.com/embed/6RJCpjJA5dc" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_41281.html">视频曝光：四名男子进入香港出版商阿海（桂民海）的公寓</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511201138" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2641138       
 <hr>
 <table width="620"><tr><td>
 <b></p>
@@ -910,90 +971,6 @@
 <b></p>
 <p>
 	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511062028.shtml" target="boxun-mirror">消息证实：香港出版商阿海被从泰国绑架回国！请看博讯热点：打压媒体和记者</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>消息证实：香港出版商阿海被从泰国绑架回国！<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511062028" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->                     李 方<br>
-    <br>
-    今天，根据可靠消息来源证实，已经失踪两周的瑞典籍香港出版商阿海（桂民海），确实被中共从泰国境内绑架回国。一同被抓的有四人，另一人吕波，其他两人目前不知姓名，他们是阿海在香港出版公司的员工，均是在深圳被抓。<br>
-    此前，来自泰国和香港的消息，已经在猜测阿海失踪缘于中共绑架。今天的消息来源更进一步证实此事属实，但是消息来源要求不得透露来自何方，以免被中共扣上泄密或刺探情报罪名。<br>
-    阿海在泰国芭提雅有一处公寓，估计是在这里居住期间被盯上和带走。如果阿海被弄回国内，预计会被扣上间谍罪的帽子，判刑。<br>
-    昨日博讯曾有消息报道此事。<br>
-    桂明海（阿海）北大毕业后到德国留学，后入籍瑞典。近年到香港创办一些出版社，专门出版政治书籍；还与人合作创办巨流发行公司，并于去年收购了铜锣湾书店。阿海等出版的书籍遍布在尖沙咀、旺角、北角、铜锣湾的报摊。阿海为瑞典国籍，还有消息称，阿海创办的巨流发行公司和铜锣湾书店的吕波等三名员工，已在深圳被抓。<br>
-    阿海数年来在香港出版了一些政治类图书，以揭露中共贪腐内幕和北京高层内斗为卖点，一些图书经过游客之手传到了国内。其中也不乏写到习近平等现任中共领导人黑幕的。据香港出版界人士认为，这些所谓的揭露黑幕，也许刺伤了现任领导层，是阿海被从泰国绑架的主要原因。<br>
-    这是中共近年来又一次跨境政治绑架。以前较为著名的是王炳章。泰国这边曾经绑架了一个不知名的大陆异议人士王一鸣。<br>
-    对于香港出版界，2013年10月香港晨钟书局总编辑姚文田在深圳被抓，后被以偷运化学品的“罪名”判监10年。 2014年5月30日，《新维》、《脸谱》杂志老板王建民被深圳市公安局抓捕。种种迹象表明，北京当局已经多方位对香港出版业人士进行打压。<br>
-    据传，最近中共国安部门出版了一本污蔑海外民运界的书，其中就有一节专门写到了桂民海。如下：<br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511062028intl1.jpg" alt="消息证实：香港出版商阿海被从泰国绑架回国！"><p><br>
-    书名《婆娑谍影》<br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511062028intl2.jpg" alt="消息证实：香港出版商阿海被从泰国绑架回国！"></p>
-<p><br>
-    第九个是桂民海<br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511062028intl3.jpg" alt="消息证实：香港出版商阿海被从泰国绑架回国！"></p>
-<p><br>
-    写桂民海的一节<br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511062028intl4.jpg" alt="消息证实：香港出版商阿海被从泰国绑架回国！"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511062028" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511060521381.jpg http://upload.bx.tl/news/temp13/201511060521382.jpg http://upload.bx.tl/news/temp13/201511060521383.jpg http://upload.bx.tl/news/temp13/201511060521384.jpg--> 4882028       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511060853.shtml" target="boxun-mirror">中石化更多黑幕：新旧高层勾结、巨额资金流失请看博讯热点：反腐打老虎</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中石化更多黑幕：新旧高层勾结、巨额资金流失<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511060853" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     《博讯》杂志11月号独家曝光中石化高层淫乱、腐败，引起业界关注，博讯接连收到更多资料，令人震惊的更多黑幕将逐渐揭开。<br>
-    <br>
-     最新信息显示，10月15日，中国石化集团公司在海南洋浦组织召开中石化（香港）海南洋浦成品油保税库建设项目问题整改工作现场会，声称要进一步贯彻落实中央巡视组反馈意见，加大整改力度，强化责任追究，发挥警示作用，推进全面从严治党、从严治企，为企业持续健康发展提供坚强保障。与会者观看了《查处洋浦成品油保税库建设项目违纪违法系列案件纪实片》，对相关违规违纪违法问题查处情况进行了通报，十建公司 、中石化 （香港）公司、工程部、集团财务部、炼化工程公司等5家单位做了表态发言。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    但是他们没有公开的一个秘密就是，这是一个根本不应该投资的项目！完全是苏树林当政时期，为他及家人谋取私利而度身定做的项目，由时任香港公司的一把手张国强〔巳因受贿罪被香港法院判刑〕具体实施执行的。所以这不是一个仅仅是投资失误的项目，从开头就注定是一个盗取国家财产的陷井，所有的工程都由苏的家人暗中包揽再转包。至今工程费用巳超支逾20亿。苏调任高升后，接任的傅成玉明知项目有问题却装聋作哑，继续投资支持，对张国强及有关人等给予庇护，自己也从中渔利。所以张国强最终是因在香港受贿被廉政公署拘捕，而非中石化主动采取措施，从而可见中石化高层是如何狼狈为奸的！<br>
-    <br>
-    消息称，还有以下至今未有处理的事项：<br>
-    广东石化的财务总监田杭良擅自挪用5000万美元给民企广东南方石油公司的肖亮平使用，所涉资金至今未能追回。但未闻任何处理措施，竟不了了之？<br>
-    <br>
-    集团财务总监戴厚良兼任香港中石化化工销售公司董事长，该化工销售公司的业务负责人竟内外勾结，开出信用证购货，而对方只使用假单椐兑现信用证，并无实质交货。导致近一亿美元的流失！至今亦未闻有任何的处理，又是不了了之？<br>
-    <br>
-    曾因张国强受贿案件而被香港廉政公署要求协助调查的中石化香港公司燃油公司负责人张伟，每年都令公司业务亏损3至5亿元。目前仍然消遥自在，视中纪委的禁令如无物。就在10月25日左右还使用公费在深圳东部华侨城打高尔球及吃喝玩乐。<br>
-    <br>
-    看看中石化集团的内部管理已经到了何等混乱的地步？对抗中央及中纪委的决心是如何之大！<br>
-    <br>
-    本系列报道博讯将会不断跟进。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511060853" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 400852       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
 </p>
 <table>
     <tr>
