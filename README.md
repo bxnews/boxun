@@ -58,7 +58,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511231334.shtml" target="boxun-mirror">民运人士纪念胡耀邦诞辰100周年座谈会在纽约举行请看博讯热点：六四</a>
 </h2>
@@ -83,7 +83,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511221346.shtml" target="boxun-mirror">习近平访美评估报告爆光邓小平以来最失败的一次请看博讯热点：习近平访美</a>
 </h2>
