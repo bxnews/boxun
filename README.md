@@ -19,6 +19,40 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511240027.shtml" target="boxun-mirror">视频：纽约好友追思宪政学者于浩成的不平凡人生</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：纽约好友追思宪政学者于浩成的不平凡人生<br><font color="#000fC0">(<small>博讯北京时间2015年11月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511240027" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     于浩成更多文章请看<a href="http://blog.boxun.com/my-cgi/post/display_all.cgi?cat=yuhc">于浩成</a>专栏<br>
+     <br>
+    <br>
+    2015年11月20日，在纽约的于浩成部分好友集会，追思刚刚去世的中国杰出的宪政学家于浩成先生。<br>
+    <br>
+    律师李进进回忆起当年在密西根大学与于浩成相处的日子，他说于先生是一个传统的知识分子，有学问有风度，师母也是一个很有礼貌的人，每次请客宴请于先生之后，师母总是在隔天送一些礼物过来答谢。<br>
+    <br>
+    明镜新闻集团总裁何频谈到于先生时显得非常激动，他回忆当年去北京拜见于先生时，先生设家宴，用一道炒腊肉来犒劳这位湖南新闻才子。在于先生和戈杨先生两位前辈的引荐下，何频认识了大批中国最杰出的思想家和作家，这对何频以后毅然走上新闻救国的道路起到了重要的作用。<br>
+    <br>
+    前中国人权组织主席刘青回忆与于浩成相处的日子感慨地说，于浩成先生表面看是一个很随和的人，但是他是一个敢说敢当的有脊梁的好汉，在他刚刚出狱不到一个月，就毅然决定担任海外中国人权组织的理事，这是需要冒极大风险的，但是于先生是义无反顾，这使得我们海外同仁钦佩不已。<br>
+    <br>
+    明镜集团执行总编陈小平曾经与于浩成一起共事过，他回忆当年自己要举办一次宪政报告会，在会议经费筹集困难时，经人介绍找到于先生，于先生时二话没说就给了陈小平3000元，这在当时是一笔不小的开支，于先生对于晚辈的支持和提携是毫无保留的，陈小平也感谢于老给他出国深造撰写了一份重要的推荐信，以后在美国一起创办《中国司法观察》时，于先生给了陈小平太多的帮助，帮助这位后辈迅速成长。<br>
+    <br>
+    王军涛回忆起于浩成办的《中国司法观察》，其中最大的一个案例就是起诉江泽民越权出卖中国主权一案，这件事在海外引起了很大的反响，也显示了于先生有胆有识，是一位勇敢的法学家。<br>
+    <br>
+    出席于浩成先生追思会的人士有：李进进，王书军，何频，陈小平，刘青，胡平，王军涛，陈创闯，张博树，张爱枚，唐元隽，西诺。<br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/6YISlb-OiCM" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    博讯记者西诺 纽约报道
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511240027" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 480027       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511232350.shtml" target="boxun-mirror">书商阿海未曾关押移民监狱，绑架回国可能性最大请看博讯热点：打压媒体和记者</a>
 </h2>
 <p><tr>
@@ -785,37 +819,6 @@
 <b></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511120556.shtml" target="boxun-mirror">紫禁来鸿：失势多病无心恋栈李克强十九大或让贤请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁来鸿：失势多病无心恋栈 李克强十九大或让贤<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511120556" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】十月底举行的中共十八届五中全会，总书记习近平披褂上阵，亲自为十三五规划建议做说明，破了过往多个五年规划建议都由总理做说明的惯例。这一罕见现象并没有足够引起外界关注。北京消息告诉本社，这其实对外释放一个重要的信号：现任总理李克强再度被边缘化；消息指，李克强患有心脏病、糖尿病等多种疾病，加上受习排挤已无心恋栈，极有可能在两年后的十九大时让贤，辞去总理一职。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    中南海知情者对本社表示，改革开放后历次中央全会商讨建议下一个五年规划，都是由时任政治常委、总理做说明，如十四届五中全会通过「九五」计划和2010年远景目标的建议，是李鹏做说明；十五届五中全会通过十五规划建议，是朱</td></tr></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
