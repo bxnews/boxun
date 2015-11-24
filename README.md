@@ -55,7 +55,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511240027.shtml" target="boxun-mirror">视频：纽约好友追思宪政学者于浩成的不平凡人生</a>
 </h2>
@@ -89,7 +89,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511232350.shtml" target="boxun-mirror">书商阿海未曾关押移民监狱，绑架回国可能性最大请看博讯热点：打压媒体和记者</a>
 </h2>
