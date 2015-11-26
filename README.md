@@ -19,6 +19,53 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511261008.shtml" target="boxun-mirror">军改会议争议延长习近平发狠话：谁反对改革谁下台请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>军改会议争议延长习近平发狠话：谁反对改革谁下台<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511261008" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    【博闻社独家】本社前(24)日独家披露，中共中央军委当日在军委大楼召开战区改革部署会议，正式宣告七大军区改四大战区方案。据了解，由于部份高级将领对改革存在不少看法，使这次会议解决思想问题成为重点，以至会议由预期一天半延长至三天，今天(26日)才结束。据悉习近平在会上发了狠话：谁反对军改，就是反对军队进步，谁就下台！<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       军方知情人士对博闻社透露，这次会议与会者全部是上将级高级将领，包括全体中央军委委员；四总部部长、政委；七大军区、第二炮兵、武警部队的司令和政委；国防大学和国防科技大学的校长、政委；军事科学院院长、政委等；囊括了中国军队现役上将及部份资深中将；是中国军队最权威的将领大聚集。<br>
+    <br>
+    军方消息指，有关的改革方案其实在会前大部份与会者拿到，而且在方案出台前已经过反复蕴酿、修改，开会第一天，军委主席习近平亲自动员，对这次军改的意义、作用再次解释一番，要求将领们以执行纪律的态度，贯彻执行好这次军改方案，但会议一开，方案往桌上一摆，仍然有不少将领提出「不同看法」。<br>
+    <br>
+    表面上，这些将领的看法都不是反对军改，而是一开始就表态支持改革，但是「希望改革更稳妥、方案更周全，细节更可行」，而且这些意见据称都是将领们「经充分调研、收集而得」，以致于经习近平主席同意后，决定会期延长，原定会期一天半，24日上午开幕，25日上午结束，延迟至26日(今天)才结束，时间整三天，比原先多一倍。<br>
+    <br>
+    知情人士对博闻社指，对军改方案有看法的，包括军委第一副主席范长龙。至昨天为止，范副主席还没有在这次军改会议上发言表态。而过去几天范曾接待多个到访的外国军事代表团，包括会前一天接见到访的老挝军事代表团谈出售军火，情绪似乎都不是很佳。博闻社早前曾披露，范曾亲自上书习近平和中央军委，希望延后军改方案实施时间，以便有时间更充做思想工作。<br>
+    <br>
+    公开的资料也显示，作为中央军委深化国防和军队改革领导小组副组长的范长龙，至今没有官方媒体和军队喉舌就这次军改公开表态，而排名第二的军委副主席许其亮，已先后在《解放军报》、中共中央喉舌《人民日报》发表署名文章，公开为这次军改摇旗呐喊、表态支持。<br>
+    <br>
+    军方知情人士对博闻社表示，在这次军改会议第一天习近平讲话中，没有点到任何人的名字，只是求与会高级将领们以身作则，服从大局安排，按执行纪律的要求，切实做好战区改革工作。 「但是据说习近平也发了一句重话：谁反对这次军队改革，谁就是反对军队进步，谁就下台！」消息透露，中共这次脱胎换骨式的军队改革，下月底正式推行，2020年结束。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_42954.html">军改会议因争议延长习近平发狠话：谁反对改革谁下台！</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511261008" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2041008       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511252146.shtml" target="boxun-mirror">中共正式承认遣返姜野飞董广平罪名“组织偷渡”请看博讯热点：打压媒体和记者</a>
 </h2>
 <p><tr>
@@ -849,49 +896,6 @@
     消息人士向博讯透露，倪岳峰13日被中央带到北京交代问题,无缘参加当天福建省九届十五次会议。据信，倪岳峰被调查和土地征收腐败有关。博讯网曾多次报道倪岳峰与原福州市委书记何立峰(现任国家发改委副主任)以及福建原省长苏树林大肆侵占农民土地，从中牟利。而厦门原国土局长“自杀”，让问题变得更为严重。
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511160928" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 750928       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511161259.shtml" target="boxun-mirror">流亡泰国民运人士姜野飞董广平疑被遣返中国</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>流亡泰国民运人士姜野飞董广平疑被遣返中国<br><font color="#000fC0">(<small>博讯北京时间2015年11月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511161259" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    <br>
-      博讯报道（11月16日），据某人权机构以及泰国移民监消息，10月28日被泰国警方抓捕的中国民运人士姜野飞和董广平疑似于2015年11月12日遣返中国。目前，两位当事人家属在联合国难民署（UN）门口等待来自UN的确认。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    据姜野飞妻子楚玲消息：12号晚上10点20分姜野飞和董广平他俩被带走。走时要求衣服鞋子都穿上，以往换房间不用穿鞋和衣服就可以，那天带人的气势不像是换房，而是另有目的。<br>
-    <br>
-    据楚玲说：以前关在15A房间的时候，有电话可以偷偷打出来和外面取得联系。但是换到5号房间之后，那里没有电话，只能是3天放风时打公用电话。<br>
-    <br>
-    楚玲据姜野飞狱友消息：姜野飞当时感觉不好，临走向狱友交代了很多话。但是，现在楚玲还不知道姜野飞对那个狱友说了些什么。<br>
-    <br>
-    据泰国移民监消息：移民监警察说姜董二人已被遣返中国，一同被遣返的有五人，除了姜董二人之外，另外三人身份情况不明。<br>
-    <br>
-    此前，联合国难民署（UN）一直让当事人家属保持低调，并且多次保证姜董二人不会被遣返中国，等候联合国难民署（UN）的协调。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511161259" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2351259       
 <hr>
 <table width="620"><tr><td>
 <b></p>
