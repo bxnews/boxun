@@ -19,6 +19,63 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/11/201511272328.shtml" target="boxun-mirror">孟建柱内部讲话：令计划现象使习近平寝食不安</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>孟建柱内部讲话：令计划现象使习近平寝食不安<br><font color="#000fC0">(<small>博讯北京时间2015年11月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511272328" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    来源：博闻社综合<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <small>孟建柱曝光习近平备受困扰的原因是令计划</small><br>
+    <img src="http://bowenpress.com/wp-content/uploads/2015/11/f143ccdd143143d143000e143f143143143143a143e143e143c14314314300143-300x248."><br>
+    <br>
+    中共总书记习近平上台三年来，经过一系列谋略行动，表面上大权在握，前程似锦，实际心力交瘁、疲态毕现。中共政治局委员、中央政法委书记孟建柱日前在一个内部会议透露，令习总备受困扰的不是反贪打老虎，不是复杂多变的中美、中日外交，而是前朝大内总管令计划；虽然令已落马收监，但其代表的政治道德和操守的堕落，在中共政治已根深蒂固，积重难返；这是让习最头痛的地方。<br>
+    <br>
+    最新一期《前哨》月刊透露，10月底中共十八届五中全会结束后，孟建柱抵江南某市检查政法工作“深化改革”落实情况，在一次干部会议的内部讲话中，无意透露了让习总书记备受困扰、疲态毕现的原因：其祸首并非反贪打老虎、繁重的党务、更非奥巴马或安倍晋三，而是前朝大内总管令计划。<br>
+    <br>
+    孟建柱在会上感慨万千地表示，中共建国60多年的历史，“政治生态从来未像现在这样复杂、这样难以捉摸。”孟随即以令计划为例，“他身兼中共中央办公厅主任，身为我党最核心的中央机构领导人，背负着全党，尤其是最高领导人的绝对信任，实际权力可以说是一人之下、万人之上。可是你们能想象得到吗？”<br>
+    <br>
+    <small>习近平月初访新加坡时，一脸疲态</small><br>
+    <img src="http://bowenpress.com/wp-content/uploads/2015/11/353535bad35a35b353535f03535e3535bbc35a35353535cd3535-300x169."><br>
+    <br>
+    孟建柱语带气愤地说：“60多年闻所未闻，身为党的中枢机构掌门人，中办主任，竟然把大量党和国家最高机密从档案中偷盗出来，私自收藏，最后弄到美国去了。可以肯定，这件事在他大权在握时就干的，2012年7月栗战书同志空降中办常务副主任，他的行动虽受到监视，但栗对中办情况不熟，令仍可以利用交班这一个多月时间，做了不少手脚。”<br>
+    <br>
+    孟建柱还披露，令案罪证材料使习总书记极为震惊，尤其是任内偷盗、私藏党国机密，失势后更将这些机密弄到美国的堕落行径，习多次要求党内秘书系统正视这种“令计划现象”，中央高层的秘书尚且如此，中下层可想而知，形成了中共建国以来“最恶劣的政治生态”。<br>
+    <br>
+    如何改变这种凶险的政治生态？如何破解这一盘绕中共全党上下的魔障？如何重新构建党的政治操守和道德规范，从而把全党从堕落的悬崖边拉回来，这是习近平寝食难安的主因。也是最近以来习亮相时疲态尽显、脾气欠佳的原因。<br>
+    <br>
+    <small>令计划(左)与逃美的令完成两兄弟使习近平忧心忡忡</small><br>
+    <img src="http://bowenpress.com/wp-content/uploads/2015/11/066b6cc966860b06068606d996c6698f6-300x229."><br>
+    <br>
+    据披露，怀疑被令氏盗窃非法带到国外的中共党国机密有四大类，一是总书记和军委主席办公及和人电话、网络等；二是中南海地形、保安程序、编制和通讯密码等；三是中央办公厅、中央书记处、中央军委和国务院在突发事件发生、在非正常时期的关系；四是中共中央、中央军委所掌握启动非常规武器(即核武器)战争的程序等。<br>
+    <br>
+    报道指，习近平访美前层派孟建柱先行去白宫“打前站”，目的有二：一是紧急商讨引起美方愤怒的所谓中国黑客问题，二就是与美方谈判遣返令计划的胞弟令完成，以及郭文贵；孟承诺如果美方同意遣返，中方愿意以上述两人在美的百意财产悉数赠美为代价，但被美方所拒。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511272328" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2772328       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511261008.shtml" target="boxun-mirror">军改会议争议延长习近平发狠话：谁反对改革谁下台请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -875,27 +932,6 @@
     “我们不知道该怎么办了，泰国已经没有安全可言，中共想抓谁回去，就可以抓，下一步，我们该去哪里呢？联合国也不能保护我们的安全了。”一位难民朋友说。<br>
      
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511161953" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511160350351.jpg http://upload.bx.tl/news/temp13/201511160350352.jpg--> 2021953       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511160928.shtml" target="boxun-mirror">福建纪委书记倪岳峰被双规与何立峰关系密切请看博讯热点：反腐打老虎</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>福建纪委书记倪岳峰被双规 与何立峰关系密切<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511160928" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     博讯独家消息，福建省福建纪委书记倪岳峰日前已被双规，这是自10月<a href="/news/gb/china/2015/10/201510080045.shtml">苏树林被查</a>以来，福建落马的第二高官。<br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511160928china1.jpg" alt="福建纪委书记倪岳峰被双规 与何立峰关系密切"><p><br>
-    在官方14日报道中共福建省委九届十五次全会时，排名第四的倪岳峰并没有出现在与会者名单中。福州日报报道称“省委书记尤权主持会议。省委副书记于伟国，省委常委杨岳、叶双瑜、张志南、李书磊、王蒙徽、熊安东、雷春美出席会议。”<br>
-    <br>
-    消息人士向博讯透露，倪岳峰13日被中央带到北京交代问题,无缘参加当天福建省九届十五次会议。据信，倪岳峰被调查和土地征收腐败有关。博讯网曾多次报道倪岳峰与原福州市委书记何立峰(现任国家发改委副主任)以及福建原省长苏树林大肆侵占农民土地，从中牟利。而厦门原国土局长“自杀”，让问题变得更为严重。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511160928" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 750928       
-</p>
 <hr>
 <table width="620"><tr><td>
 <b></p>
