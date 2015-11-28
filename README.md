@@ -58,7 +58,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1分钟前</small>
+	<small> ============== 6分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511272328.shtml" target="boxun-mirror">孟建柱内部讲话：令计划现象使习近平寝食不安</a>
 </h2>
