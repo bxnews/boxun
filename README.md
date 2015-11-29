@@ -19,6 +19,76 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511290159.shtml" target="boxun-mirror">特别报道：桂河桥上亮霓虹孤军墓前燃篝火（视频）</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）<br><font color="#000fC0">(<small>博讯北京时间2015年11月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511290159" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    <iframe src="https://player.vimeo.com/video/147182784" width="500" height="375" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> <p><a href="https://vimeo.com/147182784">Untitled</a> from <a href="https://vimeo.com/boxun">boxun</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
+<br>
+    2015年11月28日，泰国北碧府（Kanchanaburi），每年一度的桂河大桥节如期开幕。<br>
+    <br>
+    桂河桥上，张灯结彩，霓虹闪烁；桂河两岸，流光溢彩，人声鼎沸。为期10天的桂河大桥节今晚拉开序幕。灯光、音响、火车、汽笛、军号、音乐、喷泉、快艇、无人机、礼花、烟火、舞蹈、军人表演等轮番上马，再现当年日军修建桂河大桥和盟军飞机轰炸的情景。<br>
+    <br>
+    第二次世界大战期间，日军曾强迫大批战俘和劳工在此兴建著名的“桂河大桥”和“死亡铁路”，留下很多战争遗迹，也由此使北碧成为泰国的一个重要旅游地区。据说，泰国北碧府很感激当年日军修建大桥和铁路，原因是为今日的繁荣创造了契机。而历年的桂河大桥节，正是北碧府当局“文化搭台经济唱戏”的一个重要项目。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl1.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"><p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl2.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl3.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl4.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl5.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl6.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl7.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <br>
+    二战期间，中国远征军在东南亚损失十多万人。七八万人战死沙场，大约三万人被日军俘虏而不知去向。其实这些人是被秘密的押送到“桂河大桥”和“死亡铁路”做苦役消失了。这是中国远征军阵亡将士中最为悲壮的一部苦难史。有诸多证据表明，桂河大桥和死亡铁路是虐死、病死、累死、杀死中国远征军战俘（包括台湾劳工）最多最集中的地方。然而，几十年来，这段悲壮的史实几乎被世人彻底遗忘。中华民族的两大不肖子孙集团国、共两党只顾争地盘夺天下，几十年来数典忘祖忤逆不孝，彻底遗忘和抛弃了自己的祖先。<br>
+    <br>
+    在桂河大桥的南端，有一中国远征军的后人，来自湖北的梁山桥和他的泰国妻子碗尼帕自费购买1000平方米的土地修建了一座“孤军墓”和竖立起了一座抗战中中国远征军的模拟纪念碑。他感慨地说，二战中，桂河桥大战中，中国远征军做出卓越的贡献，有的战死在桥畔，有的成为战俘。二战结束后，这里有盟军的墓园，甚至还有侵略者日本人的墓地，可惟独没有中国军人的魂归之处，做为远征军的后代，他有责任也有义务做这件事。<br>
+    <br>
+     “孤军墓”和“中国远征军纪念碑”本是中国人的光荣。但建立以来，两岸政府畏日媚日，不加以支持保护，丢尽中国人的颜面。小日本看在眼里，笑在心里，你们中国人不团结，不自尊，当然要欺负你。当地日裔勾结北碧府警察当局多次拆除纪念碑，而梁山桥先生又多次重建。在很多当地人眼中，战争是日本与英美打的，中国远征军根本没有地位。而桂河大桥节的“声光电表演”则主要由日本人赞助，内容以歌颂日本为主。<br>
+    <br>
+    今年的“大桥节”泰国北碧府的警察当局尚算宽容，既没有像原来那样要求拆除纪念碑，也没有跟往年一样拆掉“华军碑”的字牌。但场地被占用，放满了灯光和音响。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl8.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl9.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl10.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl11.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl12.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl13.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    <br>
+    梁山桥先生身体欠佳，人在曼谷。守墓的义工深感痛苦、羞辱和悲愤，入夜时分，听见大桥上传来了阵阵喧嚣，义工在孤军墓前燃起一堆篝火，表达对中华民族祖先的悼念。熊熊火光吸引力不少当地居民和游客的眼球。在今天白天，就有一位来自河北的陈先生专程来祭拜远征军烈士并捐助。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl14.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    由中国人个人修建的孤军墓（资料照片）<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl15.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
+<p><br>
+    梁山桥先生和“中国远征军纪念碑”<br>
+    <br>
+    `
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511290159" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511280933441.jpg http://upload.bx.tl/news/temp13/201511280933442.jpg http://upload.bx.tl/news/temp13/201511280933443.jpg http://upload.bx.tl/news/temp13/201511280933444.jpg http://upload.bx.tl/news/temp13/201511280933445.jpg http://upload.bx.tl/news/temp13/201511280933446.jpg http://upload.bx.tl/news/temp13/201511280933447.jpg http://upload.bx.tl/news/temp13/201511280938291.jpg http://upload.bx.tl/news/temp13/201511280938292.jpg http://upload.bx.tl/news/temp13/201511280938293.jpg http://upload.bx.tl/news/temp13/201511280938294.jpg http://upload.bx.tl/news/temp13/201511280938295.jpg http://upload.bx.tl/news/temp13/201511280938296.jpg http://upload.bx.tl/news/temp13/201511280938297.jpg http://upload.bx.tl/news/temp13/201511280938298.jpg--> 3610159       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511280734.shtml" target="boxun-mirror">黄兴国代书记何去何从未定，天津官场人心惶惶</a>
 </h2>
 <p><tr>
@@ -878,47 +948,6 @@
     <br>
     －
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511170105" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3140105       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511170103.shtml" target="boxun-mirror">习近平访美成果玩乌笼中美高铁项目被指假大空</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平访美成果玩乌笼 中美高铁项目被指假大空<br><font color="#000fC0">(<small>博讯北京时间2015年11月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511170103" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】今年9、10两个月，中国国家主席习近平先后对美国和英国这两个西方大国进行国事访问；中共官媒号称取得丰硕成果，其中访美成果洋洋洒洒五大类49项。不过大部份为看不见摸不着「务虚」成果，看得见、摸得着的成果大部份又以中方付钱为代价，如向波音购买300架飞机、中美合作建设美国洛杉矶至拉斯维加斯的高铁项目等。<br>
-    <br>
-     香港出版的最新一期《博讯》月刊透露，就是这些中方掏钱的「巨大成果」，也有不少涉嫌假大空，或八字还没一撇的空中楼阁项目。例如中美合作洛杉矶至拉斯维加斯高铁项目，该项目曾被美国媒体形容为「骗子」项目，早在20年前已有美国公司提出，起起伏伏，未见有影。此次被中方拣起，作为中国高铁向西方输出的标志性成果之一，纳入习近平访美成果目录。有美国媒体指，该项目「借尸还魂」，中国可能要成冤大头。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    根据中国外交部清单，「洛杉矶至拉斯维加斯的高铁项目」排习近平访美第二大类的第25条：「中国铁路国际(美国)有限公司与美国沙漠快线有限责任公司和帕姆代尔高速铁路有限责任公司在2015年9月13日签署组建美国西部快线项目合资公司框架协议。」清单没有列出这项彰显中国高铁走出世界的伟大胜利的项目，到底具体为何，要花多少钱。<br>
-    <br>
-    事实上习近平访美前，中方已于9月17日在北京召开中美经济合作记者会，通告此重事项。当时中共中央财办副主任舒国增透露，中美组建合资公司建设并经营「西部快线高速铁路」，从美国内华达州拉斯维加斯，到加州胜利谷和帕姆代尔，最终到洛杉矶，全长370公里，计划总投资127亿美元，预计工程于2016年9月底开工，工期为三年左右。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_40454.html">博闻社全文报道</a><br>
-    <br>
-    －
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511170103" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2080103       
 <hr>
 <table width="620"><tr><td>
 <b></p>
