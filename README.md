@@ -99,7 +99,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511300333.shtml" target="boxun-mirror">广东万人抵制垃圾发电项目千警催泪弹攻村抓数十人请看博讯热点：突发事件</a>
 </h2>
@@ -122,7 +122,7 @@
     <br>
     村民“┾</td></tr></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511300604.shtml" target="boxun-mirror">习近平为何要动军队？中共军改趋议（一）请看博讯热点：习近平观察</a>
 </h2>
@@ -171,7 +171,7 @@
     <br>
     二是习近平早年清华大学初毕业就入中央军委，成为国防部长耿</td></tr></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511290159.shtml" target="boxun-mirror">特别报道：桂河桥上亮霓虹孤军墓前燃篝火（视频）</a>
 </h2>
