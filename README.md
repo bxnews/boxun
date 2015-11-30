@@ -339,7 +339,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511261008.shtml" target="boxun-mirror">军改会议争议延长习近平发狠话：谁反对改革谁下台请看博讯热点：习近平观察</a>
 </h2>
