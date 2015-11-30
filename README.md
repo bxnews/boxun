@@ -241,7 +241,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511280734.shtml" target="boxun-mirror">黄兴国代书记何去何从未定，天津官场人心惶惶</a>
 </h2>
