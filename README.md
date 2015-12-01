@@ -71,7 +71,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512010856.shtml" target="boxun-mirror">习近平抢风头出席世界气候峰会李克强日益边缘化请看博讯热点：习近平观察</a>
 </h2>
@@ -131,7 +131,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/11/201511300607.shtml" target="boxun-mirror">解放军是仿效美军吗？中共军改趋议（之二）请看博讯热点：习近平观察</a>
 </h2>
