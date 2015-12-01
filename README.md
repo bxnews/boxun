@@ -19,6 +19,60 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512010858.shtml" target="boxun-mirror">新的中央军委都由什么人组成？中共军改趋议(三)请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>新的中央军委都由什么人组成？中共军改趋议(三)<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512010858" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】中共这次军改已经明确，重点是改革军队“勃子以上”的部份，即总部指挥机关，包括军委总部、七大军区，形象地说就是“打散了重新组合”。那么人们要问：改革后的中共军队的“大脑”又是什么样子？都有什么器官、什么人物组成？是否还跟原来那样还有耳、鼻、口、目五官，只是位置挪一挪，抑或是一副全新的面目，尤如外星人那样？ 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    答案是肯定的。改革后的中共军队中枢，将会以全新的面貌示人，这点在11月24日习近平在中央军委改革会议上的讲话中，已经有所透露。27日国防部举行专题新闻发布会回答外界问题时，发言人杨宇军用了几个排比句，最能说明问题：这次军改做法，就是“调整军委总部体制，实行军委多部门制，突出核心职能、整合相近职能、加强监督职能、充实协调职能。”<br>
+    <br>
+    海外有媒体对对国防部发言人那几句排比句进行逐句分析，认为“军委多部门制”意味四总部将变为军委内设机构；“突出核心职能”应是指突出总参谋部的联合作战指挥职能；“整合相近职能”可能意味总后勤部与总装备部的合并；“加强监督职能”应该是指将军委纪委从总政治部中分离出来，变成直属中央军委的另一总部；而至于“充实协调职能”可能会将军委办公厅升格，或恢复设立中央军委秘书长一职。<br>
+    <br>
+    其实早在三个月前的8月27日，博闻社最早披露中共此轮军改资讯时就表示：中共此轮军改，军委四总部要整编为军委机关的内设职能部门，其中总参谋部将仿照美国的参谋长联席会议，升格为由各兵种将领组成、为中央军委主席提供决策参考的军事智囊式机构。总后和总装要合并成为后勤保障部，军委原有各部变为中央军委机关的内设职能部门，不作为―个层级。国防部实体化，建立相对独立于军队的国防行政体系<br>
+    <br>
+    博闻社同时报道，此波军改将撤销现有七大军区，全国以方向划分为东、西、南、北四大战区，战区并不管部队，只负责制定作战方案。军队平时都由各总部指挥，即陆军总部、海军总部和空军总部。战区设联合司令部，战时则由联合司令部对辖区的陆海空三军指挥调度，将部队平时的军种建设和作战的联合使用分开。<br>
+    <br>
+    从这些报道可以明显看出，未来中国军队最有权威和权力的将领，除了军委主席外，应该就是上述的总参谋长(或者仿美军称参谋长联席会议主席)；陆、海、空三军(或许还有某个新军种)总司令、四大战区司令以及国防部长。这些将领毫无疑问，当是新的中央军委人选。<br>
+    <br>
+    至于中央军委副主席，博闻社曾经报道指，未来中央军委副主席的功能将大大弱化，甚至可能会取消。海外有报道指，新的中央军委有可能恢复设立军委秘书长一职。军委秘书长这个职务自江泽民开始被取消，代之是军委办公厅主任。习近平大学毕业后就是到军委秘书长耿飙手下任秘书的。<br>
+    <br>
+    当然，最新公布的军改方案显示，中央军纪委要升格，同时成立新的军委政法委，所以军纪委书记很有可能也是新的军委委员之一。至于新成立的军委政法委书记，暂时没理由揣测将会中央军委委员一员。<br>
+    <br>
+    值得一提的是，尽管政治思想工作未来仍然是中共军队的“灵魂”，但总政治部在未来中央军委总部的角色可能会大大减弱，甚至可能会成为军委内部的职能机构，这与徐才厚把持时，总政治部权倾一时相比较，给人大有矫枉过正的感觉。<br>
+    <br>
+    至此，我们基本上捋清了未来新的中央军委可能的组成成份，由此我们也可以估计到未来军委人数可能为11至13人(视乎是否设副主席以及是否有新的军种成立)，与现在中央军委委员人数差不多。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_43862.html">新的中央军委都由什么人组成？中共军改趋议（三）</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512010858" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1770858       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512010856.shtml" target="boxun-mirror">习近平抢风头出席世界气候峰会李克强日益边缘化请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -932,51 +986,6 @@
     <br>
     博闻社报道全文：<a href="http://bowenpress.com/news/bowen_41281.html">视频曝光：四名男子进入香港出版商阿海（桂民海）的公寓</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511201138" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2641138       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511201136.shtml" target="boxun-mirror">香港出版商阿海被遣返当局将追究其出版物作者</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>香港出版商阿海被遣返 当局将追究其出版物作者<br><font color="#000fC0">(<small>博讯北京时间2015年11月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511201136" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】本社获悉，瑞典籍香港出版商桂民海（阿海)在泰国疑被中共秘密警察跨国诱捕后，于上周五被中共以专机遣返中国，显示本案非同寻常，中共已从阿海的电脑中，掌握了所有跟阿海有稿件来往的中港作者名单，有关人士呼吁作者当保重。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    据知情人透露：上周五，香港专门出版中共政治禁书的出版商桂民海（阿海）和其他四人被泰国当局移送中国政府秘密警察用专机正式遣返回大陆。<br>
-    <br>
-    阿海10月中旬被秘密警察伙同当地人从曼谷寓所带走后，之后阿海的电脑曾经在11月3日被中国秘密警察在帕提亚的寓所里拷贝，里面的资料应该全部暴露。<br>
-    <br>
-    据跟阿海合作的知情人透露，阿海的电脑里应该有分布在世界各地包括中国大陆的写作者（投稿者）的信息，甚至还可能有稿费转账资料，目前这些人都将面临严重的威胁。<br>
-    <br>
-    另据其他渠道的消息说，阿海十年前在大陆有一个未结的交通肇事案，中国政府非常可能使用这个借口遣返并羁押阿海，阿海短时间内获得救援离开中国的前景将非常暗淡。<br>
-    <br>
-    如果阿海长期被羁押甚至入狱，就会给中国方面提供捏造其他罪证的机会，甚至牵连其他写作者被控“窃取情报”之类的罪名连带入狱。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_41279.html">香港出版商阿海被遣返 中国当局将追究其出版物作者</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511201136" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 261136       
 <hr>
 <table width="620"><tr><td>
 <b></p>
