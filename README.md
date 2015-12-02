@@ -69,6 +69,55 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512021308.shtml" target="boxun-mirror">习近平念念不忘令完成巴黎“习奥会”再提遣返请看博讯热点：令计划</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平念念不忘令完成 巴黎“习奥会”再提遣返<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512021308" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】中国国家主席习近平抢总理李克强的风头，亲自赴法国巴黎出席联合国气候变化大会，本社日前已做了分析报道。本社近日还获悉，原来习大大此次越俎代庖赴巴黎，除了要表示中国对气候变化的重视，以及强化自己的国际形象外，还有一个“不可告人”的“小目的”，那就是借在巴黎与奥巴马会晤之机，再度当面提出要求美方遣返目前滞留在美国的令计划胞弟令完成。<br>
+    <br>
+     博闻社特约记者从巴黎北郊勒布尔热独家报道，这次中美元首巴黎会晤，与以前中美两国元首会面的奢华宫廷或者美丽庄园不同，是在一间略显简陋的狭小教室内，习近平和奥巴马在教桌顶端的课椅上，在人数十分有限的现场记者面前进行课堂辩论。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    两人的话题是南辕北辙，习近平强调中美两国应把握构建新型大国关系的正确方向极为重要，合力推动本届气候变化大会实现预期目标。奥巴马则强调美中有责任采取行动，在应对气候变化问题上的领导能力至关重要。同样地，两国元首又扯到各自关心的问题。习关心的是台湾问题，而奥巴马关心的是中国人权、网络安全和南海问题。<br>
+    <br>
+    令美方意想不到的是，习近平竟然、、、（<a href="http://bowenpress.com/news/bowen_44104.html">博闻社报道全文</a>）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512021308" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2151308       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512021309.shtml" target="boxun-mirror">独家：军改四大战区改五大月内宣布主将任命</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：军改四大战区改五大 月内宣布主将任命<br><font color="#000fC0">(<small>博讯北京时间2015年12月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512021309" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】博闻社从接近中国军方高层的人士了解到，中共军队改革方案又出现重大调整，原定全国划分为东、南、西、北四大战区，现决定增加一个中部战区，作为战时拱</td></tr></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512010858.shtml" target="boxun-mirror">新的中央军委都由什么人组成？中共军改趋议(三)请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -926,93 +975,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511221346.shtml" target="boxun-mirror">习近平访美评估报告爆光邓小平以来最失败的一次请看博讯热点：习近平访美</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平访美评估报告爆光 邓小平以来最失败的一次<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511221346" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】由中共中央外事工作领导小组主持整理的“习近平主席对美国国事访问效果评估报告”部份内容爆光。报告显示，此次访问虽取得预期效果，但存在重大漏洞和疏忽，其中习近平被美方当面质询三件事，一是纽约法院受理中国访民起诉习；二是中国国内打压律师；三是黑客攻击；事件令习颜面大失，迁怒外交部。习这次访美，可能是自邓小平以来四代中共最高领导人访美最失败的一次。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    接近中南海的人士对本社透露，今年9月底习近平对美国的访问，和10月下旬对英国的访问，在中共内部被视为今年外交的重头戏，外交部早在一年前就开始准备，与美、英有关部门协商沟通，特别是访美行程，驻美大使崔天凯堪称费尽心机、呕心沥血，与白宫和美国国务院讨论落实个一个细节。<br>
-    <br>
-    在出访日期快到，看到美方仍不就网络黑客窃密问题梗梗于怀，中方又匆匆派出两位分管外交和安全的国务委员杨洁</td></tr></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511201218.shtml" target="boxun-mirror">马云收购南早已到最后阶段中共借阿里打造监控大网络</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>马云收购南早已到最后阶段 中共借阿里打造监控大网络<br><font color="#000fC0">(<small>博讯北京时间2015年11月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511201218" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->          【博闻社独家】本社获悉，中国首富马云旗下阿里巴巴集团收购香港英文《南华早报》，有关谈判目前已到最后阶段，该收购不但是马云欲建构庞大传媒帝国的一步，也符合北京有关当局要进一步抢夺香港媒体话语权的战略构思。有消息指，中共还要利用阿里巴巴大数据库和影响力，构建一个监控社会的庞大机器。<br>
-        <img src="http://www.boxun.com/news/images/2015/11/201511201213china1.jpg" alt=" 马云收购南早到最后阶段 中共借阿里打造监控大网络"><br>
-         马云收购郭鸿年的南华早报，已到最后关头 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-        本月初，英文中国日报曾简讯披露阿里巴巴收购《南华早报》的消息，连南早官方微博也同一天迅速转发了有关报导，尽管中国日报随后删除了报道，但马云在接受媒体采访问及时，并没有否认有关消息。<br>
-    <br>
-        知情者告诉本社，有关的收购谈判现在已经到了最后的地步，《南华早报》被收入阿里巴巴囊中，几乎已是铁板钉钉。马云拿下南早，不仅是为满足其打造传媒帝国的需要，更符合北京当局进一步争夺香港舆论话语权的目标，因而得到北京当局的背后支持和祝福。<br>
-    <br>
-        <img src="http://www.boxun.com/news/images/2015/11/201511201213china2.jpg" alt=" 马云收购南早到最后阶段 中共借阿里打造监控大网络"><br>
-        南华早报是香港影响力最大的英文报纸<br>
-    <br>
-        阿里近两年的投资一直在加强对媒体的布局，从2013年入股新浪微博开始，到如今阿里系力量已投资科技媒体虎嗅、36氪以及财经媒体第一财经，华数传媒、无界新闻、封面传媒等等。<br>
-    <br>
-        此外，阿里巴巴正在与国内互联网最大的新闻综合门户之一新浪洽谈收购事宜。有报导指，马云的新目标还包括新浪微博、光线传媒(Enlight Media)、华谊兄弟、中国商务集团(China Business Network, CBN)，以及优酷、土豆网等。<br>
-    <br>
-        有报道指，马云对南早的收购不仅止于经营权转换，整个南早的编辑团队也随之大换血。媒体已披露，与北京关系密切的南早副总编谭卫儿将从2016年1月1日起接替现任总编辑王向伟，而南早在过去半年至少有36位员工离职，出现“大逃亡”情况。<br>
-    <br>
-        由于南早曾在2013年对马云的专访中，报导马云支持邓小平在「六四天安门事件」中镇压学生的决定，引发外界极大的争议，这使得马云收购南早之举更显得玩味。<br>
-    <br>
-        知情者还指，北京当局还有一项重大战略，要利用阿里巴巴的数据库和影响面，构建一个庞大的信息监控网络。目前，阿里巴巴的商业大数据是全中国第一，阿里巴巴的「智慧城市」通道是淘宝、支付宝和新浪微博，市民可以通过这些App查询和办理医疗、社保、违章罚款、户政、出入境等政务服务。当局计划，要利用阿里的数据库，成为监控追踪民众的工具。北京当局极其重视阿里巴巴。<br>
-    <br>
-        香港回归中国18年来，媒体生态已经发生巨大变化，电视台，报纸纷纷被北方来的资本然红，近年互联网崛起，又有神秘的资金到香港投资新闻网站，加上不断有香港新闻人，新闻机构被中共当局以各种罪名诱到内地判刑、打压，有舆论形容，香港媒体和新闻出版正面临前所未有的红色恐怖。<br>
-    <br>
-        根据虎嗅报导，尽管近年来，南早因为拥有者郭鹤年、郭孔演父子将家族生意瞄准中国，在报导上为郭氏家族保驾护航，更在曾任吉林省政协委员的现任总编王向伟的主导下，亲北京倾向日益明显，但如果阿里巴巴拿下南早，更符合北京利益。<br>
-    <br>
-        毕竟，由内地出身的中国人来经营，或许总是比出身马来西亚华裔、长居香港的郭氏家族要更令正日益收紧中国言论的北京感到放心。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511201218" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4601218       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
