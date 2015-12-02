@@ -19,6 +19,56 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512020059.shtml" target="boxun-mirror">福建尤溪万人游行示威围堵政府迫使当局放弃污染项目请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>福建尤溪万人游行示威围堵政府迫使当局放弃污染项目<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512020059" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      福建省三明市尤溪县西滨镇上万村民周二（12月1日）发起游行示威围堵镇政府，迫使政府放弃落户在该镇的中节能（福建）危险废物综合处置与循环再利用中心项目。<br>
+    <br>
+    公开资料显示，已于近期动工修建，位于西滨镇横坑村的中节能（福建）危险废物综合处置与循环再利用中心项目，主要处理、处置福建省所辖9地市，即福州、厦门、莆田、三明（建设项目所在地）、泉州、漳州、南平、龙岩、宁德所产生的危险废物，以及应急状态下协同处置周边地区产生的危险废物。<br>
+    <br>
+    因担心该项目建成后对环境造成污染，西滨镇村民于11月下旬发起维权，一度到项目的工地阻止施工。<br>
+    <br>
+    周二一早，西滨镇的所有商店、摊贩全部罢工罢市，上万人聚集到镇上，手持横幅标语在镇上的街道上游行，之后，村民聚集到西滨镇政府门口，要求当地政府立即停止项目建设。<br>
+    <br>
+    村民“ZQ_张清2015”发帖说：什么叫民意？这就叫民意，镇子不大，全镇几百家商铺，几百个摊贩，全部停业，政府你可长点心吧！<br>
+    <br>
+    另一村民“美丽家园80735”说：中节能滚出西滨，我们不欢迎你，我们宁愿落后十年我们也不愿意失去我们的家园。我们不知道你们以什么手段通过了环保，哪来的勇气跟我们说绝大多数人都支持，我们就是人民，你问过我们吗？别再试图用法律威胁我们，我们有保护家乡的义务。<br>
+    <br>
+    图片以及视频显示，村民手持“坚决抗议中节能落户西滨”、“中节能滚出西滨”、“请饶命”等大量横幅、标语，聚集在西滨镇政府门口，并高喊各种口号，现场人山人海，附近的街道已水泄不通，有少量警察在现场戒备，未见发生冲突。<br>
+    <br>
+    晚些时候，一名政府官员出面喊话，向村民承诺暂停项目建设，之后村民陆续离去。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512020059china1.jpg" alt="福建尤溪万人游行示威围堵政府迫使当局放弃污染项目"><p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512020059china2.jpg" alt="福建尤溪万人游行示威围堵政府迫使当局放弃污染项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512020059china3.jpg" alt="福建尤溪万人游行示威围堵政府迫使当局放弃污染项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512020059china4.jpg" alt="福建尤溪万人游行示威围堵政府迫使当局放弃污染项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512020059china5.jpg" alt="福建尤溪万人游行示威围堵政府迫使当局放弃污染项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512020059china6.jpg" alt="福建尤溪万人游行示威围堵政府迫使当局放弃污染项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512020059china7.jpg" alt="福建尤溪万人游行示威围堵政府迫使当局放弃污染项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512020059china8.jpg" alt="福建尤溪万人游行示威围堵政府迫使当局放弃污染项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512020059china9.jpg" alt="福建尤溪万人游行示威围堵政府迫使当局放弃污染项目"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512020059" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512010940341.jpg http://upload.bx.tl/news/temp13/201512010940342.jpg http://upload.bx.tl/news/temp13/201512010940343.jpg http://upload.bx.tl/news/temp13/201512010940344.jpg http://upload.bx.tl/news/temp13/201512010940361.jpg http://upload.bx.tl/news/temp13/201512010940362.jpg http://upload.bx.tl/news/temp13/201512010940363.jpg http://upload.bx.tl/news/temp13/201512010940364.jpg http://upload.bx.tl/news/temp13/201512010940281.jpg--> 2870059       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512010858.shtml" target="boxun-mirror">新的中央军委都由什么人组成？中共军改趋议(三)请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -958,34 +1008,6 @@
     <br>
         毕竟，由内地出身的中国人来经营，或许总是比出身马来西亚华裔、长居香港的郭氏家族要更令正日益收紧中国言论的北京感到放心。
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511201218" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4601218       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2015/11/201511201138.shtml" target="boxun-mirror">视频曝光：四名男子进入香港出版商桂民海的公寓请看博讯热点：打压媒体和记者</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频曝光：四名男子进入香港出版商桂民海的公寓<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511201138" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-    【博闻社独家】香港著名出版商阿海（桂民海）10月17日最后一次出现在泰国的公寓，博讯网日前公布了其离开时的视频，本社刚获得了阿海最后一次停车，以及11月3日四名男子进入阿海公寓的视频。视频显示，其中一名戴帽子的男子应该是此次行动的领导。<br>
-    <br>
-    此前博讯报道四名男子在阿海房间呆了2小时，最新信息显示，他们在房间呆了大约半小时。<br>
-    <br>
-    博闻社今天稍早披露，阿海失踪后被泰国秘密关押在IDC（移民监狱），直到11月13日，阿海和姜野飞、董广平以及另外两人被遣返中国。整个过程看，泰国政府直接参与了绑架、关押和配合北京非法遣送。<br>
-    <br>
-    <iframe width="500" height="281" src="https://www.youtube.com/embed/B0hN0RZMW8Y" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="500" height="281" src="https://www.youtube.com/embed/6RJCpjJA5dc" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_41281.html">视频曝光：四名男子进入香港出版商阿海（桂民海）的公寓</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201511201138" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2641138       
 <hr>
 <table width="620"><tr><td>
 <b></p>
