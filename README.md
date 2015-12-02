@@ -118,6 +118,18 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512021359.shtml" target="boxun-mirror">刘奇葆又作孽抵制习近平为胡耀邦彻底正名请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>刘奇葆又作孽 抵制习近平为胡耀邦彻底正名<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512021359" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】11月20日是中共前总书记胡耀邦诞辰100周年，一如外界预料，中共中央高调举行纪念活动，其中在人民大会堂举行的座谈会，中央政治局七名常委全部出席，习近平更发表长篇讲话高度评价胡一生；遣词用语为胡去世后少见。显示习意在为被指「反自由化不力」而蒙冤下台的前任彻底正名。但习的良苦用心遭到刘奇葆掌下中宣部的无情抵制，中宣部一纸「一</td></tr></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512010858.shtml" target="boxun-mirror">新的中央军委都由什么人组成？中共军改趋议(三)请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -945,31 +957,6 @@
     、、、<br>
     （<a href="http://bowenpress.com/news/bowen_42161.html">博闻社全文报道</a>）
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511231333" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 761333       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511231334.shtml" target="boxun-mirror">民运人士纪念胡耀邦诞辰100周年座谈会在纽约举行请看博讯热点：六四</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>民运人士纪念胡耀邦诞辰100周年座谈会在纽约举行<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511231334" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    当地时间20号，纽约地区部分民运人士在法拉盛聚会，纪念中共前总书记胡耀邦诞辰100周年。出席座谈会的有李进进，胡平，张博树，何平，陈小平，刘青，王书军，王军涛，张爱枚，荣伟，陈创闯，西诺等。<br>
-    <br>
-    明镜新闻集团总裁何平回忆在80年代曾经给胡耀邦写过一封信，诉说他在报社中遭到的不公正的待遇。何平回忆说，他是根本没有想到胡耀邦会关注自己一个默默无名的年轻人，当时总书记的来信引起报社领导的重视，自己的遭遇就得到了好转，去了一个理想的工作单位。王军涛也谈到了自己曾经与胡耀邦会面的一些往事，王军涛当着总书记的面要求中央能释放被关押的异议人士魏京生，胡耀邦没有正面回答他，胡对当时贵州政府对待异议人士采取软化方式表示赞赏，当王军涛要求中央要加快改革时，胡耀邦回答是请王军涛具体地指出，那些不对，哪些需要改进，要求具体不要范范而谈，王军涛一时感到语塞，他对胡耀邦的注重细节的工作作风非常欣赏。<br>
-    <br>
-    这次会议是由中国研究院和胡赵基金联合主办。<br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/wPjnnIMSZ0o" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/monFRBh4RJ0" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511231334" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2581334       
 <hr>
 <table width="620"><tr><td>
 <b></p>
