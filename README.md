@@ -67,7 +67,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512021308.shtml" target="boxun-mirror">习近平念念不忘令完成巴黎“习奥会”再提遣返请看博讯热点：令计划</a>
 </h2>
