@@ -105,7 +105,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512021309.shtml" target="boxun-mirror">独家：军改四大战区改五大月内宣布主将任命</a>
 </h2>
@@ -116,7 +116,7 @@
                 <!--bodystart-->      <br>
     【博闻社独家】博闻社从接近中国军方高层的人士了解到，中共军队改革方案又出现重大调整，原定全国划分为东、南、西、北四大战区，现决定增加一个中部战区，作为战时拱</td></tr></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512010858.shtml" target="boxun-mirror">新的中央军委都由什么人组成？中共军改趋议(三)请看博讯热点：习近平观察</a>
 </h2>
