@@ -19,6 +19,91 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512032010.shtml" target="boxun-mirror">紫禁城来鸿：巴黎气象峰会习近平为什么不高兴？</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>紫禁城来鸿：巴黎气象峰会习近平为什么不高兴？<br><font color="#000fC0">(<small>博讯北京时间2015年12月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201512032010" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <small>奥巴马到巴黎后先去恐袭现场献花</small><br>
+     <img src="http://bowenpress.com/wp-content/uploads/2015/12/092c6afcd642fd37eda503eecc6fb064-300x200."><table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    巴黎世界气象变化大会已经结束几天，各国领导人已相继离去。但是关于峰会的一些不被人知的内幕陆续爆光。博闻社特约记者获悉，中国国家主席习近平在离开巴黎时并不开心，而是一脸阴沉，陪同的中国外交部高官更是一个个敛声屏气。习近平为何不悦？原因与法国方面毫无关系，问题出自中国外交部。<br>
+    <br>
+    博闻社此前曾有报道，对今年9月状况不断的美国之旅，习近平曾责成外交部深刻检讨；此次法国之行，尽管未曾出现诸如访民拦车之类的窘境，但在习近平行程的具体安排上，外交部出现了明显的“重大疏忽“:没有想到大会前刚刚发生巴黎恐怖袭击致逾百人死亡的特大事件，外交部完全疏忽了安排习近平前往巴黎恐怖袭击地点为遇难者献花和默哀。<br>
+    <br>
+    而同时与会的美国总统奥巴马、日本首相安倍晋三，都去了现场献花表示哀悼，令外媒形容中国领导人“冷血”、“没有人性”，习近平对此大表不满。<br>
+    <br>
+    <small>安倍也去献花</small><br>
+    <img src="http://bowenpress.com/wp-content/uploads/2015/12/8a38ef15772cafb04789a7778aff64ab"><br>
+    <br>
+    博闻社特约记者了解到，习近平本来对这次巴黎气象峰会给与高度重视，认为是展现中国对世界重大事务负责任形象的大好机会，为此习近平冒着被舆论垢病的可能，还在在政治局会议上提出，从国库拿出200亿美元，当做“礼物”，在气象大会上宣布用于帮助贫穷国家治理环境。此举当然获得了大会一些掌声。<br>
+    <br>
+    但是，当习近平得知，刚刚到达巴黎的美国总统奥巴马和日本首相安倍晋三，都不约而同出现在巴黎街头，为恐怖袭击遇难者献花时，习近平才恍然大悟，他丢掉了一个最能讨好西方和世界舆论的机会，忘了去恐怖袭击现场走一圈，献一束花!堂堂一个新崛起大国领袖，号称人类最有道德传统的中华民族代表，竟然对一百多条<br>
+    <br>
+    生命被无辜夺去事件，“淡然处之”，不少西方媒体表示愕然。<br>
+    <br>
+    <small>习近平在巴黎忙于自我表现出现重大失误</small><br>
+    <img src="http://bowenpress.com/wp-content/uploads/2015/12/c9fde20fd03e82b2cce033fc19f5260b"><br>
+    <br>
+    博闻社记者获悉，习近平对此大表不满，迁怒于中国外交部部长王毅，认为外交部对活动安排“有问题”，“不能够相机应变”，“这是一个严重的失误”，让中国在奥巴马和安倍面前“丢分”。习近平当场要求外交部“好好地检讨，吸取教训”。<br>
+    <br>
+    中国外交部在重大国事活动中出现”低等错误“的状况，并不罕见，博闻社曾经多次报道。消息显示，做为外交部长的王毅，其能力或已受到质疑，离“下课”已经为期不远。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201512032010" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1952010       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512032116.shtml" target="boxun-mirror">智囊刘鹤获奖学界质疑，学者挑战习近平？请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>智囊刘鹤获奖学界质疑，学者挑战习近平？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512032116" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <a href="http://bowenpress.com/news/bowen_44204.html">博闻社报道</a>，2015年11月14日，第16届孙冶方经济科学奖颁奖仪式在浙江财经大学举行，在多位获奖者中，被视为是习近平财经心腹智囊的中共中央财经领导小组办公室主任、国务院发改委副主任刘鹤，以一部《两次全球大危机的比较研究》获得论文奖。获奖消息传出，有批评者质疑评委会在评选时有非学术因素在内，即「唯上拍马」之嫌。<br>
+    <br>
+     孙冶方经济科学奖由孙冶方基金会主持评奖，后者隶属于中国社科院经济研究所。此次评奖结果出来后，中国社科院马克思主义研究学部主任程恩富直接质疑，「为什麽要将该奖项颁给刘鹤」，质疑刘获奖论文的经济观点「真的那麽重要吗？」，中国社科院院长王伟光也对主持评奖的经济所提出批评，要求该所对评奖施加影响，对孙冶方基金会加强管理。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    王伟光大胆敢言，自称是刘云山的人，知情者透露，这是王伟光自吹。此事</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512020059.shtml" target="boxun-mirror">福建尤溪万人游行示威围堵政府迫使当局放弃污染项目请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -865,103 +950,6 @@
 <b></p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511232350.shtml" target="boxun-mirror">书商阿海未曾关押移民监狱，绑架回国可能性最大请看博讯热点：打压媒体和记者</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>书商阿海未曾关押移民监狱，绑架回国可能性最大<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511232350" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->                   李  方<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511232350intl1.jpg" alt="书商阿海未曾关押移民监狱，绑架回国可能性最大"><p><br>
-        瑞典籍香港书商桂明海<br>
-    <br></p>
-<center><font size="4"><b>赴IDC调查，泰国移民监从未关押过桂民海</b></font></center>
-<br>
-    <br>
-    今日，通过一位和泰国移民监狱（IDC）非常相熟的泰籍华人，深入了解IDC 近期押犯登记，证实上月失踪的瑞典籍香港书商阿海，并未在IDC关押过。同时，通过查问身在其中的某些特殊人士，也回应没有见过这个人，没有听说过这个人。<br>
-    这位华人朋友今日反复查询后，告诉说，IDC警察经过详细电脑查询，回答她：IDC 本月没有关过叫Gui Min Hai 的人，上月（10月）也没有关过这样一个人。<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp13/201511230842321.png" width="500"></div>
-<br>
-        阿海失踪前，最后一次出现在公寓花园<br>
-    <br><center><font size="4"><b>出版商孟浪：不相信阿海与姜野飞董广平同机遣返中国，没理由</b></font></center>
-<br>
-    <br>
-    此前不少媒体传炒的阿海于11月13日，随流亡异议人士姜野飞董广平同机遣返中国的消息，证明为不实消息。<br>
-    记者就此问题曾和阿海朋友，香港出版人孟浪谈起这件事，孟浪先生说：“怎么可能遣返他，至少不能使用‘遣返’的名义。也不可能关他移民监狱，他有合法瑞典护照，免签证居留泰国，没有理由将他关押移民监狱。只有非法入境，超期滞留的人，违反泰国移民法的外国人，才会关进移民监狱。”<br>
-    “另一点重要的是，如果要将阿海关押移民监狱，IDC 必然要同时通知瑞典驻泰国大使馆，大使馆就会知道。可是，通过他女儿向瑞典外交部和警方报案情况看，瑞典政府根本就不知情。前面有媒体说，阿海通过移民监一位什么‘西人’，发信息告诉妻子平安，不用挂念什么的，根本不可信。你想，以阿海的智商，一旦有发信息的条件，会不向外发出求救信号？会是这种显然很受控制的安抚信息吗？还有，移民监狱可以花钱向家人，亲友打公用电话，阿海会不对外求助，会不想办法寻求瑞典大使馆的帮助？通过阿海发给他妻子和女儿的不可回复的信息看，他24小时不能脱离抓他的人对他的监控。不可能关在泰国监狱，一旦脱离绑架他的人，关进泰国的监狱，拘留所或移民监狱，他绝对有很多办法联络外界，发出求救信号。但是，他给亲人的这些信息，没有一个求救的字，显然他的一切信息是被审查和控制的。”<br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511232350intl3.jpg" alt="书商阿海未曾关押移民监狱，绑架回国可能性最大"><p><br>
-        最后陪同阿海开车离开公寓的神秘男子<br>
-    <br></p>
-<center><font size="4"><b>独立中文笔会会长贝岭：泰国政府应该没有参与阿海失踪事件</b></font></center>
-<br>
-    <br>
-    同为阿海多年朋友的独立中文笔会会长贝岭，也表示对此说法很怀疑。他认为，如果泰国政府参与抓捕阿海，就不会带不走阿海的电脑，泰国警察完全可以拿走他的电脑，物业经理不可能阻止。只有被泰国之外的力量绑架，他们才不敢说明意图，不敢强行带走阿海的物品。<br>
-    <br><center><font size="4"><b>巨流公司股东李先生：泰国政府没理由遣返阿海回中国</b></font></center>
-<br>
-    <br>
-    阿海的巨流出版公司另一股东李先生对媒体曾说，他不相信瑞典籍的桂民海会被泰国遣返中国，因为本周二（17日）桂民海曾致电妻子，叫她不用到泰国，他的事情还未处理好，她到泰国也没法见面。李先生推断桂民海不想太太到泰国报案，桂太觉得桂民海好像被控制情况下致电给她，现在她有点害怕。<br>
-    他又说，近日传出桂民海被遣返中国，他不相信泰国官方会遣返瑞典公民回中国，桂民海没有非法居留。此外，桂民海在英国的女儿近日已向瑞典外交部求助，外交部安排一名瑞典警察跟进调查。<br>
-    李先生说：不可信，没可能，他（桂民海）是瑞典公民，怎样遣返，就算要抓他回大陆，也不可能经过泰国官方将他送回去。<br>
-    <br><center><font size="4"><b>种种迹象分析：阿海应是绑架回国，极可能走柬埔寨通道</b></font></center>
-<br>
-    <br>
-    桂明海女儿证实，近日，瑞典警方已经派人前往泰国，和泰国警方协同调查此事。目前此案状态，在瑞典警方和泰国警方均为“报告失踪”状态。如果遣返中国，至少泰国警方这里不会依旧是“报告失踪”状态。这显示，泰国警方和泰国政府对于桂民海的失踪并不知情。<br>
-    足够多的消息和迹象显示，桂民海案和姜野飞、董广平案性质根本不同，泰国政府明显没有参与桂民海的绑架和失踪事件，也没有迹象显示泰国政府参与了对他的关押和“遣送”。<br>
-    一直关注此案的阿海多位朋友分析，均认为，阿海被中国大陆国安部门跨国绑架回中国的可能性最大。他的身份和护照等情况，以及他在泰国并无违法行为决定了，他不可能被以违反移民法抓捕和关押，更没理由遣返中国。“合法的途径，没有理由将阿海弄回中国，唯一的途径，就是不合法的越境绑架”。一位阿海友人认为。他们分析，最可能的途径，就是先绑架至中共的“属地”柬埔寨，再通过那里空运回国。<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp13/201511230842323.png" width="500"></div>
-<br>
-        阿海失踪后，进入他房间“使用”电脑的疑似中共特工
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511232350" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511230842324.jpg http://upload.bx.tl/news/temp13/201511230842321.png http://upload.bx.tl/news/temp13/201511230842322.jpg http://upload.bx.tl/news/temp13/201511230842323.png--> 782350       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511231333.shtml" target="boxun-mirror">中南海密令定点打击海外敌对出版物请看博讯热点：打压媒体和记者</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中南海密令定点打击海外敌对出版物<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511231333" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】近年来，接二连三发生香港媒体人在内地被以各种罪名逮捕治罪、或者在东南亚国家被不明身份者诱捕然后遗返回中国的事件，这些当事人多是出版或发行专门揭露中共时弊和高层内幕的书刊的媒体人。事件引起海外舆论高度关注。本社从中南海知情者处了解到，此波针对海外媒体的行动指令来自中南海高层，是中共要对海外“敌对媒体”进行“定点打击”整肃计划的一部份。<br>
-    本社收到的紫禁城来鸿透露，对境外“反动媒体”进行“定点打击”的方案，其实早于习近平上台后不久即开始计划，是在中央《关于当前意识形态领域情况的通报》(即众所周知的九号文件)出来后，由中央扫黄打非工作领导小组统一布署下安排进行。“扫黄打非”工作小组隶属中央宣传思想工作领导小组，由中央宣传部、中央政法委、国家新闻出版广电总局等29个部门组成，组长是中共政治局委员、中央宣传部长刘奇葆。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       来鸿透露，根据中共高层指示，这次打击境外敌对出版物与过往“以堵为主”、重点在于海关查截境外出版物不同，提出“要从源头上治理”的新策略，要求有关部门针对以香港为基地新闻出版业，针对那些“仇视和诋毁(中共)党和社会主义道路、抹黑党和国家领导人、煽动颠覆中国政治体制的反动出版物”，要“主动出击”、“定点打击”。<br>
-    来鸿指，中共当局判断，香港回归10多年来，社会之所以出现越来越多反对北京的声音，香港政局之所以一直动荡不安，与社会存在大量抹黑、诋毁中共和中国政治的出版物、新闻媒体有直接关系。而且随着内地与香港交流越来越密切， 这种反动出版物、媒体与内地的错误思潮和主张互为影响，互相作用。“当局认为，如果任其蔓延，就会干扰内地改革发展稳定大局”。<br>
-    王<br>
-    香港回归后，中共透过各种方式对新闻界和媒体渗透，已基本掌握了香港新闻出版界的有关情况，特别是一些“敌对势力媒体”的情况，知道部份“敌对出版物”是由一些拥有外国特别是美国和身份的人士主理，这种背景更加重了北京当局对香港舆论出版界的担心，也成为促成当局对这场“定点打击”行动的原因之一。<br>
-    从2013年下半年开始，“定点打击”境外敌对<br>
-    、、、<br>
-    （<a href="http://bowenpress.com/news/bowen_42161.html">博闻社全文报道</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511231333" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 761333       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
