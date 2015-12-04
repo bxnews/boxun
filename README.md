@@ -27,7 +27,7 @@
 </center>
                 <!--bodystart-->     （博讯编者按：这是来自日本的投稿，算是日本人对政治文化的一些看法。作者荒川一舟自己撰</td></tr></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512032010.shtml" target="boxun-mirror">紫禁城来鸿：巴黎气象峰会习近平为什么不高兴？</a>
 </h2>
