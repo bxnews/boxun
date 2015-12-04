@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/12/201512040325.shtml" target="boxun-mirror">习氏王朝的难堪兼谈愤青和五毛/日本荒川一舟</a>
 </h2>
@@ -75,7 +75,7 @@
 </center>
                 <!--bodystart-->     （博讯编者按：这是来自日本的投稿，算是日本人对政治文化的一些看法。作者荒川一舟自己撰</td></tr></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512032010.shtml" target="boxun-mirror">紫禁城来鸿：巴黎气象峰会习近平为什么不高兴？</a>
 </h2>
