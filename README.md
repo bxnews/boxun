@@ -19,6 +19,16 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/pubvp/2015/12/201512040325.shtml" target="boxun-mirror">习氏王朝的难堪兼谈愤青和五毛/日本荒川一舟</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习氏王朝的难堪兼谈愤青和五毛/日本荒川一舟<br><font color="#000fC0">(<small>博讯北京时间2015年12月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201512040325" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     （博讯编者按：这是来自日本的投稿，算是日本人对政治文化的一些看法。作者荒川一舟自己撰</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512032010.shtml" target="boxun-mirror">紫禁城来鸿：巴黎气象峰会习近平为什么不高兴？</a>
 </h2>
 <p><tr>
@@ -911,40 +921,6 @@
     　　　　腐败用人的政治生态必须改变了！我们身边不乏优秀人才和好干部，为什么十八大后还在选坏人和平庸者？难道高层不反思吗？还不自上而下推动人事改革吗？留给军队的时间不多了，再不下狠手背水一战，更待何时？
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=yuanqing201511242006" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
 <!----> 1542006       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511240027.shtml" target="boxun-mirror">视频：纽约好友追思宪政学者于浩成的不平凡人生</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：纽约好友追思宪政学者于浩成的不平凡人生<br><font color="#000fC0">(<small>博讯北京时间2015年11月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511240027" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     于浩成更多文章请看<a href="http://blog.boxun.com/my-cgi/post/display_all.cgi?cat=yuhc">于浩成</a>专栏<br>
-     <br>
-    <br>
-    2015年11月20日，在纽约的于浩成部分好友集会，追思刚刚去世的中国杰出的宪政学家于浩成先生。<br>
-    <br>
-    律师李进进回忆起当年在密西根大学与于浩成相处的日子，他说于先生是一个传统的知识分子，有学问有风度，师母也是一个很有礼貌的人，每次请客宴请于先生之后，师母总是在隔天送一些礼物过来答谢。<br>
-    <br>
-    明镜新闻集团总裁何频谈到于先生时显得非常激动，他回忆当年去北京拜见于先生时，先生设家宴，用一道炒腊肉来犒劳这位湖南新闻才子。在于先生和戈杨先生两位前辈的引荐下，何频认识了大批中国最杰出的思想家和作家，这对何频以后毅然走上新闻救国的道路起到了重要的作用。<br>
-    <br>
-    前中国人权组织主席刘青回忆与于浩成相处的日子感慨地说，于浩成先生表面看是一个很随和的人，但是他是一个敢说敢当的有脊梁的好汉，在他刚刚出狱不到一个月，就毅然决定担任海外中国人权组织的理事，这是需要冒极大风险的，但是于先生是义无反顾，这使得我们海外同仁钦佩不已。<br>
-    <br>
-    明镜集团执行总编陈小平曾经与于浩成一起共事过，他回忆当年自己要举办一次宪政报告会，在会议经费筹集困难时，经人介绍找到于先生，于先生时二话没说就给了陈小平3000元，这在当时是一笔不小的开支，于先生对于晚辈的支持和提携是毫无保留的，陈小平也感谢于老给他出国深造撰写了一份重要的推荐信，以后在美国一起创办《中国司法观察》时，于先生给了陈小平太多的帮助，帮助这位后辈迅速成长。<br>
-    <br>
-    王军涛回忆起于浩成办的《中国司法观察》，其中最大的一个案例就是起诉江泽民越权出卖中国主权一案，这件事在海外引起了很大的反响，也显示了于先生有胆有识，是一位勇敢的法学家。<br>
-    <br>
-    出席于浩成先生追思会的人士有：李进进，王书军，何频，陈小平，刘青，胡平，王军涛，陈创闯，张博树，张爱枚，唐元隽，西诺。<br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/6YISlb-OiCM" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    博讯记者西诺 纽约报道
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511240027" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 480027       
 <hr>
 <table width="620"><tr><td>
 <b></p>
