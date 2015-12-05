@@ -19,6 +19,54 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512051140.shtml" target="boxun-mirror">陆军总部全曝光李作成司令刘雷任政委彭勃副司令请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>陆军总部全曝光 李作成司令 刘雷任政委 彭勃副司令<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512051140" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】本社昨日独家报道中共军改新立的陆军总部，司令由现成都军区司令李作成上将出任；本社又获悉，陆军政委将由兰州军区政委刘雷出任；兰州军区副司令彭勃任陆军副司令；张书国任陆军部政治部主任。陆军总部设现北京军区联勤部驻地。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社获悉，中共推行军改堪称雷厉风行，军令如山倒，通宵达旦执行。昨天本社已披露，原成都军区司令李作成出任新成立的陆军司令；而李上周已从成都赶往北京筹备陆军总部。博闻社又获悉，陆军政委将由原兰州军区政委刘雷出任。<br>
+    <br>
+    现年58岁的刘雷山东茌平县人，国防大学联合战役指挥专业毕业，研究生学历。现任兰州军区政治委员、中国人民解放军中将。<br>
+    <br>
+    1973年12月参军后曾在兰州军区第21集团军服役13年。1986年6月任兰州军区政治部干部部科技干部处副团职干事，后升任科技干部处处长。1994年12月任兰州军区政治部干部部副部长，后转任新疆军区步兵某师政委。<br>
+    <br>
+    2003年6月担任南疆军区政治部主任。2004年7月晋升为少将军衔。2007年1月，升任第21集团军政委，担任全国人大代表。2013年7月，担任新疆军区政委，同年11月兼任中共新疆维吾尔自治区党委常委。2014年7月晋升中将军衔。2014年12月，升任兰州军区政治委员。<br>
+    <br>
+    博闻社还获悉，原兰州军区副司令彭勃，将出任陆军副司令。60岁的彭勃河南洛宁县底张乡磨头村人。1970年12月入伍。历任战士、班长、排长、连长、营长，师作训科副科长，团参谋长、团长，师参谋长、副师长、116师长，39集团军参谋长。2005年任沈阳军区40集团军军长。2012年12月任兰州军区副司令员。2014年7月晋升中将军衔<br>
+    <br>
+    1998年率部参加东北地区抗洪抢险，中央电视台《新闻联播》节目予以专题报道。2002年，中央军委选调7人赴俄罗斯深造大兵团作战科目一年，彭勃为其中之一。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_44963.html">陆军总部主将全曝光 李作成司令 刘雷任政委 彭勃副司令</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512051140" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 431140       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512050332.shtml" target="boxun-mirror">博闻社独家：中共新军委内设三委六部一办三局请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -869,53 +917,6 @@
 <b></p>
 <p>
 	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511261008.shtml" target="boxun-mirror">军改会议争议延长习近平发狠话：谁反对改革谁下台请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>军改会议争议延长习近平发狠话：谁反对改革谁下台<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511261008" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    【博闻社独家】本社前(24)日独家披露，中共中央军委当日在军委大楼召开战区改革部署会议，正式宣告七大军区改四大战区方案。据了解，由于部份高级将领对改革存在不少看法，使这次会议解决思想问题成为重点，以至会议由预期一天半延长至三天，今天(26日)才结束。据悉习近平在会上发了狠话：谁反对军改，就是反对军队进步，谁就下台！<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       军方知情人士对博闻社透露，这次会议与会者全部是上将级高级将领，包括全体中央军委委员；四总部部长、政委；七大军区、第二炮兵、武警部队的司令和政委；国防大学和国防科技大学的校长、政委；军事科学院院长、政委等；囊括了中国军队现役上将及部份资深中将；是中国军队最权威的将领大聚集。<br>
-    <br>
-    军方消息指，有关的改革方案其实在会前大部份与会者拿到，而且在方案出台前已经过反复蕴酿、修改，开会第一天，军委主席习近平亲自动员，对这次军改的意义、作用再次解释一番，要求将领们以执行纪律的态度，贯彻执行好这次军改方案，但会议一开，方案往桌上一摆，仍然有不少将领提出「不同看法」。<br>
-    <br>
-    表面上，这些将领的看法都不是反对军改，而是一开始就表态支持改革，但是「希望改革更稳妥、方案更周全，细节更可行」，而且这些意见据称都是将领们「经充分调研、收集而得」，以致于经习近平主席同意后，决定会期延长，原定会期一天半，24日上午开幕，25日上午结束，延迟至26日(今天)才结束，时间整三天，比原先多一倍。<br>
-    <br>
-    知情人士对博闻社指，对军改方案有看法的，包括军委第一副主席范长龙。至昨天为止，范副主席还没有在这次军改会议上发言表态。而过去几天范曾接待多个到访的外国军事代表团，包括会前一天接见到访的老挝军事代表团谈出售军火，情绪似乎都不是很佳。博闻社早前曾披露，范曾亲自上书习近平和中央军委，希望延后军改方案实施时间，以便有时间更充做思想工作。<br>
-    <br>
-    公开的资料也显示，作为中央军委深化国防和军队改革领导小组副组长的范长龙，至今没有官方媒体和军队喉舌就这次军改公开表态，而排名第二的军委副主席许其亮，已先后在《解放军报》、中共中央喉舌《人民日报》发表署名文章，公开为这次军改摇旗呐喊、表态支持。<br>
-    <br>
-    军方知情人士对博闻社表示，在这次军改会议第一天习近平讲话中，没有点到任何人的名字，只是求与会高级将领们以身作则，服从大局安排，按执行纪律的要求，切实做好战区改革工作。 「但是据说习近平也发了一句重话：谁反对这次军队改革，谁就是反对军队进步，谁就下台！」消息透露，中共这次脱胎换骨式的军队改革，下月底正式推行，2020年结束。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_42954.html">军改会议因争议延长习近平发狠话：谁反对改革谁下台！</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511261008" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2041008       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 9天前</small>
 </p>
 <table>
     <tr>
