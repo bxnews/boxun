@@ -338,7 +338,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512032116.shtml" target="boxun-mirror">智囊刘鹤获奖学界质疑，学者挑战习近平？请看博讯热点：习近平观察</a>
 </h2>
@@ -916,7 +916,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p>
 <table>
     <tr>
