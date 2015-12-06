@@ -51,7 +51,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512060852.shtml" target="boxun-mirror">独家：习近平密友刘源上将确定出任军纪委书记请看博讯热点：习近平观察</a>
 </h2>
@@ -484,7 +484,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512032116.shtml" target="boxun-mirror">智囊刘鹤获奖学界质疑，学者挑战习近平？请看博讯热点：习近平观察</a>
 </h2>
