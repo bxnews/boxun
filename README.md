@@ -19,6 +19,40 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512060023.shtml" target="boxun-mirror">视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难请看博讯热点：打压媒体和记者</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512060023" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    最近，家属传来中国央视新闻姜野飞董广平被遣返视频，很明显姜野飞遭到了殴打、虐待。视频中明显可以看到姜野飞左眼乌青，摄制方有意回避左眼，近距离镜头侧对着姜野飞右脸拍摄。姜野飞说话姿态、语气显得非常吃力，似乎内脏、胸腹腔受到打击，伸腰显得困难，伸腰时脸部有痛苦表情。<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/2YJmBKouDu8" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    观察截屏远近镜头，眼部不正常：<br>
+    <div align="center"><img src="http://upload.bx.tl/news/temp13/201512050918291.png" width="500"></div>
+<br>
+    <div align="center"><img src="http://upload.bx.tl/news/temp13/201512050918292.png" width="500"></div>
+<br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512060023china3.jpg" alt="视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难"><p><br>
+    明显可以看到，姜野飞说话吃力：<br>
+    </p>
+<div align="center"><img src="http://upload.bx.tl/news/temp13/201512050918294.png" width="500"></div>
+<br>
+    健康自由时的姜野飞：<br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512060023china5.jpg" alt="视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难"><p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512060023china6.jpg" alt="视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512060023" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512050918291.png http://upload.bx.tl/news/temp13/201512050918292.png http://upload.bx.tl/news/temp13/201512050918293.jpg http://upload.bx.tl/news/temp13/201512050918294.png http://upload.bx.tl/news/temp13/201512050920351.jpg http://upload.bx.tl/news/temp13/201512050920352.jpg--> 3570023       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512051613.shtml" target="boxun-mirror">保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光</a>
 </h2>
 <p><tr>
@@ -834,47 +868,6 @@
 <b></p>
 <p>
 	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511280734.shtml" target="boxun-mirror">黄兴国代书记何去何从未定，天津官场人心惶惶</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>黄兴国代书记何去何从未定，天津官场人心惶惶<br><font color="#000fC0">(<small>博讯北京时间2015年11月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511280734" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【博闻社独家】北京当局正在召开五中全会已近结束，此前传闻天津市委代书记黄兴国将要进入中央政治局。但是据消息人士向本社透露，此次五中全会天津黄兴国代书记何去何从未来不定，天津官场因此人心惶惶。<br>
-    <br>
-     五中全会历来是中共高层安排下一届党大会人事布局的卡位战，可以说谁能主导五中全会，谁就抢占了先机和制高点。但是正在北京召开的五中全会在人事布局上至今尚无看点，此前传闻天津代理书记黄兴国将进入中共政治局未能兑现。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    具体原因在于，习近平反腐得罪了中共官场，现在经济上又出了问题，对习来说，眼下最紧迫的不是持续恶化的经济问题，也不是再反贪打老虎搏取民意，而是要打胜十九大人事布局这一仗，确保自身安全，解除后顾之忧。但是“能上能下”的规定在党内高层遭到强烈反弹，党内老人也写信反对，引起地震，许多他想通过的人事调整，在党内其他派系或其他势力的阻击下，无法实现。<br>
-    <br>
-    61岁的黄兴国浙江象山人，长期在浙江任职，是黄菊的侄子，其任宁波市委书记时，曾与主政浙江的习近平有交集，外界视其为习的势力人马。<br>
-    <br>
-    消息人士透露，黄兴国的升迁阻力与天津大爆炸有关。江胡执政的前二十年，开创了中共执政以来许多特殊的“中国特色”的行政体制，其中之一就是，任何事故发生以后，几乎全部拿行政部门的官员问责。多年以来地方出了问题，都是问责行政领导，而不是党委书记。<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_43361.html">博闻社报道全文</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201511280734" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2250734       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 8天前</small>
 </p>
 <table>
     <tr>
