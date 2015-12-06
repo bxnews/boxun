@@ -100,7 +100,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512060921.shtml" target="boxun-mirror">世界气候大会中国叫穷习近平电慰“坚持到最后一刻”</a>
 </h2>
@@ -148,7 +148,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512051613.shtml" target="boxun-mirror">保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光</a>
 </h2>
