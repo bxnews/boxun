@@ -53,6 +53,103 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512060852.shtml" target="boxun-mirror">独家：习近平密友刘源上将确定出任军纪委书记请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：习近平密友刘源上将确定出任军纪委书记<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512060852" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】本社获悉，现任军委总后勤部政委的刘源上将，已确定出任新成立的中央军委军纪委书记。军纪委在中央军委三委六部一办三局中排列第一，地位尤重，故刘源掌军纪委后很大可能会成为新的中央军委委员。军内普遍认为，刘源掌军纪委是名至实归。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    接近中共军方高层的消息人士对博闻社透露，军委主席习近平已签署了对中央军委内设机构“三委六部一办三局”的主帅名单，其中第一位就是军纪委书记人选，果然不出外界所料，由总后勤部政委刘源上将出任。这也与外界的判断与期待相符合。<br>
+    <br>
+    消息人士指，虽然军纪委书记仍为大军区正职级别，但因地位重要，很可能会在未来中央军委委员中占有一席，即刘源很大可能会成为新的中央军委委员。“刘源出掌中央军纪委，不仅仅是因为他和习近平是一起长大、志同道合的同志和朋友，更是符合军内的呼声和要求的安排。”知情者对博闻社指。<br>
+    <br>
+    消息人士告诉博闻社，与刘源搭档的是沈阳军区政治部主任杨成熙中将，杨将出任军委纪委副书记，副大军区职。<br>
+    <br>
+    现年60岁的杨成熙贵州遵义人，1973入伍，在工程兵当战士，后任团保密员、昆明军区司令部连职秘书、营教导员、某集团军坦克旅政治部副主任、成都军区政治部组织部部长、某集团军副政委、云南省军区政治委员；2013任沈阳军区政治部主任。今年7月晋升为中将军衔。<br>
+    刘源作为中共前国家主席刘少奇的儿子，素被外界贴上“太子党”的标签，但自从他2010年出任总后勤部政委、硬把后台是时任中央军委副主席徐才厚的“军中大蛀虫”、总后副部长谷俊山中将拉下马，从而让习近平也有机会把徐才厚、郭伯雄这两个军中大老虎拿下后，刘源获得“军中王岐山”称号。<br>
+    <br>
+    知情人士对博闻社指，刘源为军队高层打虎立下一功后，恢复低调，隐于幕后，特别是习近平确定要进行军队改革、重组军委总部后，他极少公开发言，甚至传出刘源要在军改后，退出实权部门、出任虚职的传言。知情者指“其实那也是刘源的真实想法”。<br>
+    <br>
+    知情者透露，习近平虽与刘源是从小块长大的密友，但为了军纪委一职，习还是两次找刘谈话，要刘继续“为了保住父辈打下的江山分担重任”，现在终于定案，大概习应该放下心了。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_45344.html">独家：习近平密友刘源上将确定出任军纪委书记</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512060852" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3730852       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512060921.shtml" target="boxun-mirror">世界气候大会中国叫穷习近平电慰“坚持到最后一刻”</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>世界气候大会中国叫穷 习近平电慰“坚持到最后一刻”<br><font color="#000fC0">(<small>博讯北京时间2015年12月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201512060921" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】世界气候大会仍在进行，由于发达国家与发展中国家对污染减排、资金、技术等方面承担的责任难以达成一致，包括中国坚持自己是发展中国家，要求从发达国家获得资金和技术支持,大会难达公识。与会的中国代表团长解振华备感压力，关键时刻解接到正在非洲的国家主席习近平亲自致电，要求代表团「坚持到最后一刻」、「坚决完成任务」。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    有舆论质疑，中国在要求国际货币基金(IMF)将人民币纳入特别提款单位货币篮子时，豪称自己已是世界第二大贸易体，但在气候大会要出钱时，则喊穷自己是「发展中国家」，实在令人难以置信。<br>
+    <br>
+    博闻社特约记者从法国巴黎北郊勒布林热大会现场了解到，本次巴黎气候大会无论是东道主法国还是主办方联合国，都十分期盼与会各方最终设定2020-2030全球减排目标，并由此开启全球各国气候变化合作的崭新阶段。但气候变化牵涉各国利益，令「马拉松」式的谈判千头万绪，截至目前结果仍充满变数。已返回纽约的联合国秘书长潘基文再次亲临现场督阵。<br>
+    <br>
+    据了解，本次气候大会首位目标是，与会190多个国家与地区签署一份控温普遍协议，将全球温度上升控制在2摄氏度以内。如何达到这一目的，就要要体现出发达国家、发展中国家历史责任不同、能力不同、发展水平不同的区别。具体来说，就是发达国家应率先采取措施限制温室气体排放，并向发展中国家提供有关资金和技术。<br>
+    <br>
+    这资金是多少呢？根据有关组织计算和建议，到2020年，发达国家每年应会出1000亿美元，帮助穷国减排，消除贫困和改善民众生活。<br>
+    <br>
+    博闻社记者了解到，中国不是没有钱，这次习近平亲自出席气候大会，就宣布中方将拨出200亿美元，助贫穷国家改善环境；从巴黎去非洲访问，又豪掷600亿美元资助非洲发展。习大大出去一趟，已豪洒了五千亿人民币，那都是中国人民的血汗钱。中国有钱，但北京不想自己在气候大会被划入「富人圈」，所以死活要标榜自己是「发展中国家」。<br>
+    <br>
+    博闻社特约记者从大会现场了解到，从中国的态度可以看出，巴黎气候大会要达成一致，谈何容易！为达到这一目的，率领中国代表团出席联合国气候大会的团长解振华已使出浑身解数，但进展不大，使他备感压力。解振华在接受采访时承认，谈判桌上目前存在多方面分歧，「进展缓慢，不容乐观」。<br>
+    <br>
+    在博闻社此前的报导曾特别提醒，如果2009年哥本哈根气候大会的闹剧(即大会因上述同样原因而未有任何进展)重演，中国政府将颜面扫地。<br>
+    <br>
+    博闻社记者获悉，正在这时，在非洲访问的国家主席习近平亲自打来的电话，习在电话中要求中国代表团“坚持到最后一刻”，并且要“坚决完成任务”。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_45201.html">独家：世界气候大会中国叫穷 团长解振华压力大 习近平电慰“坚持到最后一刻”</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201512060921" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3940921       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512051613.shtml" target="boxun-mirror">保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光</a>
 </h2>
 <p><tr>
@@ -749,125 +846,6 @@
     村民“┾</td></tr></p>
 <p>
 	<small> ============== 6天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511300604.shtml" target="boxun-mirror">习近平为何要动军队？中共军改趋议（一）请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平为何要动军队？中共军改趋议（一）<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511300604" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】中共中央军委改革工作会议24日至26日在北京举行，本社对这次会议做了准确的预告，而且会议主要内容也与本社过去几个月的报道大体相符。其军委总部改革、七大军区变四大战区、军队人员大裁减等改革措施，都与本社的报道和外界分析预期相符；有读者质疑本社何以能如此神通，能掌握本属中共内部机密的信息，甚至怀疑本社有不当方式获取信息。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    其实，习近平主导的这次军队改革，并不完全是一次黑箱作业，诚如国防部在解读会议的有关记者会上所指，为此次军改，军委多次召开会议专题研究改革，大范围、多渠道、多轮次组织深入调研。先后组织座谈会、论证会860余次，到690多个军地单位调研，当面听取900多名在职和退休军职以上领导、专家意见，2000多名军以上单位班子成员和师旅级部队领导参与问卷调查。如此大面积、公开化的前期工作，当然不能说是秘密了。<br>
-    <br>
-    正如本社一早所指，这次军队改革，是中共建政以来最具整体性、革命性的一次，其意义远超过中共建政后历次军队改和裁军，以中共官方术语形容，此次军改堪可与毛泽东在85年前的古田会议。古田会议确定了毛泽东在红军的领导地位，以及中共「党指挥枪」的原则(实际上毛掌政后就是枪指挥党)；从而为中共在20年后夺取江山打下基础。<br>
-    <br>
-    那么问题来了：中共这次军改的历史意义又是什么呢？仅仅是如国防部在记者会上解读时所言，为了「实现“两个一百年”奋斗目标、实现中华民族伟大复兴的中国梦作出的重大战略决策」，为了打造一支跟得上形势的强大军队吗?习近平又是什么时候、为什么要用这种伤筋动骨的方式，来重构军队？经他这么折腾后的中国军队，是否真如其愿，能做到"召之即来，来之能打，打之必胜"？<br>
-    <br>
-    今天开始，本社将为你拆局解惑，并重组中共这次军改的前后经过，以便对整个事件有一个全面的认识。<br>
-    <br>
-    军方媒体已经透露，习近平倡导这次军改，绝非起于一时之念，而是他自2012年11月15日就任中央军委主席开始，就已经表露出来。 3年前习近平在中共十八大从胡锦涛手中接过军印，其外出巡视的第一站是深圳，参拜邓小平倡导的改革开放窗口深圳，而同时他又去了驻广东的解放军第42集团军、海军南海舰队湛江基地。<br>
-    <br>
-    那次走入军营，习近平就提出：实现中华民族伟大复兴，是中华民族近代以来最伟大的梦想。这个梦想是强国梦，对军队来说，也是强军梦。我们要实现中华民族伟大复兴，必须坚持富国和强军相统一，努力建设巩固国防和强大军队。<br>
-    <br>
-    他同时提出，要坚持用打仗的标准推进军事斗争准备，不断强化官兵当兵打仗、带兵打仗、练兵打仗思想，坚持以军事斗争准备为龙头带动现代化建设，全面提高部队以打赢信息化条件下局部战争能力为核心的完成多样化军事任务能力。<br>
-    <br>
-    首次视察军队，"圣上"的指示自然不人会太出格，随后两年，习的足迹遍及海陆空军、第二炮兵、武警部队和七大军区。在军队的重要会议上和视察部队期间，习的讲话"越来越重要"，批评的调子也越来越明显。当然，这些批评外界是听不到的，军方喉舌所透露出来的，只是四平八稳的遣词造句八股文章，最多冠以"重要指示"作前缀。<br>
-    <br>
-    习近平不同于前任工程师出身的江泽民、书呆子大学辅导员出身的胡锦涛，习大大对军事其实挺在行，一是他出身于中共元老家庭，父亲习仲勋是参加中共打江山一辈，是西北红军的创始人之一；这一点已为他注入战场的血缘。<br>
-    <br>
-    二是习近平早年清华大学初毕业就入中央军委，成为国防部长耿</td></tr></p>
-<p>
-	<small> ============== 6天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/11/201511290159.shtml" target="boxun-mirror">特别报道：桂河桥上亮霓虹孤军墓前燃篝火（视频）</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）<br><font color="#000fC0">(<small>博讯北京时间2015年11月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201511290159" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    <iframe src="https://player.vimeo.com/video/147182784" width="500" height="375" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> <p><a href="https://vimeo.com/147182784">Untitled</a> from <a href="https://vimeo.com/boxun">boxun</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
-<br>
-    2015年11月28日，泰国北碧府（Kanchanaburi），每年一度的桂河大桥节如期开幕。<br>
-    <br>
-    桂河桥上，张灯结彩，霓虹闪烁；桂河两岸，流光溢彩，人声鼎沸。为期10天的桂河大桥节今晚拉开序幕。灯光、音响、火车、汽笛、军号、音乐、喷泉、快艇、无人机、礼花、烟火、舞蹈、军人表演等轮番上马，再现当年日军修建桂河大桥和盟军飞机轰炸的情景。<br>
-    <br>
-    第二次世界大战期间，日军曾强迫大批战俘和劳工在此兴建著名的“桂河大桥”和“死亡铁路”，留下很多战争遗迹，也由此使北碧成为泰国的一个重要旅游地区。据说，泰国北碧府很感激当年日军修建大桥和铁路，原因是为今日的繁荣创造了契机。而历年的桂河大桥节，正是北碧府当局“文化搭台经济唱戏”的一个重要项目。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl1.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"><p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl2.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl3.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl4.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl5.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl6.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl7.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <br>
-    二战期间，中国远征军在东南亚损失十多万人。七八万人战死沙场，大约三万人被日军俘虏而不知去向。其实这些人是被秘密的押送到“桂河大桥”和“死亡铁路”做苦役消失了。这是中国远征军阵亡将士中最为悲壮的一部苦难史。有诸多证据表明，桂河大桥和死亡铁路是虐死、病死、累死、杀死中国远征军战俘（包括台湾劳工）最多最集中的地方。然而，几十年来，这段悲壮的史实几乎被世人彻底遗忘。中华民族的两大不肖子孙集团国、共两党只顾争地盘夺天下，几十年来数典忘祖忤逆不孝，彻底遗忘和抛弃了自己的祖先。<br>
-    <br>
-    在桂河大桥的南端，有一中国远征军的后人，来自湖北的梁山桥和他的泰国妻子碗尼帕自费购买1000平方米的土地修建了一座“孤军墓”和竖立起了一座抗战中中国远征军的模拟纪念碑。他感慨地说，二战中，桂河桥大战中，中国远征军做出卓越的贡献，有的战死在桥畔，有的成为战俘。二战结束后，这里有盟军的墓园，甚至还有侵略者日本人的墓地，可惟独没有中国军人的魂归之处，做为远征军的后代，他有责任也有义务做这件事。<br>
-    <br>
-     “孤军墓”和“中国远征军纪念碑”本是中国人的光荣。但建立以来，两岸政府畏日媚日，不加以支持保护，丢尽中国人的颜面。小日本看在眼里，笑在心里，你们中国人不团结，不自尊，当然要欺负你。当地日裔勾结北碧府警察当局多次拆除纪念碑，而梁山桥先生又多次重建。在很多当地人眼中，战争是日本与英美打的，中国远征军根本没有地位。而桂河大桥节的“声光电表演”则主要由日本人赞助，内容以歌颂日本为主。<br>
-    <br>
-    今年的“大桥节”泰国北碧府的警察当局尚算宽容，既没有像原来那样要求拆除纪念碑，也没有跟往年一样拆掉“华军碑”的字牌。但场地被占用，放满了灯光和音响。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl8.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl9.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl10.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl11.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl12.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl13.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    <br>
-    梁山桥先生身体欠佳，人在曼谷。守墓的义工深感痛苦、羞辱和悲愤，入夜时分，听见大桥上传来了阵阵喧嚣，义工在孤军墓前燃起一堆篝火，表达对中华民族祖先的悼念。熊熊火光吸引力不少当地居民和游客的眼球。在今天白天，就有一位来自河北的陈先生专程来祭拜远征军烈士并捐助。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl14.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    由中国人个人修建的孤军墓（资料照片）<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2015/11/201511290159intl15.jpg" alt="特别报道：桂河桥上亮霓虹 孤军墓前燃篝火（视频）"></p>
-<p><br>
-    梁山桥先生和“中国远征军纪念碑”<br>
-    <br>
-    `
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201511290159" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201511280933441.jpg http://upload.bx.tl/news/temp13/201511280933442.jpg http://upload.bx.tl/news/temp13/201511280933443.jpg http://upload.bx.tl/news/temp13/201511280933444.jpg http://upload.bx.tl/news/temp13/201511280933445.jpg http://upload.bx.tl/news/temp13/201511280933446.jpg http://upload.bx.tl/news/temp13/201511280933447.jpg http://upload.bx.tl/news/temp13/201511280938291.jpg http://upload.bx.tl/news/temp13/201511280938292.jpg http://upload.bx.tl/news/temp13/201511280938293.jpg http://upload.bx.tl/news/temp13/201511280938294.jpg http://upload.bx.tl/news/temp13/201511280938295.jpg http://upload.bx.tl/news/temp13/201511280938296.jpg http://upload.bx.tl/news/temp13/201511280938297.jpg http://upload.bx.tl/news/temp13/201511280938298.jpg--> 3610159       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 7天前</small>
 </p>
 <table>
     <tr>
