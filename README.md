@@ -53,6 +53,47 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512062031.shtml" target="boxun-mirror">参谋总长房峰辉下课对台将领蔡英挺接捧</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>参谋总长房峰辉下课 对台将领蔡英挺接捧<br><font color="#000fC0">(<small>博讯北京时间2015年12月06日</small> <small>来稿</small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】博闻社获悉，中共军委主席习近平已钦定南京军区司令蔡英挺出任新成立的军委联合总参谋部参谋长一职。这意味着现任参谋总长房峰辉下课。蔡英挺福建晋人，谙熟闽南话，是对台作战专家，未知此安排与台湾局势及中共未来的战略部署是否有关。<br>
+    <br>
+     博闻社从军方消息人士处获悉，除了博闻社近日透露的军纪委组成，以及陆军总部的组成人员已确定之外，新的军委其它部委办的主帅亦已尘埃落定，其中，联合总参谋部参谋长由现任南京军区司令蔡英挺出任。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    该消息显示，现任参谋总长房峰辉将下课。64岁的房一直被认为是胡锦涛的势力，2007年升北京军区司令员；是当时七大军区年龄最轻的司令员。2009年中共建政60周年大阅兵担任总指挥，陪同军主席胡锦涛检阅部队；2012年10月中共十八大前夕，房接替陈炳德出任总参谋长，因他从未在总参任职，故此提升曾在军中引起非议。<br>
+    <br>
+      目前未知房峰辉下课后任何职，军方知情者向博闻社透露，习近平对房“有看法”，故房“不大可能升军委副主席”，甚至还有可能被赶出新一届中央军委委员班子。共军参谋总长按旧制在军中的权力排军委主席副主席之后。 <br>
+    <br>
+     （<a href="http://bowenpress.com/news/bowen_45461.html">博闻社报道全文</a>）<br>
+    <br>
+    －
+ [博讯来稿] <!--bodyend-->(博讯 boxun.com) <br><!----> 2142031       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512060852.shtml" target="boxun-mirror">独家：习近平密友刘源上将确定出任军纪委书记请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -821,29 +862,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/11/201511300333.shtml" target="boxun-mirror">广东万人抵制垃圾发电项目千警催泪弹攻村抓数十人请看博讯热点：突发事件</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>广东万人抵制垃圾发电项目千警催泪弹攻村抓数十人<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年11月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201511300333" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      周日（11月29日），广东省汕头市潮阳区上千警察使用催泪弹、高压水枪等围攻金灶镇十一乡村民，抓走数十村民，一辆警车和一辆挖掘机被村民烧毁。<br>
-    <br>
-    继2013年的大规模示威后，金灶镇光溪、东坑等十一个村上万村民今年10月下旬再次发起示威抵制选择在光溪村的大型垃圾焚烧发电项目并持续至今。据村民透露，十一乡的所有农民已持续罢工半个月，日夜提防政府入侵，十一乡内的6所中小学已罢课十天，期间，陆续有大量村民因游行和发布网络信息遭到抓捕。<br>
-    <br>
-    村民“木头”发帖说：11个村子里6所中小学学生，已经罢课十天，农民也不再下地干活半个多月，日夜提防着镇政府的人入侵，此事已经闹了2年，然而，至今未有媒体正面报道此事。<br>
-    <br>
-    28日晚，村民在收到即将有警察进村的鸣炮警示后，手持棍棒、农具等迅速集结到路口阻止，持续到29日上午7点，上千警察列队强行功村，与村民发生激烈冲突，期间有数十村民被警察抓走，一辆警车和一辆挖掘机被村民烧毁，警察暂时被村民击退。<br>
-    <br>
-    村民“特　务”发帖说：昨夜就开始扰民，今天七点不到十一乡全部被投了催泪弹，妈妈说脸辣得不行眼睛睁不开一直地咳嗽・・・<br>
-    <br>
-    图片显示，村民使用大量煤气罐将进村路口堵住，大量警察使用装甲警车强行开路进入村庄，现场到处是警察施放催泪弹后发出的浓烟，遍地弹壳，有一辆疑似水炮车的警车被焚烧。<br>
-    <br>
-    村民“┾</td></tr></p>
 <p>
 	<small> ============== 7天前</small>
 </p>
