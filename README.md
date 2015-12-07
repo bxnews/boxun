@@ -66,7 +66,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512062326.shtml" target="boxun-mirror">薄熙来的“钱袋子”徐明死狱中高官和名星舒了口气请看博讯热点：王立军、薄熙来</a>
 </h2>
@@ -93,7 +93,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512062031.shtml" target="boxun-mirror">参谋总长房峰辉下课对台将领蔡英挺接捧</a>
 </h2>
@@ -567,7 +567,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512032116.shtml" target="boxun-mirror">智囊刘鹤获奖学界质疑，学者挑战习近平？请看博讯热点：习近平观察</a>
 </h2>
