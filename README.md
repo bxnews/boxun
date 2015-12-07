@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512060023.shtml" target="boxun-mirror">视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难请看博讯热点：打压媒体和记者</a>
 </h2>
