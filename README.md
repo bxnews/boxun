@@ -19,6 +19,109 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512080303.shtml" target="boxun-mirror">巴黎气候大会习近平失分王毅保乌纱拼命拍马补救请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>巴黎气候大会习近平失分王毅保乌纱拼命拍马补救<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512080303" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】正在巴黎北郊勒布尔热举行的世界气候变化大会，全球190多个国家代表经过多日反覆较量，于上周末终达成协议草案，交本周各国部长进一步磋商。各国派驻采访的媒体都对此大事报道，但中方随团记者却遇到一个令人哭笑不得的情况。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    就在这个寒风凛冽的冬天午夜，在现场采访的博闻社特约记者收到消息，在巴黎采访的中共各官媒负责人被紧急召集，连夜开会。博闻特约记者好奇打探，初以为中方要大张旗鼓宣传达成协议草案，不料得悉，竟是当局「派任务」，要求各媒体宣传报道中国外交部长王毅的一个讲话。<br>
+    <br>
+    有中方媒体人士向博闻社特约记者透露，他们应召紧急到场后，看到主持会议的不是代表团媒体负责人，而是中宣部和外交部高级官员联合主持，这些身经百战的官方笔杆子们颇感吃惊意外，以为是有重大宣传任务要领受，不料收到的却是一份中国外长王毅关于此次世界气候大会的讲话稿。<br>
+    <br>
+    面对这份外长讲话稿，中共笔杆子们兴味索然，昏昏欲睡，而中宣部和外交部官员却精神饱满，反覆重申外长王毅的讲话是一个「重大事件」，要求各媒体「立即发回国内」、「全力编发，充分报道，大力宣传」。<br>
+    <br>
+    博闻社特约记者有幸拿到了王毅的这份讲话，不看不知道，一看简直哭笑不得。在这份由王毅发自中非(正跟随习近平出访)的讲话，貌似传达习近平的指示，但通篇是王毅的自言自语、自我论述，全文充斥中共「党八股」文风，实在令人难以卒读。<br>
+    <br>
+    王毅似乎有梗在喉，要一吐为快；全文洋洋洒洒，长篇大论，几乎每段都以「习主席」敬称启头，让人读着读着，全身起鸡皮，连习惯于拍马溜须的中共媒体人也十分汗颜，自叹弗如。博闻社特约记者摘其一二，以证其实，也让外界看看仪表堂堂的中国外长，私下是如何一副奴才相：<br>
+    <br>
+    「习主席此访是今年中国外交的压轴大戏和收官大作！」<br>
+    <br>
+    「习主席的巴黎之行，旨在引领和推动国际气候谈判，为气候变化巴黎大会达成协议贡献中国智慧和力量。」<br>
+    <br>
+    「习主席此访，标志着中国参与全球气候治理进入新阶段，中非友好合作掀开新篇章，具有重要的划时代意义！」<br>
+    <br>
+    「习主席在气候变化巴黎大会提出重要主张，同与会各方密集沟通协调，彰显了负责任、有担当、建设性大国形像，为大会成功作出不可替代的贡献！」<br>
+    <br>
+    「习主席作为最大的发展中国家领导人，纵览全局，着眼长远，指出巴黎协议应强化2020年后全球应对气候变化行动，也要推动全球实现更好的可持续发展。」<br>
+    <br>
+    “习主席的倡议既立足当下，又面向未来；既坚持原则，又体现灵活；既代表广大发展中国家共同诉求，又兼顾各方立场，得到广泛支持和赞同。”<br>
+    <br>
+    「习主席的主张巩固了应对气候变化的国际合作基石！」<br>
+    <br>
+    「在习主席和各方共同努力下，气候变化巴黎大会实现良好开局。」<br>
+    <br>
+    「习主席此访受到当地民众载歌载舞、夹道欢迎，充分体现对中国天然的亲近感，再次印证中津、中南友好深入人心、深得民心。」<br>
+    <br>
+    「习主席精辟阐述中国对全球治理模式的看法和主张，蕴含中华文化智慧，具有鲜明中国特色的全球治理观。」<br>
+    <br>
+    在通篇高喊习主席后，王毅最后终于「图穷匕首现」，为自己掌下的中国外交进行「工作总结」：<br>
+    <br>
+    「过去一年，在以习近平同志为总书记的党中央坚强领导下，中国外交全面进取、积极有为，取得举世瞩目的成就。」<br>
+    <br>
+    博闻社详细报道全文：<a href="http://bowenpress.com/news/bowen_45899.html">独家：巴黎气候大会习近平失分王毅保乌纱拼命拍马补救</a>。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512080303" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2340303       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512080306.shtml" target="boxun-mirror">中共成立战略支援军含火箭电子航太三大兵种请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共成立战略支援军 含火箭电子航太三大兵种<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512080306" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】由习近平主导的中共军改花式多多。博闻社获悉，继新成立陆军总部，陆、海、空三军单独成军后，一个名为「战略支援军」的新军种近日也爆光，该军种涵盖原战略导弹部队(即第二炮兵)、电子战和航天三大兵种；首任战略支援军司令由现二炮司令魏凤和上将出任，政治委员为王家胜中将。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    军方消息人士向博闻社透露，新成立的战略支援军与陆海空三军同级，并列为四大军种；战略支援军下辖三个兵种，一是火箭兵，即原来的第二炮兵部队；第二个兵种叫电子资讯兵，由原来的总参谋部电子技术侦察部(总参三部)，以及各大军区后来组建的电子(网络)部队组成。<br>
+    <br>
+    战略支援军下辖第三个兵种叫航太兵，将空军、二炮部队、几大</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512071113.shtml" target="boxun-mirror">独家：中共新军委总部机关各委部局主官全爆光</a>
 </h2>
 <p><tr>
@@ -698,72 +801,6 @@
     【博闻社独家】博闻社从接近中国军方高层的人士了解到，中共军队改革方案又出现重大调整，原定全国划分为东、南、西、北四大战区，现决定增加一个中部战区，作为战时拱</td></tr></p>
 <p>
 	<small> ============== 6天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512021359.shtml" target="boxun-mirror">刘奇葆又作孽抵制习近平为胡耀邦彻底正名请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>刘奇葆又作孽 抵制习近平为胡耀邦彻底正名<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512021359" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社独家】11月20日是中共前总书记胡耀邦诞辰100周年，一如外界预料，中共中央高调举行纪念活动，其中在人民大会堂举行的座谈会，中央政治局七名常委全部出席，习近平更发表长篇讲话高度评价胡一生；遣词用语为胡去世后少见。显示习意在为被指「反自由化不力」而蒙冤下台的前任彻底正名。但习的良苦用心遭到刘奇葆掌下中宣部的无情抵制，中宣部一纸「一</td></tr></p>
-<p>
-	<small> ============== 6天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512010858.shtml" target="boxun-mirror">新的中央军委都由什么人组成？中共军改趋议(三)请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>新的中央军委都由什么人组成？中共军改趋议(三)<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512010858" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】中共这次军改已经明确，重点是改革军队“勃子以上”的部份，即总部指挥机关，包括军委总部、七大军区，形象地说就是“打散了重新组合”。那么人们要问：改革后的中共军队的“大脑”又是什么样子？都有什么器官、什么人物组成？是否还跟原来那样还有耳、鼻、口、目五官，只是位置挪一挪，抑或是一副全新的面目，尤如外星人那样？ 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    答案是肯定的。改革后的中共军队中枢，将会以全新的面貌示人，这点在11月24日习近平在中央军委改革会议上的讲话中，已经有所透露。27日国防部举行专题新闻发布会回答外界问题时，发言人杨宇军用了几个排比句，最能说明问题：这次军改做法，就是“调整军委总部体制，实行军委多部门制，突出核心职能、整合相近职能、加强监督职能、充实协调职能。”<br>
-    <br>
-    海外有媒体对对国防部发言人那几句排比句进行逐句分析，认为“军委多部门制”意味四总部将变为军委内设机构；“突出核心职能”应是指突出总参谋部的联合作战指挥职能；“整合相近职能”可能意味总后勤部与总装备部的合并；“加强监督职能”应该是指将军委纪委从总政治部中分离出来，变成直属中央军委的另一总部；而至于“充实协调职能”可能会将军委办公厅升格，或恢复设立中央军委秘书长一职。<br>
-    <br>
-    其实早在三个月前的8月27日，博闻社最早披露中共此轮军改资讯时就表示：中共此轮军改，军委四总部要整编为军委机关的内设职能部门，其中总参谋部将仿照美国的参谋长联席会议，升格为由各兵种将领组成、为中央军委主席提供决策参考的军事智囊式机构。总后和总装要合并成为后勤保障部，军委原有各部变为中央军委机关的内设职能部门，不作为―个层级。国防部实体化，建立相对独立于军队的国防行政体系<br>
-    <br>
-    博闻社同时报道，此波军改将撤销现有七大军区，全国以方向划分为东、西、南、北四大战区，战区并不管部队，只负责制定作战方案。军队平时都由各总部指挥，即陆军总部、海军总部和空军总部。战区设联合司令部，战时则由联合司令部对辖区的陆海空三军指挥调度，将部队平时的军种建设和作战的联合使用分开。<br>
-    <br>
-    从这些报道可以明显看出，未来中国军队最有权威和权力的将领，除了军委主席外，应该就是上述的总参谋长(或者仿美军称参谋长联席会议主席)；陆、海、空三军(或许还有某个新军种)总司令、四大战区司令以及国防部长。这些将领毫无疑问，当是新的中央军委人选。<br>
-    <br>
-    至于中央军委副主席，博闻社曾经报道指，未来中央军委副主席的功能将大大弱化，甚至可能会取消。海外有报道指，新的中央军委有可能恢复设立军委秘书长一职。军委秘书长这个职务自江泽民开始被取消，代之是军委办公厅主任。习近平大学毕业后就是到军委秘书长耿飙手下任秘书的。<br>
-    <br>
-    当然，最新公布的军改方案显示，中央军纪委要升格，同时成立新的军委政法委，所以军纪委书记很有可能也是新的军委委员之一。至于新成立的军委政法委书记，暂时没理由揣测将会中央军委委员一员。<br>
-    <br>
-    值得一提的是，尽管政治思想工作未来仍然是中共军队的“灵魂”，但总政治部在未来中央军委总部的角色可能会大大减弱，甚至可能会成为军委内部的职能机构，这与徐才厚把持时，总政治部权倾一时相比较，给人大有矫枉过正的感觉。<br>
-    <br>
-    至此，我们基本上捋清了未来新的中央军委可能的组成成份，由此我们也可以估计到未来军委人数可能为11至13人(视乎是否设副主席以及是否有新的军种成立)，与现在中央军委委员人数差不多。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_43862.html">新的中央军委都由什么人组成？中共军改趋议（三）</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512010858" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1770858       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 7天前</small>
 </p>
 <table>
     <tr>
