@@ -65,6 +65,63 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512090914.shtml" target="boxun-mirror">习近平：再对军改提异议就是阻力，要坚决清除！请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平：再对军改提异议就是阻力，要坚决清除！<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512090914" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    【博闻社独家】中共军改雷厉风行，但是阻力不小。博闻社获悉，针对军中中高层还有不少人对这次军改表示疑虑，“反映意见”，军委主席习近平近日在一份“意见书”上批示:凡是11月24日之前对军改的异议是建议，之后的异议是阻力，“必须坚决清除”!今天出版的《解放军报》则罕有公开“天机”，坦示习近平是这次军改的“决策定盘星”，似有将军队不满的矛头引向习近平之意。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       博闻社记者从军中知情者获悉，11月24日中央军委召开军委改革会议，习近平亲自在会上就军队改革，特别是军委总部、战区改革的部署发表讲话，很显然，当局这样安排，目的就是要告诫全军，由军队最高统帅宣布，这就是这次军改的最后决策，不容置疑。<br>
+    <br>
+    但是方案宣布后，仍然有不少将领，特别是中高级将领顾虑重重，意见纷纷，这种异音通过各种渠道呈送到军委主席办公室，引起习近平不满。<br>
+    <br>
+    军方消息人士透露，习近平近日在一份关于军队改革意见的汇总上，严厉批示:凡是11月24日之前对军队改革提出不同看法的的，属于建议；凡是11月24日之后提出的异议，一律视为阻力，“必须坚决清除”!该批示已经传达到军一级。<br>
+    <br>
+    令人关注的是，中共军队喉舌《解放军报》今天（12月8日）发表一篇关于军改的评论，强调要“着力统一思想认识”，解决军中对军改的“喧哗之议”，而且公开宣称，这次军改，“习主席决策是定盘星”!大有将军中不满引向习近平之意。<br>
+    <br>
+    这篇题为《着力统一思想认识――十一论认真学习贯彻习主席在中央军委改革工作会议上的重要讲话》的评论，发表在今天《解放军报》头版，文章指出，深化国防和军队改革，举国关注，世界瞩目。强大的舆论场在为改革创造有利条件的同时，也会出现一些杂音噪音，特别是一些别有用心的炒作，或多或少影响官兵思想稳定。<br>
+    <br>
+    文章强调，众声喧哗之际，需要的是保持思想定力、政治定力，把党中央、中央军委和习主席的决策部署作为“定盘星”和“压舱石”。<br>
+    <br>
+    文章称，越是推进伟大的事业，越需要统一思想；越是完成艰巨的任务，越需要凝聚共识。“要坚决打赢深化国防和军队改革这场攻坚战，必须按照习主席的要求，着力统一思想认识。”<br>
+    <br>
+    文章指，这轮改革，是一场整体性、革命性变革，不仅要重构组织形态，还要重塑力量体系；不仅要调动“棋子”，还要调整“棋盘”，任务之重、领域之广、程度之深、力度之大，前所未有。<br>
+    <br>
+    面对这样一场深刻变革，一些同志思想上比较活跃、认识上有些偏差是正常的，比如，信心不足、害怕困难、存在顾虑、畏首畏尾，等等。改革的启动键已经按下，攻坚的冲锋号已经吹响。当此之时，最需要非改不可的共识、破釜沉舟的胆魄，最需要务期必成的信心、攻坚克难的决心，汇聚起拥护支持参与改革的意志和力量。<br>
+    <br>
+    改革是一场自我革命。无论是撤并降改，还是进退去留，都可能使官兵产生一些想法，出现一些波动。如何看待眼前与长远、局部与全局、个人与组织的关系，最能检验一个人的党性修养、思想觉悟、人品官品。<br>
+    <br>
+    只有坚持以党和军队事业为重，把有利于改革强军作为个人选择取舍的根本标尺，坚决跳出局部和个人利益的小圈子，才能不断强化思想自觉、政治自觉、行动自觉，在时代大考中交出合格答卷。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_46126.html">习近平：再对军改提异议就是阻力，要坚决清除!</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512090914" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3430914       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512080303.shtml" target="boxun-mirror">巴黎气候大会习近平失分王毅保乌纱拼命拍马补救请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -793,44 +850,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512020059" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512010940341.jpg http://upload.bx.tl/news/temp13/201512010940342.jpg http://upload.bx.tl/news/temp13/201512010940343.jpg http://upload.bx.tl/news/temp13/201512010940344.jpg http://upload.bx.tl/news/temp13/201512010940361.jpg http://upload.bx.tl/news/temp13/201512010940362.jpg http://upload.bx.tl/news/temp13/201512010940363.jpg http://upload.bx.tl/news/temp13/201512010940364.jpg http://upload.bx.tl/news/temp13/201512010940281.jpg--> 2870059       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512021308.shtml" target="boxun-mirror">习近平念念不忘令完成巴黎“习奥会”再提遣返请看博讯热点：令计划</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平念念不忘令完成 巴黎“习奥会”再提遣返<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512021308" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】中国国家主席习近平抢总理李克强的风头，亲自赴法国巴黎出席联合国气候变化大会，本社日前已做了分析报道。本社近日还获悉，原来习大大此次越俎代庖赴巴黎，除了要表示中国对气候变化的重视，以及强化自己的国际形象外，还有一个“不可告人”的“小目的”，那就是借在巴黎与奥巴马会晤之机，再度当面提出要求美方遣返目前滞留在美国的令计划胞弟令完成。<br>
-    <br>
-     博闻社特约记者从巴黎北郊勒布尔热独家报道，这次中美元首巴黎会晤，与以前中美两国元首会面的奢华宫廷或者美丽庄园不同，是在一间略显简陋的狭小教室内，习近平和奥巴马在教桌顶端的课椅上，在人数十分有限的现场记者面前进行课堂辩论。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    两人的话题是南辕北辙，习近平强调中美两国应把握构建新型大国关系的正确方向极为重要，合力推动本届气候变化大会实现预期目标。奥巴马则强调美中有责任采取行动，在应对气候变化问题上的领导能力至关重要。同样地，两国元首又扯到各自关心的问题。习关心的是台湾问题，而奥巴马关心的是中国人权、网络安全和南海问题。<br>
-    <br>
-    令美方意想不到的是，习近平竟然、、、（<a href="http://bowenpress.com/news/bowen_44104.html">博闻社报道全文</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512021308" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2151308       
 <hr>
 <table width="620"><tr><td>
 <b></p>
