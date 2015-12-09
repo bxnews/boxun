@@ -120,7 +120,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512080303.shtml" target="boxun-mirror">巴黎气候大会习近平失分王毅保乌纱拼命拍马补救请看博讯热点：习近平观察</a>
 </h2>
