@@ -19,6 +19,52 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512090133.shtml" target="boxun-mirror">武汉数千市民连日游行示威反垃圾转运站多人被抓捕请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>武汉数千市民连日游行示威反垃圾转运站多人被抓捕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512090133" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      湖北省武汉市黄陂区盘龙城经济开发区的数千市民，本月6至9日连续三天游行示威，抗议政府在居民区修建大型垃圾固体废弃物转运站，有多名市民在示威期间遭警察抓捕。<br>
+    <br>
+    市民表示，该垃圾转运站选址在几十万人的居民区，距离最近的学校仅有几百米，距离阳光城和美景天城小区只有400多米，而且该项目靠近后湖，垃圾中转站里的垃圾残液有渗透到后湖、导致水质污染的危险。后湖是盘龙城的“母亲湖”，辐射人口超过几十万，市民不希望后湖变成第二个沙湖和南湖。<br>
+    <br>
+    12月6日，部分市民率先发起示威，在盘龙城内集会。7日，市民在黄陂区政府门口进行抗议后，又于当晚发起数千人规模的示威，聚集在巨龙大道名流人和天地门口进行抗议，当地政府出动大量警察到场驱逐市民，有4人被抓捕。<br>
+    <br>
+    网友“托马斯-磊”发帖说：12月7日，盘龙城巨龙大道名流人和天地门口聚集数千名当地居民，强烈抵制政府在盘龙城中心地带3500亩后湖畔建设固体物垃圾转化站，盘龙城管委会与区刘局长用特警抓四人拖往市局，以此杀鸡敬猴！深夜凌晨仍在僵持，马路已水泄不通！<br>
+    <br>
+    8日上午，市民继续到武汉市政府进行抗议，但无果。当天晚上7点开始，市民再次到巨龙大道游行，截止到当天深夜，示威仍在持续，有大批警察在现场驱逐市民，期间又有多名市民遭到殴打和抓捕。<br>
+    <br>
+    现场图片以及视频显示，大批的市民手持“反建垃圾站、还居民健康”等条幅，将交通阻断，数名市民被警察打倒在地并抓捕，其余市民在一旁大喊“还我健康、放人”等口号，场面混乱。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512090133china1.jpg" alt="武汉数千市民连日游行示威反垃圾转运站多人被抓捕"><p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512090133china2.jpg" alt="武汉数千市民连日游行示威反垃圾转运站多人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512090133china3.jpg" alt="武汉数千市民连日游行示威反垃圾转运站多人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512090133china4.jpg" alt="武汉数千市民连日游行示威反垃圾转运站多人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512090133china5.jpg" alt="武汉数千市民连日游行示威反垃圾转运站多人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512090133china6.jpg" alt="武汉数千市民连日游行示威反垃圾转运站多人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512090133china7.jpg" alt="武汉数千市民连日游行示威反垃圾转运站多人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512090133china8.jpg" alt="武汉数千市民连日游行示威反垃圾转运站多人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512090133china9.jpg" alt="武汉数千市民连日游行示威反垃圾转运站多人被抓捕"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512090133" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512081017031.jpg http://upload.bx.tl/news/temp13/201512081017032.jpg http://upload.bx.tl/news/temp13/201512081017033.jpg http://upload.bx.tl/news/temp13/201512081017034.jpg http://upload.bx.tl/news/temp13/201512081017181.jpg http://upload.bx.tl/news/temp13/201512081017182.jpg http://upload.bx.tl/news/temp13/201512081017183.jpg http://upload.bx.tl/news/temp13/201512081017184.jpg http://upload.bx.tl/news/temp13/201512081017231.jpg--> 2560133       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512080303.shtml" target="boxun-mirror">巴黎气候大会习近平失分王毅保乌纱拼命拍马补救请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -788,17 +834,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512021309.shtml" target="boxun-mirror">独家：军改四大战区改五大月内宣布主将任命</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：军改四大战区改五大 月内宣布主将任命<br><font color="#000fC0">(<small>博讯北京时间2015年12月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512021309" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社独家】博闻社从接近中国军方高层的人士了解到，中共军队改革方案又出现重大调整，原定全国划分为东、南、西、北四大战区，现决定增加一个中部战区，作为战时拱</td></tr></p>
 <p>
 	<small> ============== 7天前</small>
 </p>
