@@ -19,6 +19,25 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100321.shtml" target="boxun-mirror">湖北武汉反垃圾示威升级数千人与警冲突掀翻警车请看博讯热点：突发事件</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>湖北武汉反垃圾示威升级数千人与警冲突掀翻警车<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512100321" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      湖北省武汉市黄陂区盘龙城经济开发区的数千市民与警察发生冲突，多名市民遭到警察殴打，30余人被抓捕，一辆警车被愤怒的市民掀翻。<br>
+    <br>
+    为抗议政府在数十万人的居民区修建大型垃圾固体废弃物转运站，盘龙城居民于本月6日发起示威，7日开始，数千市民加入示威，并连续两天晚上将盘龙城内的交通阻断，期间有多名市民遭警察殴打和抓捕。<br>
+    <br>
+    12月9日傍晚开始，市民继续聚集到盘龙大道上将交通阻断，9点左右，大批警察到达现场，开始暴力驱逐示威市民，警察殴打了包括妇女在内多名市民，并抓走多人，引发市民不满，将一辆警车掀翻。<br>
+    <br>
+    目击网友“用户5788638131”发帖说：群众站起来维权了，可市里一再的敷衍群众，激起了民愤，甚至派特警武警，防暴都出动了，随意抓人打人毒打居民，不管男女老少，还有的还在母乳期都不放过啊。<br>
+    <br>
+    另一名目击网友“Long_</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512090133.shtml" target="boxun-mirror">武汉数千市民连日游行示威反垃圾转运站多人被抓捕请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -821,37 +840,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512032116.shtml" target="boxun-mirror">智囊刘鹤获奖学界质疑，学者挑战习近平？请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>智囊刘鹤获奖学界质疑，学者挑战习近平？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512032116" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <a href="http://bowenpress.com/news/bowen_44204.html">博闻社报道</a>，2015年11月14日，第16届孙冶方经济科学奖颁奖仪式在浙江财经大学举行，在多位获奖者中，被视为是习近平财经心腹智囊的中共中央财经领导小组办公室主任、国务院发改委副主任刘鹤，以一部《两次全球大危机的比较研究》获得论文奖。获奖消息传出，有批评者质疑评委会在评选时有非学术因素在内，即「唯上拍马」之嫌。<br>
-    <br>
-     孙冶方经济科学奖由孙冶方基金会主持评奖，后者隶属于中国社科院经济研究所。此次评奖结果出来后，中国社科院马克思主义研究学部主任程恩富直接质疑，「为什麽要将该奖项颁给刘鹤」，质疑刘获奖论文的经济观点「真的那麽重要吗？」，中国社科院院长王伟光也对主持评奖的经济所提出批评，要求该所对评奖施加影响，对孙冶方基金会加强管理。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    王伟光大胆敢言，自称是刘云山的人，知情者透露，这是王伟光自吹。此事</td></tr></p>
 <p>
 	<small> ============== 7天前</small>
 </p>
