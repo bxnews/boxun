@@ -67,6 +67,19 @@
 <p>
 	<small> ============== 2小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100952.shtml" target="boxun-mirror">独家：中共五大战区及陆军五分部指挥中心曝光请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：中共五大战区及陆军五分部指挥中心曝光<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512100952" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】博闻社获悉，中共军改措施已全面</td></tr></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100321.shtml" target="boxun-mirror">湖北武汉反垃圾示威升级数千人与警冲突掀翻警车请看博讯热点：突发事件</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -783,57 +796,6 @@
                 <br><b></b><center>习氏王朝的难堪兼谈愤青和五毛/日本荒川一舟<br><font color="#000fC0">(<small>博讯北京时间2015年12月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201512040325" target="_new">支持此文作者/记者</a></small>)</font>
 </center>
                 <!--bodystart-->     （博讯编者按：这是来自日本的投稿，算是日本人对政治文化的一些看法。作者荒川一舟自己撰</td></tr></p>
-<p>
-	<small> ============== 6天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512042341.shtml" target="boxun-mirror">董文标回国背后：中纪委劝返，白天上班晚上检查</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>董文标回国背后：中纪委劝返，白天上班晚上检查<br><font color="#000fC0">(<small>博讯北京时间2015年12月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512042341" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】中国全国工商联副主席、中国民生投资股份有限公司(中民投)董事局主席、原民生银行董事长董文标借开会为名，买通中共高层为其违规担保出境，外逃两个月，在媒体穷追猛问之下，日前回国高调亮相，欲显示其“没有问题”。但本社获悉，董此次回来，是中纪委派员海外政策攻心、厉害相陈，终被劝返。董回国后，白天正常上班，晚上要接受组织调查。当局让其亮相，有稳定中国民企军心之意。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    11月21日，被指“借机遁逃”滞外不归已经两个月的董文标，被曝已返回北京。巨人网络董事长、中民投董事史玉柱当天发微博称：当天中民投在北京召开重要会议，董文标主持了会议。这是近两个月以来，董文标首度在境内现身。微博同时配发了一张照片，董文标现身其间，笑容可掬，似乎显示之前有关他的传言都是不实之词。<br>
-    但是知情者对博闻社指，董文标回国，实为中纪委派人到海外对他劝返的。由于其案涉中共金融高官，中共一方面组织力量赶赴海外劝说董文标，“晓之以情，动之以理”劝返；另一方面动用海外布局切断政治庇护退路，并通过包括国内的亲属在内的人员“亲情帮教”软硬兼施促使董文标“自动回国”。<br>
-    <br>
-    消息来源披露，因为董文标外逃一案还牵涉中共高层官违规担保，事件更为复杂化，如果他拒绝回国，为他担保的中共高官将出问题，故为他担保的高官也不余余力的助阵游说劝返董文标。<br>
-    <br>
-    消息指，中纪委要劝返董文标，不仅因为其曾经治下的中国民生银行财务混乱，账目不清，呆账如山急需董文标对账清理；更重要的是作为几乎已经揪出的另外一只金融大鳄的重要人证在关键时刻逃出中纪委的辖地，几乎让该案的重要案情处于死无对证的境地。<br>
-    <br>
-    消息指，董文标主政民生银行其间，留下一屁股烂账，其中一家民企贷款70亿，另外一家贷款17亿，都是经董的手批出，“有去无回”。<br>
-    <br>
-    对此，为了稳定民间资本市场，中共在董文标回去后安排其公开露面，正常上班；而在晚上被要求配合调查组交代和核实案件具体线索。<br>
-    <br>
-    本社曾独家披露，董文标因获戴相龙赏识，戴相龙坐上央行行长后，董文标又成为新成立的民生银行首任行长、后任董事长，全国工商联副主席。故此董文标被视为是戴相龙的心腹重臣，戴的女婿车峰就是在董一手相助下，成为海通证券实际掌控人，并打造出一个戴氏财富王国。<br>
-    <br>
-    据悉，当年在海通证券上市前，戴相龙女婿车峰旗下鼎和创业投资曾设法通过民生银行贷款6个亿，购买海通证券的5亿股。给车峰提供巨额贷款的民生银行，时任行长正是董文标。外界视董为戴相龙的心腹重臣。但随着戴相龙传被中纪委立案调查，特别是戴的女婿车峰今年初被拘查后，董文标的前景不妙，已越来越明显。捕1获<br>
-    <br>
-    2015年1月31日，民生银行行长毛晓峰被中纪委宣布调查后，董文标已经感到靠山动摇，自己尚有许多说不清的事情无法摆脱。“三十六计走为上”对董而言或许是最好的选择。<br>
-    <br>
-    本社曾独家披露，中共要对金融界进行反贪腐，诸多目标人物都与他有关，有高层人士暗示他出去“避避风头”。董选择中共总书记习近平访美期间违规出国。但是，因涉中共高层贪腐案被边控的董文标，在两名现任政治局委员担保下于9月26日借开会之名出逃日本。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_44723.html">“董文标回国”背后 中纪委劝返，白天上班晚上检查</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512042341" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1292341       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 6天前</small>
 </p>
