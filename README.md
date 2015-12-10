@@ -19,6 +19,54 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100950.shtml" target="boxun-mirror">独家：徐明死前两小时仍在跑步，他杀疑云越来越浓请看博讯热点：王立军、薄熙来</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：徐明死前两小时仍在跑步，他杀疑云越来越浓<br><font color="blue" size="2">请看博讯热点：<a href="/hot/wangjilun.shtml">王立军、薄熙来
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512100950" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社】中国前实德集团和实德俱乐部董事长徐明是12月4日在湖北武汉的狱中去世的，据悉，死后5小时左右即被火化。但消息至6日才传出，首先由香港与台湾的媒体透露。中国官方媒体当日只有相关简讯，次日网上传出一份管制禁令：“各地各网站，原实德俱乐部董事长徐明狱中因病去世一事，严格和中央媒体统一口径，不得擅自报道炒作。注意清理网上攻击中央领导的评论”。本报从知情人士获悉，徐明在死前两小时还在跑步，死后几个小时即被迅速火化，他杀疑云逾浓。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    12月6日，大陆腾讯财经《棱镜》报道，从包括徐明家人在内的三个信源处确认，大连实德创始人徐明12月4日在武汉死亡，“病发心肌梗塞”。实德某高管透露，在此之前并未听说徐明有心肌梗塞疾病。实德高管以及接近徐家知情人士都表示，听到徐明去世的消息，都觉得太意外了。<br>
+    <br>
+    据悉，徐明最后确定的是4年刑期，将于2016年刑满，因在狱中表现不错，会提前释放；同日，《北京青年报》旗下微信公号“政知圈”发出文章，题为《死在释放前的徐明 44年里的五个“1”》；与此同时，大陆“财新网”亦有题为《大连实德原董事长徐明病死狱中 为薄熙来案主要行贿者（更新）》的文章。观察显示，目前上述三篇文章均已被删除。<br>
+    <br>
+    有观察人士认为，这些文章中都提到一个共同的人物――戴永革。<br>
+    <br>
+    公开报道显示，戴永革是徐明的老朋友。早在2009年前，戴永革与徐明就有互动关系。《棱镜》文章指，从2014年底开始，徐明将于2015年内归来的消息便在大连商界传开。<br>
+    <br>
+    徐明被带走后的实德集团，曾一度每月需偿还的利息近1亿元。三年来，徐明的胞兄与“最信任的人”先后救场。而徐明“最信任的人”就是戴永革。此人为哈尔滨仁和集团老板。2012年10月，其以实德集团重组的“新话事人”身分现身。由此，徐斌也彻底退居二线，戴永革团队成为实德重组的实际控制方。<br>
+    <br>
+    但无法因此推测上述三篇文章被删除是源于提及戴永革，按照大陆新闻管制习惯，相关报道基本都是通稿模式，各大新闻机构必须原文转载，即便是在“新闻白名单”上的媒体也一样。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_46278.html">独家：徐明死前两小时仍在跑步，他杀疑云越来越浓</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512100950" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1370950       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100321.shtml" target="boxun-mirror">湖北武汉反垃圾示威升级数千人与警冲突掀翻警车请看博讯热点：突发事件</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -788,60 +836,6 @@
 <b></p>
 <p>
 	<small> ============== 6天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512032010.shtml" target="boxun-mirror">紫禁城来鸿：巴黎气象峰会习近平为什么不高兴？</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁城来鸿：巴黎气象峰会习近平为什么不高兴？<br><font color="#000fC0">(<small>博讯北京时间2015年12月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201512032010" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <small>奥巴马到巴黎后先去恐袭现场献花</small><br>
-     <img src="http://bowenpress.com/wp-content/uploads/2015/12/092c6afcd642fd37eda503eecc6fb064-300x200."><table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    巴黎世界气象变化大会已经结束几天，各国领导人已相继离去。但是关于峰会的一些不被人知的内幕陆续爆光。博闻社特约记者获悉，中国国家主席习近平在离开巴黎时并不开心，而是一脸阴沉，陪同的中国外交部高官更是一个个敛声屏气。习近平为何不悦？原因与法国方面毫无关系，问题出自中国外交部。<br>
-    <br>
-    博闻社此前曾有报道，对今年9月状况不断的美国之旅，习近平曾责成外交部深刻检讨；此次法国之行，尽管未曾出现诸如访民拦车之类的窘境，但在习近平行程的具体安排上，外交部出现了明显的“重大疏忽“:没有想到大会前刚刚发生巴黎恐怖袭击致逾百人死亡的特大事件，外交部完全疏忽了安排习近平前往巴黎恐怖袭击地点为遇难者献花和默哀。<br>
-    <br>
-    而同时与会的美国总统奥巴马、日本首相安倍晋三，都去了现场献花表示哀悼，令外媒形容中国领导人“冷血”、“没有人性”，习近平对此大表不满。<br>
-    <br>
-    <small>安倍也去献花</small><br>
-    <img src="http://bowenpress.com/wp-content/uploads/2015/12/8a38ef15772cafb04789a7778aff64ab"><br>
-    <br>
-    博闻社特约记者了解到，习近平本来对这次巴黎气象峰会给与高度重视，认为是展现中国对世界重大事务负责任形象的大好机会，为此习近平冒着被舆论垢病的可能，还在在政治局会议上提出，从国库拿出200亿美元，当做“礼物”，在气象大会上宣布用于帮助贫穷国家治理环境。此举当然获得了大会一些掌声。<br>
-    <br>
-    但是，当习近平得知，刚刚到达巴黎的美国总统奥巴马和日本首相安倍晋三，都不约而同出现在巴黎街头，为恐怖袭击遇难者献花时，习近平才恍然大悟，他丢掉了一个最能讨好西方和世界舆论的机会，忘了去恐怖袭击现场走一圈，献一束花!堂堂一个新崛起大国领袖，号称人类最有道德传统的中华民族代表，竟然对一百多条<br>
-    <br>
-    生命被无辜夺去事件，“淡然处之”，不少西方媒体表示愕然。<br>
-    <br>
-    <small>习近平在巴黎忙于自我表现出现重大失误</small><br>
-    <img src="http://bowenpress.com/wp-content/uploads/2015/12/c9fde20fd03e82b2cce033fc19f5260b"><br>
-    <br>
-    博闻社记者获悉，习近平对此大表不满，迁怒于中国外交部部长王毅，认为外交部对活动安排“有问题”，“不能够相机应变”，“这是一个严重的失误”，让中国在奥巴马和安倍面前“丢分”。习近平当场要求外交部“好好地检讨，吸取教训”。<br>
-    <br>
-    中国外交部在重大国事活动中出现”低等错误“的状况，并不罕见，博闻社曾经多次报道。消息显示，做为外交部长的王毅，其能力或已受到质疑，离“下课”已经为期不远。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201512032010" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1952010       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 7天前</small>
 </p>
 <table>
     <tr>
