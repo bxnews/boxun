@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100952.shtml" target="boxun-mirror">独家：中共五大战区及陆军五分部指挥中心曝光请看博讯热点：习近平观察</a>
 </h2>
@@ -78,7 +78,7 @@
     <br>
      【博闻社独家】博闻社获悉，中共军改措施已全面</td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100321.shtml" target="boxun-mirror">湖北武汉反垃圾示威升级数千人与警冲突掀翻警车请看博讯热点：突发事件</a>
 </h2>
@@ -97,7 +97,7 @@
     <br>
     另一名目击网友“Long_</td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512090133.shtml" target="boxun-mirror">武汉数千市民连日游行示威反垃圾转运站多人被抓捕请看博讯热点：突发事件</a>
 </h2>
@@ -249,7 +249,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512080303.shtml" target="boxun-mirror">巴黎气候大会习近平失分王毅保乌纱拼命拍马补救请看博讯热点：习近平观察</a>
 </h2>
@@ -319,7 +319,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512080306.shtml" target="boxun-mirror">中共成立战略支援军含火箭电子航太三大兵种请看博讯热点：习近平观察</a>
 </h2>
@@ -352,7 +352,7 @@
     <br>
     战略支援军下辖第三个兵种叫航太兵，将空军、二炮部队、几大</td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512071113.shtml" target="boxun-mirror">独家：中共新军委总部机关各委部局主官全爆光</a>
 </h2>
@@ -367,7 +367,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512060023.shtml" target="boxun-mirror">视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难请看博讯热点：打压媒体和记者</a>
 </h2>
@@ -469,7 +469,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512060852.shtml" target="boxun-mirror">独家：习近平密友刘源上将确定出任军纪委书记请看博讯热点：习近平观察</a>
 </h2>
@@ -518,7 +518,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512060921.shtml" target="boxun-mirror">世界气候大会中国叫穷习近平电慰“坚持到最后一刻”</a>
 </h2>
@@ -566,7 +566,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512051613.shtml" target="boxun-mirror">保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光</a>
 </h2>
@@ -629,7 +629,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512050332.shtml" target="boxun-mirror">博闻社独家：中共新军委内设三委六部一办三局请看博讯热点：习近平观察</a>
 </h2>
@@ -642,7 +642,7 @@
     <br>
      【博闻社独家】中共军改一旦开展如火如荼。本社获悉，新成立的军委机构设置已确定，分为三委、六部、一</td></tr></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512041043.shtml" target="boxun-mirror">李作成出任陆军司令陆军下辖五部分管18个集团军请看博讯热点：习近平观察</a>
 </h2>
@@ -690,7 +690,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512042350.shtml" target="boxun-mirror">中共欲借世界气候大会自我贴金效果适得其反</a>
 </h2>
@@ -787,7 +787,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2015/12/201512040325.shtml" target="boxun-mirror">习氏王朝的难堪兼谈愤青和五毛/日本荒川一舟</a>
 </h2>
@@ -797,7 +797,7 @@
 </center>
                 <!--bodystart-->     （博讯编者按：这是来自日本的投稿，算是日本人对政治文化的一些看法。作者荒川一舟自己撰</td></tr></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p>
 <table>
     <tr>
