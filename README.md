@@ -19,6 +19,54 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512110634.shtml" target="boxun-mirror">中国网民因微博转发中国武器流入ISIS纪录片被捕请看博讯热点：伊拉克战争</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中国网民因微博转发中国武器流入ISIS纪录片被捕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/iraq.shtml">伊拉克战争
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512110634" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社】11月23 日，本社《罕见视频：中国军火流落ISIS手中》http://bowenpress.com/?p=42262报道以后引发反响，近日更有报道称中国网民因在微博上转发中国武器流入ISIS纪录片被捕。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    该视频报道，有ISIS的儿童训练员教授当地儿童使用中国制造的武器片段。至于这些武器军火如何流入ISIS手中，互联网上的一些敏感信息反映：“第一 中国的武器已经流入isis之手 不管途径如何 总之isis手上大把中国武器 第二 片里从基地组织叛逃过来的一口咬定 基地组织听命于巴基斯坦”<br>
+    <br>
+    众所周知，巴基斯坦与中国的政治关系。近日，北京官方喉舌人民网，发表专文，盘点中国的“全天候朋友”（即“没有矛盾与冲突，自始至终是朋友”者）。题为：放眼全球，谁才是中国的“全天候好朋友”？<br>
+    <br>
+    盘点的结果，全球只有十四个。其中，亚洲一个：巴基斯坦。<br>
+    <br>
+    一匿名网友称：“中国军火商有钱就是娘不是一天两天的了・・・・・・ISIS能有中国制的武器其实根本不意外，中国几年前就是世界第三大军火商，仅次于美国和俄罗斯，而且论节操比前两者无疑更低是了，基本就是有钱就卖，只要你不是用来打中国的。。。当然了，现在这环境谁知道它们转几手后会不会打着你呢？”<br>
+    <br>
+    “在和尚的面前不说亮”，对于揭露伤疤者，中共一贯的手法就是“不惜除之以后快”，昨天晚上一篇微博显示，转载发布此视频的网名已经被带走。<br>
+    <br>
+    网名imlibra925 写道 “近日，知乎（网）的一个问题引起了网民的关注。提问者的男友由于在微博上发布了一个关于ISIS如何教授儿童用枪的纪录片被以散发宣扬恐怖主义视频资料罪刑拘，而且不允许律师会见。后据说被批捕，预计要判处2-3年有期徒刑，且无取保候审或减刑的可能。截至9日，提问者已经删除了大部分答案内容，但由于知乎的回答日志功能，历史记录依然可见。”<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_46832.html">中国网民因在微博上转发中国武器流入ISIS纪录片被捕</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512110634" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1070634       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100950.shtml" target="boxun-mirror">独家：徐明死前两小时仍在跑步，他杀疑云越来越浓请看博讯热点：王立军、薄熙来</a>
 </h2>
 <p><tr>
@@ -786,16 +834,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2015/12/201512040325.shtml" target="boxun-mirror">习氏王朝的难堪兼谈愤青和五毛/日本荒川一舟</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习氏王朝的难堪兼谈愤青和五毛/日本荒川一舟<br><font color="#000fC0">(<small>博讯北京时间2015年12月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201512040325" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     （博讯编者按：这是来自日本的投稿，算是日本人对政治文化的一些看法。作者荒川一舟自己撰</td></tr></p>
 <p>
 	<small> ============== 7天前</small>
 </p>
