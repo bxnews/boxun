@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 26分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100950.shtml" target="boxun-mirror">独家：徐明死前两小时仍在跑步，他杀疑云越来越浓请看博讯热点：王立军、薄熙来</a>
 </h2>
