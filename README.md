@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512130649.shtml" target="boxun-mirror">朝鲜牡丹峰乐团忽然取消演出中朝关系破裂？</a>
 </h2>
