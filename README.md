@@ -67,7 +67,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 16分钟前</small>
+	<small> ============== 21分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512131340.shtml" target="boxun-mirror">独家：五大战区司令“难产”军委扩大会议或延后请看博讯热点：习近平观察</a>
 </h2>
