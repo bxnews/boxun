@@ -63,7 +63,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512150525.shtml" target="boxun-mirror">石油系贪腐“蚁穴”重重中纪委拿中石化香港开刀</a>
 </h2>
@@ -429,7 +429,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512090914.shtml" target="boxun-mirror">习近平：再对军改提异议就是阻力，要坚决清除！请看博讯热点：习近平观察</a>
 </h2>
@@ -638,7 +638,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512062326.shtml" target="boxun-mirror">薄熙来的“钱袋子”徐明死狱中高官和名星舒了口气请看博讯热点：王立军、薄熙来</a>
 </h2>
@@ -665,7 +665,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512062031.shtml" target="boxun-mirror">参谋总长房峰辉下课对台将领蔡英挺接捧</a>
 </h2>
