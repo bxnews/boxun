@@ -19,6 +19,52 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512160238.shtml" target="boxun-mirror">广东普宁数千村民游行示威抗议垃圾焚烧项目请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>广东普宁数千村民游行示威抗议垃圾焚烧项目<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512160238" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      周二（12月15日），广东省普宁市云落镇数千村民发起游行示威，抗议政府强行开工兴建大型垃圾焚烧发电项目，捣毁部分在建的项目设备。<br>
+    <br>
+    据村民透露，落户在云落镇石示坑村的普宁市生活垃圾焚烧发电厂，并未征得村民同意，2013年以来，村民就此发起多次游行示威，但当地政府仍决定在近期动工。<br>
+    <br>
+    村民表示，如该项目建成，云落镇及至整个云山地区将承受巨大的环境污染，当地的地下水资源、土壤、空气都会被污染，成为云落镇村民日后罹患疾病、导致先天畸形甚至招致癌症骤增的重要源头。<br>
+    <br>
+    村民“520YANCI”发帖说：市政府强行建设焚烧垃圾场，选址不当，无征收手续，未经整个镇的百姓同意，强行建设，导致今天上万人游行，部分学校停课。<br>
+    <br>
+    现场图片以及视频显示，大批村民、学生手持国旗从各村汇集到项目所在地，有大量警察在中途阻拦未果，项目所在地的部分设施被村民捣毁。<br>
+    <br>
+    村民“黄燕丽yaner”发帖说：云落垃圾焚烧厂创建是对我们全普宁市都有致命的影响，作为我们普宁人，一定要强力，付出生命去抵抗。一定不要让政府把致命的毒气厂建在我们的家园。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512160238china1.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"><p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512160238china2.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512160238china3.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512160238china4.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512160238china5.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512160238china6.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512160238china7.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512160238china8.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512160238china9.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512160238" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512151122221.jpg http://upload.bx.tl/news/temp13/201512151122222.jpg http://upload.bx.tl/news/temp13/201512151122223.jpg http://upload.bx.tl/news/temp13/201512151122224.jpg http://upload.bx.tl/news/temp13/201512151122321.jpg http://upload.bx.tl/news/temp13/201512151122322.jpg http://upload.bx.tl/news/temp13/201512151122323.jpg http://upload.bx.tl/news/temp13/201512151122324.jpg http://upload.bx.tl/news/temp13/201512151122371.jpg--> 1180238       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512150525.shtml" target="boxun-mirror">石油系贪腐“蚁穴”重重中纪委拿中石化香港开刀</a>
 </h2>
 <p><tr>
@@ -768,54 +814,6 @@
 </center>
             <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china1.jpg" width="600" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china2.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china3.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china4.jpg" width="600" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china5.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china6.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china7.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china8.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china9.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china10.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china11.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china12.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china13.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china14.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china15.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china16.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china17.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china18.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china19.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china20.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china21.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china22.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china23.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china24.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china25.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china26.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china27.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china28.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china29.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china30.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china31.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china32.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china33.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china34.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china35.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china36.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china37.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china38.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china39.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china40.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china41.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china42.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china43.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china44.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china45.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china46.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china47.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china48.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china49.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china50.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china51.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china52.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china53.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china54.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china55.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china56.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china57.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china58.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china59.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china60.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china61.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china62.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china63.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china64.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china65.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china66.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china67.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china68.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china69.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china70.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china71.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china72.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china73.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china74.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china75.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china76.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china77.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china78.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china79.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china80.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china81.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china82.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br>    <img src="http://www.boxun.com/news/images/2015/12/201512051613china83.jpg" alt="保密资料《辽宁省虚拟身份信息分析系统全省集中式建设技术方案》曝光"><br><br> [博讯来稿]  <!--(Modified on 2015/12/05)--> <!--bodyend-->       
            (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512050047331.jpg http://upload.bx.tl/news/temp13/201512050047332.jpg http://upload.bx.tl/news/temp13/201512050047333.jpg http://upload.bx.tl/news/temp13/201512050047334.jpg http://upload.bx.tl/news/temp13/201512050048481.jpg http://upload.bx.tl/news/temp13/201512050048482.jpg http://upload.bx.tl/news/temp13/201512050048483.jpg http://upload.bx.tl/news/temp13/201512050048484.jpg http://upload.bx.tl/news/temp13/201512050049341.jpg http://upload.bx.tl/news/temp13/201512050049342.jpg http://upload.bx.tl/news/temp13/201512050049343.jpg http://upload.bx.tl/news/temp13/201512050049344.jpg http://upload.bx.tl/news/temp13/201512050050181.jpg http://upload.bx.tl/news/temp13/201512050050182.jpg http://upload.bx.tl/news/temp13/201512050050183.jpg http://upload.bx.tl/news/temp13/201512050050184.jpg http://upload.bx.tl/news/temp13/201512050051011.jpg http://upload.bx.tl/news/temp13/201512050051012.jpg http://upload.bx.tl/news/temp13/201512050051013.jpg http://upload.bx.tl/news/temp13/201512050051014.jpg http://upload.bx.tl/news/temp13/201512050054071.jpg http://upload.bx.tl/news/temp13/201512050051261.jpg http://upload.bx.tl/news/temp13/201512050052121.jpg http://upload.bx.tl/news/temp13/201512050052122.jpg http://upload.bx.tl/news/temp13/201512050052123.jpg http://upload.bx.tl/news/temp13/201512050055381.jpg http://upload.bx.tl/news/temp13/201512050055382.jpg http://upload.bx.tl/news/temp13/201512050055383.jpg http://upload.bx.tl/news/temp13/201512050055384.jpg http://upload.bx.tl/news/temp13/201512050056361.jpg http://upload.bx.tl/news/temp13/201512050056362.jpg http://upload.bx.tl/news/temp13/201512050056363.jpg http://upload.bx.tl/news/temp13/201512050056364.jpg http://upload.bx.tl/news/temp13/201512050057311.jpg http://upload.bx.tl/news/temp13/201512050057312.jpg http://upload.bx.tl/news/temp13/201512050057313.jpg http://upload.bx.tl/news/temp13/201512050057314.jpg http://upload.bx.tl/news/temp13/201512050059251.jpg http://upload.bx.tl/news/temp13/201512050059252.jpg http://upload.bx.tl/news/temp13/201512050059253.jpg http://upload.bx.tl/news/temp13/201512050059254.jpg http://upload.bx.tl/news/temp13/201512050100231.jpg http://upload.bx.tl/news/temp13/201512050100232.jpg http://upload.bx.tl/news/temp13/201512050100233.jpg http://upload.bx.tl/news/temp13/201512050100234.jpg http://upload.bx.tl/news/temp13/201512050101201.jpg http://upload.bx.tl/news/temp13/201512050101202.jpg http://upload.bx.tl/news/temp13/201512050101203.jpg http://upload.bx.tl/news/temp13/201512050101204.jpg http://upload.bx.tl/news/temp13/201512050102381.jpg http://upload.bx.tl/news/temp13/201512050102382.jpg http://upload.bx.tl/news/temp13/201512050102383.jpg http://upload.bx.tl/news/temp13/201512050102384.jpg http://upload.bx.tl/news/temp13/201512050103571.jpg http://upload.bx.tl/news/temp13/201512050103572.jpg http://upload.bx.tl/news/temp13/201512050103573.jpg http://upload.bx.tl/news/temp13/201512050103574.jpg http://upload.bx.tl/news/temp13/201512050105451.jpg http://upload.bx.tl/news/temp13/201512050105452.jpg http://upload.bx.tl/news/temp13/201512050105453.jpg http://upload.bx.tl/news/temp13/201512050105454.jpg http://upload.bx.tl/news/temp13/201512050106481.jpg http://upload.bx.tl/news/temp13/201512050106482.jpg http://upload.bx.tl/news/temp13/201512050106483.jpg http://upload.bx.tl/news/temp13/201512050106484.jpg http://upload.bx.tl/news/temp13/201512050107471.jpg http://upload.bx.tl/news/temp13/201512050107472.jpg http://upload.bx.tl/news/temp13/201512050107473.jpg http://upload.bx.tl/news/temp13/201512050107474.jpg http://upload.bx.tl/news/temp13/201512050108531.jpg http://upload.bx.tl/news/temp13/201512050108532.jpg http://upload.bx.tl/news/temp13/201512050108533.jpg http://upload.bx.tl/news/temp13/201512050108534.jpg http://upload.bx.tl/news/temp13/201512050109471.jpg http://upload.bx.tl/news/temp13/201512050109472.jpg http://upload.bx.tl/news/temp13/201512050109473.jpg http://upload.bx.tl/news/temp13/201512050109474.jpg http://upload.bx.tl/news/temp13/201512050110471.jpg http://upload.bx.tl/news/temp13/201512050110472.jpg http://upload.bx.tl/news/temp13/201512050110473.jpg http://upload.bx.tl/news/temp13/201512050110474.jpg http://upload.bx.tl/news/temp13/201512050111201.jpg http://upload.bx.tl/news/temp13/201512050111202.jpg--> 271613       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512051140.shtml" target="boxun-mirror">陆军总部全曝光李作成司令刘雷任政委彭勃副司令请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>陆军总部全曝光 李作成司令 刘雷任政委 彭勃副司令<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512051140" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】本社昨日独家报道中共军改新立的陆军总部，司令由现成都军区司令李作成上将出任；本社又获悉，陆军政委将由兰州军区政委刘雷出任；兰州军区副司令彭勃任陆军副司令；张书国任陆军部政治部主任。陆军总部设现北京军区联勤部驻地。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    博闻社获悉，中共推行军改堪称雷厉风行，军令如山倒，通宵达旦执行。昨天本社已披露，原成都军区司令李作成出任新成立的陆军司令；而李上周已从成都赶往北京筹备陆军总部。博闻社又获悉，陆军政委将由原兰州军区政委刘雷出任。<br>
-    <br>
-    现年58岁的刘雷山东茌平县人，国防大学联合战役指挥专业毕业，研究生学历。现任兰州军区政治委员、中国人民解放军中将。<br>
-    <br>
-    1973年12月参军后曾在兰州军区第21集团军服役13年。1986年6月任兰州军区政治部干部部科技干部处副团职干事，后升任科技干部处处长。1994年12月任兰州军区政治部干部部副部长，后转任新疆军区步兵某师政委。<br>
-    <br>
-    2003年6月担任南疆军区政治部主任。2004年7月晋升为少将军衔。2007年1月，升任第21集团军政委，担任全国人大代表。2013年7月，担任新疆军区政委，同年11月兼任中共新疆维吾尔自治区党委常委。2014年7月晋升中将军衔。2014年12月，升任兰州军区政治委员。<br>
-    <br>
-    博闻社还获悉，原兰州军区副司令彭勃，将出任陆军副司令。60岁的彭勃河南洛宁县底张乡磨头村人。1970年12月入伍。历任战士、班长、排长、连长、营长，师作训科副科长，团参谋长、团长，师参谋长、副师长、116师长，39集团军参谋长。2005年任沈阳军区40集团军军长。2012年12月任兰州军区副司令员。2014年7月晋升中将军衔<br>
-    <br>
-    1998年率部参加东北地区抗洪抢险，中央电视台《新闻联播》节目予以专题报道。2002年，中央军委选调7人赴俄罗斯深造大兵团作战科目一年，彭勃为其中之一。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_44963.html">陆军总部主将全曝光 李作成司令 刘雷任政委 彭勃副司令</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512051140" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 431140       
 <hr>
 <table width="620"><tr><td>
 <b></p>
