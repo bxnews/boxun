@@ -70,7 +70,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 26分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512160238.shtml" target="boxun-mirror">广东普宁数千村民游行示威抗议垃圾焚烧项目请看博讯热点：突发事件</a>
 </h2>
