@@ -19,6 +19,20 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512180804.shtml" target="boxun-mirror">中石化桃色丑闻众高管共享公共情妇（附亲笔信）请看博讯热点：情妇反腐</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中石化桃色丑闻 众高管共享公共情妇（附亲笔信）<br><font color="blue" size="2">请看博讯热点：<a href="/hot/qingfu.shtml">情妇反腐
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月18日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512180804" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart--> <center><font size="4"><b> 《博讯》杂志11月号 转载务必注明出处</b></font></center>
+<br>
+    <br>
+    2015年9月30日晚上11</td></tr></p>
+<p>
+	<small> ============== 19分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512170801.shtml" target="boxun-mirror">独家:乌镇世界网络大会"小米加步枪"保习近平安全</a>
 </h2>
 <p><tr>
@@ -804,54 +818,6 @@
     <br>
     博闻社报道全文：<a href="http://bowenpress.com/news/bowen_45344.html">独家：习近平密友刘源上将确定出任军纪委书记</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512060852" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3730852       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512060921.shtml" target="boxun-mirror">世界气候大会中国叫穷习近平电慰“坚持到最后一刻”</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>世界气候大会中国叫穷 习近平电慰“坚持到最后一刻”<br><font color="#000fC0">(<small>博讯北京时间2015年12月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201512060921" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】世界气候大会仍在进行，由于发达国家与发展中国家对污染减排、资金、技术等方面承担的责任难以达成一致，包括中国坚持自己是发展中国家，要求从发达国家获得资金和技术支持,大会难达公识。与会的中国代表团长解振华备感压力，关键时刻解接到正在非洲的国家主席习近平亲自致电，要求代表团「坚持到最后一刻」、「坚决完成任务」。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    有舆论质疑，中国在要求国际货币基金(IMF)将人民币纳入特别提款单位货币篮子时，豪称自己已是世界第二大贸易体，但在气候大会要出钱时，则喊穷自己是「发展中国家」，实在令人难以置信。<br>
-    <br>
-    博闻社特约记者从法国巴黎北郊勒布林热大会现场了解到，本次巴黎气候大会无论是东道主法国还是主办方联合国，都十分期盼与会各方最终设定2020-2030全球减排目标，并由此开启全球各国气候变化合作的崭新阶段。但气候变化牵涉各国利益，令「马拉松」式的谈判千头万绪，截至目前结果仍充满变数。已返回纽约的联合国秘书长潘基文再次亲临现场督阵。<br>
-    <br>
-    据了解，本次气候大会首位目标是，与会190多个国家与地区签署一份控温普遍协议，将全球温度上升控制在2摄氏度以内。如何达到这一目的，就要要体现出发达国家、发展中国家历史责任不同、能力不同、发展水平不同的区别。具体来说，就是发达国家应率先采取措施限制温室气体排放，并向发展中国家提供有关资金和技术。<br>
-    <br>
-    这资金是多少呢？根据有关组织计算和建议，到2020年，发达国家每年应会出1000亿美元，帮助穷国减排，消除贫困和改善民众生活。<br>
-    <br>
-    博闻社记者了解到，中国不是没有钱，这次习近平亲自出席气候大会，就宣布中方将拨出200亿美元，助贫穷国家改善环境；从巴黎去非洲访问，又豪掷600亿美元资助非洲发展。习大大出去一趟，已豪洒了五千亿人民币，那都是中国人民的血汗钱。中国有钱，但北京不想自己在气候大会被划入「富人圈」，所以死活要标榜自己是「发展中国家」。<br>
-    <br>
-    博闻社特约记者从大会现场了解到，从中国的态度可以看出，巴黎气候大会要达成一致，谈何容易！为达到这一目的，率领中国代表团出席联合国气候大会的团长解振华已使出浑身解数，但进展不大，使他备感压力。解振华在接受采访时承认，谈判桌上目前存在多方面分歧，「进展缓慢，不容乐观」。<br>
-    <br>
-    在博闻社此前的报导曾特别提醒，如果2009年哥本哈根气候大会的闹剧(即大会因上述同样原因而未有任何进展)重演，中国政府将颜面扫地。<br>
-    <br>
-    博闻社记者获悉，正在这时，在非洲访问的国家主席习近平亲自打来的电话，习在电话中要求中国代表团“坚持到最后一刻”，并且要“坚决完成任务”。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_45201.html">独家：世界气候大会中国叫穷 团长解振华压力大 习近平电慰“坚持到最后一刻”</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201512060921" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3940921       
 <hr>
 <table width="620"><tr><td>
 <b></p>
