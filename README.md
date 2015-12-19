@@ -19,6 +19,55 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512190603.shtml" target="boxun-mirror">中共军改灭杂音师以上军官人人写服从安排申请书请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共军改灭杂音 师以上军官人人写服从安排申请书<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512190603" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】中共军队改革阻力丛生，尤其中低级将领因涉及个人利益情绪不断。为推行改革，当局除继续舆论施压，又在组织上采取措施。博闻社获悉，军委最近在全军推行“服从组织安排，做革命螺丝钉”政治教育运动，师级以上军官要写“服从组织安排”申请书，并按指模手印备存，不从者立即安排转业退役，搞得军中无人敢公开非议。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    军方消息人士对博闻社指，这次全军搞“服从组织安排，做革命螺丝钉”政治教育运动，由军委总政治部布置，总政主任张扬上将签令发布。这大概也是总政在军改前的“最后演出”，不久总政将改组，成为新军委的一个内设机构；据传张扬将继续出任新的军委政治工作部主任一职。<br>
+    <br>
+    根据总政要求，全军各级指战员都要认真学习贯彻11月24日军委改革会议有关文件精神，特别是军委主席习近平在会上的讲话指示，要从党、军队和国家利益的高度谈认识，特别是排以上领导干部，并要结会军改实际谈个人体会，并就军改问题表态。<br>
+    <br>
+    军方消息对博闻社透露，这次政治教育运动其中一项主要内容，是不分军、兵种，凡师以上军官不管是否已明确去向，都要人人写一份“服从组织安排”的申请书，并且要按指模手印，由各集团军政治部上交各大军区政治部汇总备案。这是一项硬性任务，拒绝者按不服从组织处理、立即安排转业退役。<br>
+    消息指，之所以要求师以上军官写此申请书，是因为此次军改，这一级军官杂音较多，且群体较大。他们大多在45-50岁左右，经20、30年军旅拼打，到了一定的级别，有了较稳定的家庭生活，因此对军改再度把他们投入颠荡生活，意见较多、想法最多。<br>
+    <br>
+    军方消息指，这次军改由于动作大、军队机关缩编多，导致大量军官(特别是陆军)要向部队基层下沉，或转岗到新战区其它部门，例如济南军区、兰州军区两大军区，由于改革后并非战区指挥中心所在，只作为陆军分部驻地，每区都有数千校、将级军官要“另找出路”，以致营区人心惶惶，流言蜚语不断。<br>
+    <br>
+    军方人士指，近期《解放军报》已针对此情况陆续刊发多篇文章，在舆论上施加压力、疏导，其中，12月15日军报刊出《党员干部要努力交出党和人民满意答卷》指：单位撤并降改、部队转地换防，30万官兵将脱下军装，面临再次择业、家属安置、孩子上学等现实困难。在这一牵涉多方及个人利益的变更中，必须“令下，绝对服从”。<br>
+    <br>
+    文章指，在实际军改过程中，军中出现了“坐等观望”、“喝倒彩”、“帮倒忙”的情况。要求被裁撤的官兵“在位一分钟、干好六十秒”，军人要在面临大考中交出“让人民满意的答卷”。要统一思想，“绝不许乱发议论、软顶硬抗、搞变通”。<br>
+    <br>
+    博闻社详细报道：<a href="http://bowenpress.com/news/bowen_49227.html">独家：中共军改灭杂音 师以上军官人人写服从安排“申请书”</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512190603" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2840603       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512180804.shtml" target="boxun-mirror">中石化桃色丑闻众高管共享公共情妇（附亲笔信）请看博讯热点：情妇反腐</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -769,55 +818,6 @@
     <br>
     －
  [博讯来稿] <!--bodyend-->(博讯 boxun.com) <br><!----> 2142031       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512060852.shtml" target="boxun-mirror">独家：习近平密友刘源上将确定出任军纪委书记请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：习近平密友刘源上将确定出任军纪委书记<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512060852" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】本社获悉，现任军委总后勤部政委的刘源上将，已确定出任新成立的中央军委军纪委书记。军纪委在中央军委三委六部一办三局中排列第一，地位尤重，故刘源掌军纪委后很大可能会成为新的中央军委委员。军内普遍认为，刘源掌军纪委是名至实归。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    接近中共军方高层的消息人士对博闻社透露，军委主席习近平已签署了对中央军委内设机构“三委六部一办三局”的主帅名单，其中第一位就是军纪委书记人选，果然不出外界所料，由总后勤部政委刘源上将出任。这也与外界的判断与期待相符合。<br>
-    <br>
-    消息人士指，虽然军纪委书记仍为大军区正职级别，但因地位重要，很可能会在未来中央军委委员中占有一席，即刘源很大可能会成为新的中央军委委员。“刘源出掌中央军纪委，不仅仅是因为他和习近平是一起长大、志同道合的同志和朋友，更是符合军内的呼声和要求的安排。”知情者对博闻社指。<br>
-    <br>
-    消息人士告诉博闻社，与刘源搭档的是沈阳军区政治部主任杨成熙中将，杨将出任军委纪委副书记，副大军区职。<br>
-    <br>
-    现年60岁的杨成熙贵州遵义人，1973入伍，在工程兵当战士，后任团保密员、昆明军区司令部连职秘书、营教导员、某集团军坦克旅政治部副主任、成都军区政治部组织部部长、某集团军副政委、云南省军区政治委员；2013任沈阳军区政治部主任。今年7月晋升为中将军衔。<br>
-    刘源作为中共前国家主席刘少奇的儿子，素被外界贴上“太子党”的标签，但自从他2010年出任总后勤部政委、硬把后台是时任中央军委副主席徐才厚的“军中大蛀虫”、总后副部长谷俊山中将拉下马，从而让习近平也有机会把徐才厚、郭伯雄这两个军中大老虎拿下后，刘源获得“军中王岐山”称号。<br>
-    <br>
-    知情人士对博闻社指，刘源为军队高层打虎立下一功后，恢复低调，隐于幕后，特别是习近平确定要进行军队改革、重组军委总部后，他极少公开发言，甚至传出刘源要在军改后，退出实权部门、出任虚职的传言。知情者指“其实那也是刘源的真实想法”。<br>
-    <br>
-    知情者透露，习近平虽与刘源是从小块长大的密友，但为了军纪委一职，习还是两次找刘谈话，要刘继续“为了保住父辈打下的江山分担重任”，现在终于定案，大概习应该放下心了。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_45344.html">独家：习近平密友刘源上将确定出任军纪委书记</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512060852" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3730852       
 <hr>
 <table width="620"><tr><td>
 <b></p>
