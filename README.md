@@ -65,6 +65,50 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/finance/2015/12/201512200427.shtml" target="boxun-mirror">紫禁来鸿：中央经济工作会议沦为中央工作检讨大会</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>紫禁来鸿：中央经济工作会议沦为中央工作检讨大会<br><font color="#000fC0">(<small>博讯北京时间2015年12月20日</small> <small>转载</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】尽管2015年12月18日是个吉利的日子，但一延再延和一拖再拖的中共中央经济工作会议，还是在北京的雾霾天气下，于京西宾馆撩开了神秘而朦胧的面纱。本社获悉，迄今为止，这次会议重点是检讨2015年工作与失误，故将会议称为“检讨大会”或更确切。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社从中南海知情人士处了解到，在此之前，中国国家主席习近平外访回到北京后，就已经匆匆主持召开了中央全会和党外人士座谈会，并且大谈经济工作和城市发展等问题；随后便前往浙江乌镇，出席所谓世界互联网大会。<br>
+    <br>
+    另一方面，此次习近平下江南竟然缺席了于近在咫尺南京举行的大屠杀纪念日；不仅如此，也没有按通常惯例顺便特别安排，对沿途街坊邻居进行嘘寒问暖或者走进农家村舍“亲民活动”。<br>
+    <br>
+    尽管官媒一致声称中央经济工作会议将对明年中国经济定调。但博闻社获悉，事实上定义本次会议为检讨大会更加确切；中共高层对2015年的工作进行闭门思过，成为这两天的“主旋律”。<br>
+    <br>
+    中南海知情者披露，习近平要求中宣部将本次会议对外宣传的重点，放在2015年的优异成绩和2016年美好展望上；在内部则要求所有与会者全面深刻地反思去年工作中的重大失误甚至失职。<br>
+    <br>
+    据了解，在18、19两天京西宾馆会议上，习近平重点讲了天津巨爆、股市暴跌、外访安排失当、美国对台军售和台湾大选评估等事项；并对货币政策、国企转型、军队改革、人事安排、明年两会和G20峰会筹备等进行紧张磋商和部署。<br>
+    <br>
+    迄今为止，官媒对今夏中共北戴河会议只字未提，正在进行的中央经济工作会议，只有一天对2016年的工作进行展望。不过，200多名与会代表也不可能对上头早已确定的目标提出什么意见。随着20日会议的“圆满成功”，赞歌势必将“一浪高过一浪”。<br>
+    <br>
+    博闻社详细报道：<a href="http://bowenpress.com/news/bowen_49558.html">紫禁城来鸿：中央经济工作会议沦为中央工作检讨大会</a>
+ <!--bodyend-->(博讯 boxun.com) <br><!----> 2390427       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512190603.shtml" target="boxun-mirror">中共军改灭杂音师以上军官人人写服从安排申请书请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -108,6 +152,52 @@
     <br>
     博闻社详细报道：<a href="http://bowenpress.com/news/bowen_49227.html">独家：中共军改灭杂音 师以上军官人人写服从安排“申请书”</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512190603" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2840603       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2天前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512192144.shtml" target="boxun-mirror">军方少将证实刘源退役“向总后告别"讲话全文曝光</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>军方少将证实刘源退役  “向总后告别"讲话全文曝光<br><font color="#000fC0">(<small>博讯北京时间2015年12月19日</small> <small>来稿</small>)</font>
+</center>
+                <!--bodystart-->      【博闻社】北京时间12月19日，前中共中央调查部部长罗青长之子、“中国战略文化促进会常务副会长兼秘书长”罗援少将，在其新浪个人微博转贴盛传是军纪委掌门热门候选人、总后政委刘源在总后勤部的讲话记录，透露盛传要升任中央军委军纪委书记的刘源，要解甲归田的信息。这是首有中共军方将领公开证实外传刘源要退役的传闻。<br>
+    <br>
+     罗援在微博中为刘源的告别辞写了一份简短的感言，文中写到：“一位朋友传给我一份刘源政委的告别词《心中永存――向总后勤部告别》，看后催人泪下，令人感奋。这是一名革命军人的心灵告白，这是一部堂堂正正的正气歌”。罗援还在文中对刘源表达了赞赏和祝福，称“他（刘源）不计个人家庭名利得失，忠心耿耿为党为民”、“祝愿刘源政委保重、愉悦”。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    分析认为，此次军改被视为中共建政后最大的军事改革动作，利益纠葛难度是难以想象的。因为涉及高层将领利益，军队高层内部出现不少分歧，各机构负责人迟迟难产。包括38名现役上将在内，近两千高级将领必然面对“走转并留”，如何安抚选调并安抚因此而造成的人心浮动，乃是最为棘手的问题。在此背景下，若刘源主动响应，自告奋勇请辞，便具有相当丰富的意义。<br>
+    <br>
+    对刘源本人来说，他生于1951年2月，按照正大军区级将领65岁退役两三个月后将“解甲”，但若进军委则可以顺序延长服役年限。两种结果都有可能，但如果选择前者必然获得不恋栈的美名，就如同十八大时胡锦涛未效仿江泽民继续执掌军权，赢得“高风亮节”赞誉，令其人格魅力大涨。<br>
+    WeChat_1450506936<br>
+     而对习近平来说，刘源举动舍生取义，将无疑对军改腹诽的高级将领产生压制和示范效应，令其不敢轻举妄动。毕竟，即使反腐功勋卓著的刘源也主动情愿下台，其他高级将领更无理由以个人利益阻挠改革。这无疑为习近平解除僵局贡献了最后一份余热。<br>
+    <br>
+    以下为刘源上将的讲话全文，罗援少将表示未经刘本人审阅，有所删减：<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_49398.html">查看刘源告别演讲：心中永存<br>
+    ――向总后勤部告别</a><br>
+    <br>
+    总后勤部政委 刘 源 上将
+ [博讯来稿] <!--bodyend-->(博讯 boxun.com) <br><!----> 1972144       
 <hr>
 <table width="620"><tr><td>
 <b></p>
@@ -767,67 +857,6 @@
 <b></p>
 <p>
 	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512060023.shtml" target="boxun-mirror">视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难请看博讯热点：打压媒体和记者</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512060023" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    最近，家属传来中国央视新闻姜野飞董广平被遣返视频，很明显姜野飞遭到了殴打、虐待。视频中明显可以看到姜野飞左眼乌青，摄制方有意回避左眼，近距离镜头侧对着姜野飞右脸拍摄。姜野飞说话姿态、语气显得非常吃力，似乎内脏、胸腹腔受到打击，伸腰显得困难，伸腰时脸部有痛苦表情。<br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/2YJmBKouDu8" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    观察截屏远近镜头，眼部不正常：<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp13/201512050918291.png" width="500"></div>
-<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp13/201512050918292.png" width="500"></div>
-<br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512060023china3.jpg" alt="视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难"><p><br>
-    明显可以看到，姜野飞说话吃力：<br>
-    </p>
-<div align="center"><img src="http://upload.bx.tl/news/temp13/201512050918294.png" width="500"></div>
-<br>
-    健康自由时的姜野飞：<br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512060023china5.jpg" alt="视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难"><p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512060023china6.jpg" alt="视频显示：姜野飞遭到警方殴打，眼睛乌青说话困难"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512060023" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512050918291.png http://upload.bx.tl/news/temp13/201512050918292.png http://upload.bx.tl/news/temp13/201512050918293.jpg http://upload.bx.tl/news/temp13/201512050918294.png http://upload.bx.tl/news/temp13/201512050920351.jpg http://upload.bx.tl/news/temp13/201512050920352.jpg--> 3570023       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512062326.shtml" target="boxun-mirror">薄熙来的“钱袋子”徐明死狱中高官和名星舒了口气请看博讯热点：王立军、薄熙来</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>薄熙来的“钱袋子”徐明死狱中 高官和名星舒了口气<br><font color="blue" size="2">请看博讯热点：<a href="/hot/wangjilun.shtml">王立军、薄熙来
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512062326" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     （博讯网报道）前实德集团和实德俱乐部董事长徐明12月4日在湖北武汉的狱中因心脏病去世，终年44岁，但其去世消息12月6日才由港台媒体曝光。报道称，徐明猝死后遗体迅速火化，骨灰6日运回大连。<img src="http://www.boxun.com/news/images/2015/12/201512061334china4.jpg"><br>
-    2012年王立军逃亡美领馆，引发薄熙来倒台。博讯网在<a href="/news/gb/china/2012/03/201203170449.shtml">2012年3月就披露，</a>徐明卷入薄熙来案，报道披露：“大连实德集团总裁徐明通过给一些官员送现金，帮助薄熙来的升迁。”媒体报道，徐明除了给薄熙来输送金钱，还送名星美女供其享乐。<br>
-    <br>
-    徐明为薄熙来之子薄瓜瓜花二百万欧元在欧洲买楼在2013年被曝光。徐明最后一次露面是庭审薄熙来时出庭对质，薄熙来否认收受徐明2000万的好处。<br>
-    <br>
-    <img src="<div" align="center"><img src="http://img1.gtimg.com/news/pics/hv1/196/148/1980/128787436.png" width="500">><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/sdAqRNtHRcg" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    徐明突然死于狱中，外界不少质疑声，著名法学者藤彪推特（‏@tengbiao）说：被高层灭口才更有可能吧？<br>
-    <br>
-    做为薄熙来的钱袋子、美女输送者的徐明，应该掌握更多不为人所知的秘密，他的突然去世，让那些被握有把柄的官员和名星们，长长舒了一口气。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512062326" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2482326       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
 </p>
 <table>
     <tr>
