@@ -63,7 +63,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4分钟前</small>
+	<small> ============== 9分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512190603.shtml" target="boxun-mirror">中共军改灭杂音师以上军官人人写服从安排申请书请看博讯热点：习近平观察</a>
 </h2>
