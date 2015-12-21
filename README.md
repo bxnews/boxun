@@ -632,7 +632,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12天前</small>
+	<small> ============== 13天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512092127.shtml" target="boxun-mirror">黑龙江政治难民汪宝峰致国家主席习近平的公开信之一请看博讯热点：警察、官员恶行</a>
 </h2>
