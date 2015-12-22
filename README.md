@@ -315,7 +315,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512150525.shtml" target="boxun-mirror">石油系贪腐“蚁穴”重重中纪委拿中石化香港开刀</a>
 </h2>
@@ -681,7 +681,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 13天前</small>
+	<small> ============== 14天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512090914.shtml" target="boxun-mirror">习近平：再对军改提异议就是阻力，要坚决清除！请看博讯热点：习近平观察</a>
 </h2>
