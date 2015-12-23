@@ -71,7 +71,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512200425.shtml" target="boxun-mirror">独家：中办设彭丽媛办公室专责习近平私人外交公关请看博讯热点：习近平观察</a>
 </h2>
@@ -369,7 +369,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512150525.shtml" target="boxun-mirror">石油系贪腐“蚁穴”重重中纪委拿中石化香港开刀</a>
 </h2>
@@ -735,7 +735,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 14天前</small>
+	<small> ============== 15天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512090914.shtml" target="boxun-mirror">习近平：再对军改提异议就是阻力，要坚决清除！请看博讯热点：习近平观察</a>
 </h2>
