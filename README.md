@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 29分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512250606.shtml" target="boxun-mirror">刘源辞要职助习近平推军改徐才厚余党暂掌军纪委请看博讯热点：习近平观察</a>
 </h2>
@@ -98,7 +98,7 @@
     <br>
     根据博闻社12月6日获得的消息，刘源本</td></tr></p>
 <p>
-	<small> ============== 29分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512250542.shtml" target="boxun-mirror">广东云落反垃圾示威升级万人与警冲突全镇变战场请看博讯热点：突发事件</a>
 </h2>
@@ -119,7 +119,7 @@
     <br>
     目击网友“</td></tr></p>
 <p>
-	<small> ============== 29分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512230355.shtml" target="boxun-mirror">e租宝事件升级7省34市上万人联合示威多地被镇压请看博讯热点：突发事件</a>
 </h2>
