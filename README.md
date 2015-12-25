@@ -19,6 +19,108 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512250603.shtml" target="boxun-mirror">独家：中共年末“两会”故弄虚玄与画饼充饥</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：中共年末“两会”  故弄虚玄与画饼充饥<br><font color="#000fC0">(<small>博讯北京时间2015年12月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512250603" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】与通常意义的每年3月召开的全国政协与全国人大「两会」不同，本月18日至21日，中共在年末例行召开中央经济工作会议同时，罕有地同时召开中央城市工作会议；后者为中共改革开放37年来首次次，且规格之高超出1978年那次。官方媒体高调宣传报道年末「两会」。本次年末两会真的如官媒所描绘的那么邪乎吗？ 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社从中南海获悉，中共罕见的年末两会，其实可以用两句话描述：故弄虚玄与画饼充饥。一是向中国民众务虚的「画饼」；另一句则是务实的工作检讨。如果说真正从积极意义而言，年末两会对2015年中央各项工作进行全面而深刻的检讨，倒是值得一提。<br>
+    <br>
+    中央经济工作会议还未结束，博闻社就披露，今年的中央经济工作会议一开幕，中共总书记习近平担钢主讲，要求与会人员，从政治局常委到中央委员以及出席或列席会议的其他各部委和省市官员，都要「深刻反思和检讨」2015年工作中的失误乃至失职。<br>
+    <br>
+    中南海消息向博闻社透露，因为需要检讨的问题成堆，所以本次中央经济工作会议不得不延长一天才勉强宣告结束，开了整整四天，会期长度是历年最长；而且为防会期过长引发外界对中国政局和经济的负面猜测，当局同时召开所谓中央城市工作会议，为1978年以来再次。<br>
+    <br>
+    博闻社了解到，中共官媒对本次年末两会的高调宣传，其实纯粹是配合习李向中国民众画饼充饥，没有任实质意义和新意；所谓亮点其实乏善可陈，大部份是偷换概念和旧瓶装新酒而已。<br>
+    <br>
+    有与会者对本社指，会上对高层提出的所谓「供给侧改革」提法，曾存在不同争论，认为该提法就是传统的供给改革，加多个侧字，玩虚玄，但概念模糊不清，而且很难让公众理解，最后只是为了强调所谓新意、显示本届政府有创意，才勉强表决通过。<br>
+    <br>
+    会上应习、李的要求，对今年六、七月中国股市爆跌进行了深刻反思，但并未真正找到良策，最后只是老调重弹要「防范金融风险」。推出一项最新的做法就是，下令全国银行等金融机构，立即将各自的网路系统与最高人民检察院并网，以便检察院可以随时监控货币流动情况。<br>
+    <br>
+    此举被与会者视为「走回头路」、多此一举。有与会者向博闻社记者笑言：如此做法，不过是在一行三会(央行和银监、证监、保监会)的头上，再加多个婆婆，而且「这位婆婆势必要活到老学到老，增加很多金融人才和金融知识才行。<br>
+    <br>
+    而所谓中央城市工作会议，博闻社了解到，其实是专门针对已经发生的天津巨爆和深圳山泥崩塌埋没工业园的城市「人祸」，以及各地民众对所居城市周边的众多化工和污染等潜在安全隐患项目接连爆发的抗议示威活动，增加一个高层议论的场所，与现有的城市管理体制的做法完全无二致，充其量只显示出习李高层对城市工作的「重视」。<br>
+    <br>
+    博闻社相信报道全文<a href="http://bowenpress.com/news/bowen_50718.html">独家：中共年末“两会”  故弄虚玄与画饼充饥</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512250603" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2140603       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512250606.shtml" target="boxun-mirror">刘源辞要职助习近平推军改徐才厚余党暂掌军纪委请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>刘源辞要职助习近平推军改 徐才厚余党暂掌军纪委<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512250606" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    <br>
+     【博闻社独家】12月19日，前中共中央调查部部长罗青长之子、解放军背景的中国战略文化促进会常务副会长兼秘书长罗援少将，在其新浪个人微博转贴解放军总后勤部政委刘源上将在总后勤部的告别讲话记录，刘源透露他将解甲归田，从而间接证实他不会出任新成立的中央军委军纪委书记一职的传闻。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    本社了解获悉，刘源是两度与习近平密谈后，作出有关决定的，其目的是在目前军队改革因涉及人事问题遇到阻力情况下，刘源主动让位，以董存瑞炸雕堡方式，舍生取义，帮助习推动军队改革。而刘源让出的军纪委书记一职，将暂由现任军纪委书记杜金才出任。<br>
+    <br>
+    根据博闻社12月6日获得的消息，刘源本</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512250542.shtml" target="boxun-mirror">广东云落反垃圾示威升级万人与警冲突全镇变战场请看博讯热点：突发事件</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>广东云落反垃圾示威升级万人与警冲突全镇变战场<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512250542" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      已持续十日的广东省普宁市云落镇村民反垃圾焚烧项目的示威周四（12月24日）升级，上万村民、学生与上千警察在镇上多处发生激烈冲突，一所学校和十余辆警车被砸，大量学生、村民被打伤抓捕。街道上到处是催泪弹产生的浓烟、被砸毁的警车、全副武装的警察以及受伤的示威者，一片狼籍形同战场。<br>
+    <br>
+    为抗议政府强行将一个大型垃圾焚烧发电项目落户在云落镇石示坑村，云落镇数万村民已持续维权长达两年，近期，当地政府又不顾村民反对，强行动工修建该项目，愤怒的村民于本月15日发起大规模示威并持续至今，期间，镇上多所中小学校的学生曾罢课声援。<br>
+    <br>
+    周四上午10点左右，多个村的大批村民再次聚集镇上老圩广场游行抗议，同时，云联中学、云落中学的数千学生也全面罢课加入，因学校不愿放行，愤怒的学生一度冲入学校，砸毁了大量学校设备。<br>
+    <br>
+    期间，上万游行的村民、学生与上千警察在镇上多处发生了激烈冲突，大量图片以及视频显示，现场催泪弹发出的巨响、示威者的喊叫声不绝于耳，大批警察手持警棍、盾牌在追打一些落单的示威者，一些示威者不断向警察投掷砖石。街道上到处是催泪弹产生的浓烟、被砸毁的警车、全副武装的警察以及头破血流的示威者，一片狼籍形同战场。<br>
+    <br>
+    目击网友“zhx1212”发帖说：特警就是打人民，打无辜的百姓吗，连小孩学生都打，还把人拉进政府里面打，我们保护我们的家园有错吗，垃圾焚烧厂选址不当，政府高官受贿赂，连学校的校长都被收买。<br>
+    <br>
+    目击网友“</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512230355.shtml" target="boxun-mirror">e租宝事件升级7省34市上万人联合示威多地被镇压请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -736,166 +838,6 @@
 <b></p>
 <p>
 	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512090914.shtml" target="boxun-mirror">习近平：再对军改提异议就是阻力，要坚决清除！请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平：再对军改提异议就是阻力，要坚决清除！<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512090914" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    【博闻社独家】中共军改雷厉风行，但是阻力不小。博闻社获悉，针对军中中高层还有不少人对这次军改表示疑虑，“反映意见”，军委主席习近平近日在一份“意见书”上批示:凡是11月24日之前对军改的异议是建议，之后的异议是阻力，“必须坚决清除”!今天出版的《解放军报》则罕有公开“天机”，坦示习近平是这次军改的“决策定盘星”，似有将军队不满的矛头引向习近平之意。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       博闻社记者从军中知情者获悉，11月24日中央军委召开军委改革会议，习近平亲自在会上就军队改革，特别是军委总部、战区改革的部署发表讲话，很显然，当局这样安排，目的就是要告诫全军，由军队最高统帅宣布，这就是这次军改的最后决策，不容置疑。<br>
-    <br>
-    但是方案宣布后，仍然有不少将领，特别是中高级将领顾虑重重，意见纷纷，这种异音通过各种渠道呈送到军委主席办公室，引起习近平不满。<br>
-    <br>
-    军方消息人士透露，习近平近日在一份关于军队改革意见的汇总上，严厉批示:凡是11月24日之前对军队改革提出不同看法的的，属于建议；凡是11月24日之后提出的异议，一律视为阻力，“必须坚决清除”!该批示已经传达到军一级。<br>
-    <br>
-    令人关注的是，中共军队喉舌《解放军报》今天（12月8日）发表一篇关于军改的评论，强调要“着力统一思想认识”，解决军中对军改的“喧哗之议”，而且公开宣称，这次军改，“习主席决策是定盘星”!大有将军中不满引向习近平之意。<br>
-    <br>
-    这篇题为《着力统一思想认识――十一论认真学习贯彻习主席在中央军委改革工作会议上的重要讲话》的评论，发表在今天《解放军报》头版，文章指出，深化国防和军队改革，举国关注，世界瞩目。强大的舆论场在为改革创造有利条件的同时，也会出现一些杂音噪音，特别是一些别有用心的炒作，或多或少影响官兵思想稳定。<br>
-    <br>
-    文章强调，众声喧哗之际，需要的是保持思想定力、政治定力，把党中央、中央军委和习主席的决策部署作为“定盘星”和“压舱石”。<br>
-    <br>
-    文章称，越是推进伟大的事业，越需要统一思想；越是完成艰巨的任务，越需要凝聚共识。“要坚决打赢深化国防和军队改革这场攻坚战，必须按照习主席的要求，着力统一思想认识。”<br>
-    <br>
-    文章指，这轮改革，是一场整体性、革命性变革，不仅要重构组织形态，还要重塑力量体系；不仅要调动“棋子”，还要调整“棋盘”，任务之重、领域之广、程度之深、力度之大，前所未有。<br>
-    <br>
-    面对这样一场深刻变革，一些同志思想上比较活跃、认识上有些偏差是正常的，比如，信心不足、害怕困难、存在顾虑、畏首畏尾，等等。改革的启动键已经按下，攻坚的冲锋号已经吹响。当此之时，最需要非改不可的共识、破釜沉舟的胆魄，最需要务期必成的信心、攻坚克难的决心，汇聚起拥护支持参与改革的意志和力量。<br>
-    <br>
-    改革是一场自我革命。无论是撤并降改，还是进退去留，都可能使官兵产生一些想法，出现一些波动。如何看待眼前与长远、局部与全局、个人与组织的关系，最能检验一个人的党性修养、思想觉悟、人品官品。<br>
-    <br>
-    只有坚持以党和军队事业为重，把有利于改革强军作为个人选择取舍的根本标尺，坚决跳出局部和个人利益的小圈子，才能不断强化思想自觉、政治自觉、行动自觉，在时代大考中交出合格答卷。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_46126.html">习近平：再对军改提异议就是阻力，要坚决清除!</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512090914" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3430914       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512080303.shtml" target="boxun-mirror">巴黎气候大会习近平失分王毅保乌纱拼命拍马补救请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>巴黎气候大会习近平失分王毅保乌纱拼命拍马补救<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512080303" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】正在巴黎北郊勒布尔热举行的世界气候变化大会，全球190多个国家代表经过多日反覆较量，于上周末终达成协议草案，交本周各国部长进一步磋商。各国派驻采访的媒体都对此大事报道，但中方随团记者却遇到一个令人哭笑不得的情况。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    就在这个寒风凛冽的冬天午夜，在现场采访的博闻社特约记者收到消息，在巴黎采访的中共各官媒负责人被紧急召集，连夜开会。博闻特约记者好奇打探，初以为中方要大张旗鼓宣传达成协议草案，不料得悉，竟是当局「派任务」，要求各媒体宣传报道中国外交部长王毅的一个讲话。<br>
-    <br>
-    有中方媒体人士向博闻社特约记者透露，他们应召紧急到场后，看到主持会议的不是代表团媒体负责人，而是中宣部和外交部高级官员联合主持，这些身经百战的官方笔杆子们颇感吃惊意外，以为是有重大宣传任务要领受，不料收到的却是一份中国外长王毅关于此次世界气候大会的讲话稿。<br>
-    <br>
-    面对这份外长讲话稿，中共笔杆子们兴味索然，昏昏欲睡，而中宣部和外交部官员却精神饱满，反覆重申外长王毅的讲话是一个「重大事件」，要求各媒体「立即发回国内」、「全力编发，充分报道，大力宣传」。<br>
-    <br>
-    博闻社特约记者有幸拿到了王毅的这份讲话，不看不知道，一看简直哭笑不得。在这份由王毅发自中非(正跟随习近平出访)的讲话，貌似传达习近平的指示，但通篇是王毅的自言自语、自我论述，全文充斥中共「党八股」文风，实在令人难以卒读。<br>
-    <br>
-    王毅似乎有梗在喉，要一吐为快；全文洋洋洒洒，长篇大论，几乎每段都以「习主席」敬称启头，让人读着读着，全身起鸡皮，连习惯于拍马溜须的中共媒体人也十分汗颜，自叹弗如。博闻社特约记者摘其一二，以证其实，也让外界看看仪表堂堂的中国外长，私下是如何一副奴才相：<br>
-    <br>
-    「习主席此访是今年中国外交的压轴大戏和收官大作！」<br>
-    <br>
-    「习主席的巴黎之行，旨在引领和推动国际气候谈判，为气候变化巴黎大会达成协议贡献中国智慧和力量。」<br>
-    <br>
-    「习主席此访，标志着中国参与全球气候治理进入新阶段，中非友好合作掀开新篇章，具有重要的划时代意义！」<br>
-    <br>
-    「习主席在气候变化巴黎大会提出重要主张，同与会各方密集沟通协调，彰显了负责任、有担当、建设性大国形像，为大会成功作出不可替代的贡献！」<br>
-    <br>
-    「习主席作为最大的发展中国家领导人，纵览全局，着眼长远，指出巴黎协议应强化2020年后全球应对气候变化行动，也要推动全球实现更好的可持续发展。」<br>
-    <br>
-    “习主席的倡议既立足当下，又面向未来；既坚持原则，又体现灵活；既代表广大发展中国家共同诉求，又兼顾各方立场，得到广泛支持和赞同。”<br>
-    <br>
-    「习主席的主张巩固了应对气候变化的国际合作基石！」<br>
-    <br>
-    「在习主席和各方共同努力下，气候变化巴黎大会实现良好开局。」<br>
-    <br>
-    「习主席此访受到当地民众载歌载舞、夹道欢迎，充分体现对中国天然的亲近感，再次印证中津、中南友好深入人心、深得民心。」<br>
-    <br>
-    「习主席精辟阐述中国对全球治理模式的看法和主张，蕴含中华文化智慧，具有鲜明中国特色的全球治理观。」<br>
-    <br>
-    在通篇高喊习主席后，王毅最后终于「图穷匕首现」，为自己掌下的中国外交进行「工作总结」：<br>
-    <br>
-    「过去一年，在以习近平同志为总书记的党中央坚强领导下，中国外交全面进取、积极有为，取得举世瞩目的成就。」<br>
-    <br>
-    博闻社详细报道全文：<a href="http://bowenpress.com/news/bowen_45899.html">独家：巴黎气候大会习近平失分王毅保乌纱拼命拍马补救</a>。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512080303" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2340303       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512080306.shtml" target="boxun-mirror">中共成立战略支援军含火箭电子航太三大兵种请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中共成立战略支援军 含火箭电子航太三大兵种<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512080306" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】由习近平主导的中共军改花式多多。博闻社获悉，继新成立陆军总部，陆、海、空三军单独成军后，一个名为「战略支援军」的新军种近日也爆光，该军种涵盖原战略导弹部队(即第二炮兵)、电子战和航天三大兵种；首任战略支援军司令由现二炮司令魏凤和上将出任，政治委员为王家胜中将。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    军方消息人士向博闻社透露，新成立的战略支援军与陆海空三军同级，并列为四大军种；战略支援军下辖三个兵种，一是火箭兵，即原来的第二炮兵部队；第二个兵种叫电子资讯兵，由原来的总参谋部电子技术侦察部(总参三部)，以及各大军区后来组建的电子(网络)部队组成。<br>
-    <br>
-    战略支援军下辖第三个兵种叫航太兵，将空军、二炮部队、几大</td></tr></p>
-<p>
-	<small> ============== 17天前</small>
 </p>
 <table>
     <tr>
