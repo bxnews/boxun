@@ -280,7 +280,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512200425.shtml" target="boxun-mirror">独家：中办设彭丽媛办公室专责习近平私人外交公关请看博讯热点：习近平观察</a>
 </h2>
@@ -578,7 +578,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512150525.shtml" target="boxun-mirror">石油系贪腐“蚁穴”重重中纪委拿中石化香港开刀</a>
 </h2>
