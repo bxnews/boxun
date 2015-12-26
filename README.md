@@ -56,7 +56,7 @@
     <br>
     不过，2015年12月24日的平安夜，中国的基督教徒们得在小心翼翼和惶恐不安中，悄无声息地秘密度过，因为中共当局把他们与雾霾，恐袭视为同类，如临大敌，采取长期的和一贯的防范措施，阻止他们走进教堂</td></tr></p>
 <p>
-	<small> ============== 24分钟前</small>
+	<small> ============== 29分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512260708.shtml" target="boxun-mirror">独家：中央军委组成大爆棚两年后十九大才消肿请看博讯热点：习近平观察</a>
 </h2>
@@ -102,7 +102,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 24分钟前</small>
+	<small> ============== 29分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512250603.shtml" target="boxun-mirror">独家：中共年末“两会”故弄虚玄与画饼充饥</a>
 </h2>
