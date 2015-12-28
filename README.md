@@ -19,6 +19,54 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512280710.shtml" target="boxun-mirror">中共海空军换主帅孙建国掌海军乙晓光掌空军请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共海空军换主帅 孙建国掌海军 乙晓光掌空军<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512280710" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】随着中共军队改革不断推进，军方将领换马的消息不断传来。博闻社获悉，继新组建的陆军总部司令确定，海军、空军也将换主官；现任海军司令吴胜利、空军司令马晓天因年龄达线将退休，海军将由孙建国将接掌，空军司令则由乙晓光接掌；孙、乙两人均为副总参谋长，上将军衔。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    军方消息对博闻社透露，新组建的陆军总部由于财产交接等问题，要到元旦后才能正式宣告成立。博闻社早前已披露，陆军总部设在北京军区联勤部原址，北京军区联勤部则搬到军区85楼招待所办公，以后要搬到石家庄。陆军司令员李作成（原成都军区司令员）、政委刘雷（原兰州军区政委）、副司令彭勃（原兰州军区副司令）、政治部主任张书国（原北京军区政治部主任）均已到位，等待正式宣读任命。<br>
+    <br>
+    军方消息指，因现任海军司令吴胜利(70岁)年龄已达退休线，空军司令马晓天两年后十九大亦已68岁，达到退役年龄，两人已确定退休；其中海军将由现任副总参谋长孙建国上将接掌。 1952年出生的孙建国，河北吴桥人，16岁参军入海军，后到海军潜艇学院前身海军潜水艇学校（第四海军学校）航海专业学习。<br>
+    <br>
+    毕业后长期在海军服役，曾任常规潜艇见习航海长、航海长、常规潜艇副艇长、艇长，中国核潜艇「长征三号」艇长，90年代出任海军潜艇基地副司令员，2000年后任海军副参谋长、海军参谋长、解放军总参谋部总参谋长助理、副总参谋长。 47岁升少将，54岁升中将，59岁升上将。<br>
+    <br>
+    孙建国在潜舰部队服役的岁月中，最为人所称道的是在1985年他指挥403艇（长征3号）进行远洋航行训练，最后终于打破了由美国「鹦鹉螺号」核潜艇（USS Nautilus SSN-571 ）创造的核潜艇最大自持力84天的纪录，创造核潜艇连续海上巡航90天的新世界纪录，从而闻名军界，有「铁艇长」、「小巴顿」之称。海军出身的孙建国接掌海军，被认为是名至实归。<br>
+    <br>
+    军方消息人士指，1949年8月出生的空军司令马晓天亦确定要退役，其接班人初定为现任副总参谋长乙晓光。 1958年出生的乙晓光，江苏沭阳人，保定航校毕业，在东北空军服役，历任战斗机飞行员、中队长、大队长，成都军区空军司令部军训处射击主任、航空兵团团长、歼击师师长；后入国防大学进修，获军事硕士学位。<br>
+    <br>
+    2001年被授予少将军衔，2012年7月晋升中将军衔。空军指挥学院前院长刘广智因间谍案出事后，乙晓光于2004年接任空军指挥学院院长，2008年任空军副参谋长，2010年任南京军区副司令员兼南京军区空军司令员，2012年12月转任解放军总部领导。 2014年7月任副总参谋长。<br>
+    <br>
+    博闻社报道详细全文：<a href="http://bowenpress.com/news/bowen_51776.html">独家：中共海空军换主帅孙建国掌海军乙晓光掌空军</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512280710" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1750710       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/12/201512261104.shtml" target="boxun-mirror">台湾大选面面观：躺着选总统还是换柱出新彩？</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -816,19 +864,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 18天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100952.shtml" target="boxun-mirror">独家：中共五大战区及陆军五分部指挥中心曝光请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：中共五大战区及陆军五分部指挥中心曝光<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512100952" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】博闻社获悉，中共军改措施已全面</td></tr></p>
 <p>
 	<small> ============== 18天前</small>
 </p>
