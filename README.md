@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2015/12/201512261104.shtml" target="boxun-mirror">台湾大选面面观：躺着选总统还是换柱出新彩？</a>
 </h2>
