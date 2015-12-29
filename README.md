@@ -19,6 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2015/12/201512292253.shtml" target="boxun-mirror">乌镇会议重兵保安有内幕：地方官勾结IS预谋暗杀</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>乌镇会议重兵保安有内幕：地方官勾结IS预谋暗杀<br><font color="#000fC0">(<small>博讯北京时间2015年12月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512292253" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     媒体报道，乌镇世界互联网大会布置装甲等正规军，人数达四万，引发外界热议。今天香港面世的《博讯》杂志独家披露，乌镇会议兴师动众，是源于一个重要情报，报道指出，来自某沿海开放省份的厅级公安系统的官员勾结IS，欲做出惊天大事，对习近平的人身安全构成威胁，故此，乌镇的保安规模才让人难以捉摸。<br>
+    <img src="http://www.boxun.com/news/images/2015/12/201512292253china1.jpg" alt="乌镇会议重兵保安有内幕：地方官勾结IS预谋暗杀"><p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512292253" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512290747171.jpg--> 4872253       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512280710.shtml" target="boxun-mirror">中共海空军换主帅孙建国掌海军乙晓光掌空军请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -818,54 +835,6 @@
 <b></p>
 <p>
 	<small> ============== 19天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512100950.shtml" target="boxun-mirror">独家：徐明死前两小时仍在跑步，他杀疑云越来越浓请看博讯热点：王立军、薄熙来</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：徐明死前两小时仍在跑步，他杀疑云越来越浓<br><font color="blue" size="2">请看博讯热点：<a href="/hot/wangjilun.shtml">王立军、薄熙来
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512100950" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社】中国前实德集团和实德俱乐部董事长徐明是12月4日在湖北武汉的狱中去世的，据悉，死后5小时左右即被火化。但消息至6日才传出，首先由香港与台湾的媒体透露。中国官方媒体当日只有相关简讯，次日网上传出一份管制禁令：“各地各网站，原实德俱乐部董事长徐明狱中因病去世一事，严格和中央媒体统一口径，不得擅自报道炒作。注意清理网上攻击中央领导的评论”。本报从知情人士获悉，徐明在死前两小时还在跑步，死后几个小时即被迅速火化，他杀疑云逾浓。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    12月6日，大陆腾讯财经《棱镜》报道，从包括徐明家人在内的三个信源处确认，大连实德创始人徐明12月4日在武汉死亡，“病发心肌梗塞”。实德某高管透露，在此之前并未听说徐明有心肌梗塞疾病。实德高管以及接近徐家知情人士都表示，听到徐明去世的消息，都觉得太意外了。<br>
-    <br>
-    据悉，徐明最后确定的是4年刑期，将于2016年刑满，因在狱中表现不错，会提前释放；同日，《北京青年报》旗下微信公号“政知圈”发出文章，题为《死在释放前的徐明 44年里的五个“1”》；与此同时，大陆“财新网”亦有题为《大连实德原董事长徐明病死狱中 为薄熙来案主要行贿者（更新）》的文章。观察显示，目前上述三篇文章均已被删除。<br>
-    <br>
-    有观察人士认为，这些文章中都提到一个共同的人物――戴永革。<br>
-    <br>
-    公开报道显示，戴永革是徐明的老朋友。早在2009年前，戴永革与徐明就有互动关系。《棱镜》文章指，从2014年底开始，徐明将于2015年内归来的消息便在大连商界传开。<br>
-    <br>
-    徐明被带走后的实德集团，曾一度每月需偿还的利息近1亿元。三年来，徐明的胞兄与“最信任的人”先后救场。而徐明“最信任的人”就是戴永革。此人为哈尔滨仁和集团老板。2012年10月，其以实德集团重组的“新话事人”身分现身。由此，徐斌也彻底退居二线，戴永革团队成为实德重组的实际控制方。<br>
-    <br>
-    但无法因此推测上述三篇文章被删除是源于提及戴永革，按照大陆新闻管制习惯，相关报道基本都是通稿模式，各大新闻机构必须原文转载，即便是在“新闻白名单”上的媒体也一样。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_46278.html">独家：徐明死前两小时仍在跑步，他杀疑云越来越浓</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512100950" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1370950       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 20天前</small>
 </p>
 <table>
     <tr>
