@@ -19,6 +19,16 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601010619.shtml" target="boxun-mirror">年终时评：让我们顶住雾霾的威胁，迎接新年的曙光</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>年终时评：让我们顶住雾霾的威胁，迎接新年的曙光<br><font color="#000fC0"><small>(博讯北京时间2016年1月01日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601010619" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       <br>    <br>     【博闻社独家】2016年新年的钟声将要响起，2015年最后一天,海外传来香港时政书籍出版商「铜锣湾书店」最后一名股东、香港知名出版人李波失踪的消息；这决不是喜庆的信号，对海外关心中共时政的人来说，是一个危险的信息。而消息显示，李波是被中国大陆神秘人物从香港绑架走的。 <br>                       <br>    李波是继「铜锣湾书店」四名股东桂民海、吕波、张志平和林荣基于2015年10月中下旬分别在泰国、广东的深圳和东莞被不明人士带走失踪后，该书店最后一位股东失踪。<br>    <br>    李波失踪,是继2013年10月香港晨钟出版社出版人姚文田，香港时政杂志《新维月刊》《脸谱》出版人王健民、编辑</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512310103.shtml" target="boxun-mirror">终于能面对茉莉花运动期间曾经的酷刑创伤/刘德军请看博讯热点：警察、官员恶行</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -799,58 +809,6 @@
 <b></p>
 <p>
 	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512131340.shtml" target="boxun-mirror">独家：五大战区司令“难产”军委扩大会议或延后请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：五大战区司令“难产” 军委扩大会议或延后<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512131340" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】本社获悉，中共军队改革难度较大的撤消七大军区、成立五大战区在实施过程遇到障碍，主要是将领的去向和安置问题。其中至关重要的五大战区司令，由于竞争激烈，以及前朝介入等因素，人选至今未能最后确定，当局原计划年前要召开新的中央军委会议，可能要延后举行。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    军方知情人士对博闻社披露，这次军改最关键的是人事安排，特别是新的军委总部各部门、五大战区主将这些要职，更是竞争激烈；一是年龄军阶合适者众多，二是前朝的介入。其中包括前任总书记、军委主席胡锦涛也对这次调整表示关心；习近平虽说是话事者，但对胡的意见表现尊重。而出人意料的是，前前任军委主席江泽民放弃干预，不介入这次军队将领安排。<br>
-    <br>
-    军方消息人士对博闻社指，军委原四总部领导指挥职能将整合到新军委中，此项改革已落实，新成立军委内部的三委五部一办五局，主帅都已就位，目前正在交接之中；成立陆军总部和战略支援军总部也基本妥当，新任陆军司令李作成已在从成都军区回京筹建；战略支援军总部基本以原来的战略导弹部队(第二炮兵)司令部为主，主将不变，异议不大。<br>
-    <br>
-    唯独七大军区撤消、成立五大战区遇到的问题较多。一是大批将领要重新安排。目前全军仅现役上将就有45位，现役中将120多人，少将500多人，而这些将领大部份都是陆军，陆军独立成军后，以陆军为主的七大军区撤消，陆军将领人数严重超编，不少人面临列入裁军30万名单。<br>
-    <br>
-    此外，新成立的五大战区联合司令部，编制将是陆海空混编，陆军不可能再占大优势，故安置陆军将领的位置也有限；据此，数以百计陆军将领要转岗、或退出现役，虽说军人服从命令为天职，加上军方强大的舆论压力，这些将领们多不敢出声，但处理不当，将成为军队稳定的隐患。<br>
-    <br>
-    二是战区主将的任命。根据军改方案，取消军区后，现在七大军区领导将重新安排，并将在新划设的战区与战区联合作战机构中，继续担任主要职务，但如上所言，未来战区以混合编制作战为主，不但有陆军，也要有空军或海军；原七大军区的主将，不可能全部转任战区主将。<br>
-    <br>
-    现有七大军区主将分别是：沈阳军区司令王教成、政委褚益民；北京军区司令张仕波、政委刘福连；兰州军区司令刘粤军、政委刘雷；济南军区司令赵宗岐、政委杜恒岩；南京军区司令蔡英挺、政委郑卫平；广州军区司令徐粉林、政委魏亮；成都军区司令李作成、政委朱福熙。<br>
-    <br>
-    目前，成都军区司令李作成已转任陆军司令，南京军区司令蔡英挺将改任军委联合参谋部总参谋长，剩下五位司令，按说正好可以“一人一个位”，分占五大战区主将，但这样显然对其它军种不公平，也不合理；加上还有同是上将的各位大军区政委，如何安置，考验习近平。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_47624.html">独家：五大战区司令“难产” 军委扩大会议或延后</a><br>
-    <br>
-    博闻社郑重声明：本社独家新闻，媒体若转载、引用，务请注明出处，否则按侵权追究法律责任） 
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512131340" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3821340       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 19天前</small>
 </p>
 <table>
     <tr>
