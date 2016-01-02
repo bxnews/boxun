@@ -19,6 +19,58 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601020409.shtml" target="boxun-mirror">北京、南昌等七城市数千e租宝投资人元旦集会讨款请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>北京、南昌等七城市数千e租宝投资人元旦集会讨款<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601020409" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      北京、南昌、南京、杭州等七城市的数千e租宝投资人元旦节（1月1日）分别到当地政府、国家信访局等地集会，追讨投资款，湖北武汉的1名投资人遭警察抓捕。<br>
+    <br>
+    去年12月8日知名P2P网贷平台e租宝被政府以“涉嫌违法经营”调查以来，各地大批e租宝投资人陆续发起了多次大规模集会，希望能挽回损失，追回投资款，但收效甚微。<br>
+    <br>
+    1日上午，约3000名来自北京等地的投资人聚集到位于北京的国家信访局，齐声高喊“还钱、还钱、还钱”等口号，期间有一些投资人遭到警察殴打。<br>
+    <br>
+    据当事人透露，此次北京的讨款行动将持续10天，多名投资人在网络上呼吁更多e租宝受害人加入到北京的行动中来。<br>
+    <br>
+    当事人“智一有双大眼睛”发帖说：那帮畜生正在车上吃着饭盒 不让我们出去买吃的，还好有好心人送来吃的，难友们，我们在北京需要你们，快来吧，1-10号都在，本金不回，维权不止。<br>
+    <br>
+    另一名当事人“丢了你我怪谁”说：今天维权人数3000，明天估计翻倍，我看媒体报道不，中国媒体记者死光了。<br>
+    <br>
+    同日，江西省南昌市、江苏省南京市、浙江省杭州市、湖北省武汉市、湖南省常德市、辽宁省大连市也有大量投资人分别到当地政府、信访局以及闹市区集会追讨投资款。<br>
+    <br>
+    现场图片以及视频显示，投资人手持“反对媒体封杀，反对监管推卸责任”等横幅、标语，分别聚集在政府、信访局、闹市区等地，其中杭州的投资人在西湖边集会时遭警察抢夺横幅、殴打，一名投资人一度跳湖抗议，湖北武汉的一名投资人在省政府集会过程中遭到抓捕。<br>
+    <br>
+    公开资料显示，e租宝是安徽钰诚控股集团打造的、以融资租赁债权交易为基础的互联网金融服务平台，公司全称为“金易融（北京）网络科技有限公司”，成立于2014年7月，注册资本金1亿元，总部位于北京，曾被“中国新闻周刊”评选为 2015 年中国最有“责任感的互联网金融企业”之一。截止去年12月8日，e租宝总成交量745.68亿元，总投资人数90.95万人，待收金额约703.97亿元。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601020409china1.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601020409china2.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601020409china3.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601020409china4.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601020409china5.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601020409china6.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601020409china7.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601020409china8.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601020409china9.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601020409" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601011233001.jpg http://upload.bx.tl/news/temp13/201601011233002.jpg http://upload.bx.tl/news/temp13/201601011233003.jpg http://upload.bx.tl/news/temp13/201601011233004.jpg http://upload.bx.tl/news/temp13/201601011233141.jpg http://upload.bx.tl/news/temp13/201601011233142.jpg http://upload.bx.tl/news/temp13/201601011233143.jpg http://upload.bx.tl/news/temp13/201601011233144.jpg http://upload.bx.tl/news/temp13/201601011233231.jpg--> 1370409       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601010619.shtml" target="boxun-mirror">年终时评：让我们顶住雾霾的威胁，迎接新年的曙光</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -732,52 +784,6 @@
 <b></p>
 <p>
 	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512160238.shtml" target="boxun-mirror">广东普宁数千村民游行示威抗议垃圾焚烧项目请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>广东普宁数千村民游行示威抗议垃圾焚烧项目<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512160238" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      周二（12月15日），广东省普宁市云落镇数千村民发起游行示威，抗议政府强行开工兴建大型垃圾焚烧发电项目，捣毁部分在建的项目设备。<br>
-    <br>
-    据村民透露，落户在云落镇石示坑村的普宁市生活垃圾焚烧发电厂，并未征得村民同意，2013年以来，村民就此发起多次游行示威，但当地政府仍决定在近期动工。<br>
-    <br>
-    村民表示，如该项目建成，云落镇及至整个云山地区将承受巨大的环境污染，当地的地下水资源、土壤、空气都会被污染，成为云落镇村民日后罹患疾病、导致先天畸形甚至招致癌症骤增的重要源头。<br>
-    <br>
-    村民“520YANCI”发帖说：市政府强行建设焚烧垃圾场，选址不当，无征收手续，未经整个镇的百姓同意，强行建设，导致今天上万人游行，部分学校停课。<br>
-    <br>
-    现场图片以及视频显示，大批村民、学生手持国旗从各村汇集到项目所在地，有大量警察在中途阻拦未果，项目所在地的部分设施被村民捣毁。<br>
-    <br>
-    村民“黄燕丽yaner”发帖说：云落垃圾焚烧厂创建是对我们全普宁市都有致命的影响，作为我们普宁人，一定要强力，付出生命去抵抗。一定不要让政府把致命的毒气厂建在我们的家园。<br>
-    <br>
-    （网络图片）<br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512160238china1.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"><p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512160238china2.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512160238china3.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512160238china4.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512160238china5.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512160238china6.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512160238china7.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512160238china8.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512160238china9.jpg" alt="广东普宁数千村民游行示威抗议垃圾焚烧项目"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512160238" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512151122221.jpg http://upload.bx.tl/news/temp13/201512151122222.jpg http://upload.bx.tl/news/temp13/201512151122223.jpg http://upload.bx.tl/news/temp13/201512151122224.jpg http://upload.bx.tl/news/temp13/201512151122321.jpg http://upload.bx.tl/news/temp13/201512151122322.jpg http://upload.bx.tl/news/temp13/201512151122323.jpg http://upload.bx.tl/news/temp13/201512151122324.jpg http://upload.bx.tl/news/temp13/201512151122371.jpg--> 1180238       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
 </p>
 <table>
     <tr>
