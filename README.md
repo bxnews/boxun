@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10分钟前</small>
+	<small> ============== 15分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601010619.shtml" target="boxun-mirror">年终时评：让我们顶住雾霾的威胁，迎接新年的曙光</a>
 </h2>
