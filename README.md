@@ -19,6 +19,101 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601040819.shtml" target="boxun-mirror">视频：2016年第一天香港团体发起“元旦止蚀大游行”</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：2016年第一天香港团体发起“元旦止蚀大游行”<br><font color="#000fC0">(<small>博讯北京时间2016年1月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201601040819" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    本次游行主题是：反对大白象，力争养老金，梁振英下台。<br>
+    <br>
+    雨伞运动之后，虽然民间社会运动气氛有所回落，但希望改变的声音越来越多。特别是香港面临的社会问题更加彰显， 青年问题、养老问题、住房问题等迫在眉睫，退休保障又一直未能得到落实。民间团体不满于政府将退休保障视为洪水 猛兽，而同时政府又花费巨大开支兴建大白象工程（投入巨大收益渺茫的工程被民间称为大白象），如港珠澳大桥超支 138亿，广深港高铁已超支203亿而且一拖再拖，机场第三跑道超支87亿，西九文化区超支140亿，等等。40多个民间团 体一起发起此次游行，约四千人参与了此次游行，从铜锣湾东角道出发游行到政府总部公民广场。<br>
+    <br>
+    除此外，也有团体因为李国章被任命为港大校委表示不满。<br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/1AtgTVr1M5M" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan1.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"><p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan2.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan3.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan4.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan5.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan6.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan7.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan8.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan9.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan10.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan11.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan12.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan13.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan14.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan15.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan16.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan17.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan18.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan19.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan20.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan21.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan22.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan23.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601040819taiwan24.jpg" alt="视频：2016年第一天香港团体发起“元旦止蚀大游行”"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201601040819" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601031717011.JPG http://upload.bx.tl/news/temp13/201601031717012.JPG http://upload.bx.tl/news/temp13/201601031717013.JPG http://upload.bx.tl/news/temp13/201601031717014.JPG http://upload.bx.tl/news/temp13/201601031717015.JPG http://upload.bx.tl/news/temp13/201601031717016.JPG http://upload.bx.tl/news/temp13/201601031717017.JPG http://upload.bx.tl/news/temp13/201601031717018.JPG http://upload.bx.tl/news/temp13/201601031717019.JPG http://upload.bx.tl/news/temp13/2016010317170110.JPG http://upload.bx.tl/news/temp13/201601031717371.JPG http://upload.bx.tl/news/temp13/201601031717372.JPG http://upload.bx.tl/news/temp13/201601031717373.JPG http://upload.bx.tl/news/temp13/201601031717374.JPG http://upload.bx.tl/news/temp13/201601031717375.JPG http://upload.bx.tl/news/temp13/201601031717376.JPG http://upload.bx.tl/news/temp13/201601031717377.JPG http://upload.bx.tl/news/temp13/201601031717378.JPG http://upload.bx.tl/news/temp13/201601031717379.JPG http://upload.bx.tl/news/temp13/2016010317173710.JPG http://upload.bx.tl/news/temp13/201601031717551.JPG http://upload.bx.tl/news/temp13/201601031717552.JPG http://upload.bx.tl/news/temp13/201601031717553.JPG http://upload.bx.tl/news/temp13/201601031717554.JPG--> 3520819       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601040611.shtml" target="boxun-mirror">洞悉中国了解真相：博闻社2015年10大独家报道</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -71,7 +166,7 @@
     <br>
     评语：2015年8月中共北戴河会议，因其所具有的独特神秘性，中共至今只字未提，博闻社率先披露北戴河会议会期和主要议程，尤其是独家披露了张高丽密会朱</td></tr></p>
 <p>
-	<small> ============== 24分钟前</small>
+	<small> ============== 29分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601020409.shtml" target="boxun-mirror">北京、南昌等七城市数千e租宝投资人元旦集会讨款请看博讯热点：突发事件</a>
 </h2>
@@ -771,20 +866,6 @@
 <b></p>
 <p>
 	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512180804.shtml" target="boxun-mirror">中石化桃色丑闻众高管共享公共情妇（附亲笔信）请看博讯热点：情妇反腐</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中石化桃色丑闻 众高管共享公共情妇（附亲笔信）<br><font color="blue" size="2">请看博讯热点：<a href="/hot/qingfu.shtml">情妇反腐
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月18日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512180804" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart--> <center><font size="4"><b> 《博讯》杂志11月号 转载务必注明出处</b></font></center>
-<br>
-    <br>
-    2015年9月30日晚上11</td></tr></p>
-<p>
-	<small> ============== 17天前</small>
 </p>
 <table>
     <tr>
