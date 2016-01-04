@@ -114,6 +114,37 @@
 <p>
 	<small> ============== 5小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601041331.shtml" target="boxun-mirror">26军军长喝酒死人内幕曾想用钱收买死者家属掩口</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>26军军长喝酒死人内幕 曾想用钱收买死者家属掩口<br><font color="#000fC0">(<small>博讯北京时间2016年1月04日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社】2015年12月28日，博闻社第一时间转发了内地新浪微博网民@“空军世界网站”发贴指：解放军26军军长张岩近日在军部与39军两位原部下喝酒，致116师高炮团长死亡，中共最年轻的集团军少将军长张岩被撤正军、降至副军免职的消息。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       2015最后一天，中国国防部在记者会上证实了该消息。但是，张岩喝酒出人命的详情细节，外界仍不得而知。<br>
+    <br>
+    昨天，内地公众微信号“i看见”（ikanjian）刊出了张岩军长喝酒出事的事件内幕，不但爆光当时的细节，还透露出事后张岩等人欲以金钱来掩住死者家属的口，不料家属要求过高无果，事情</td></tr></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601040611.shtml" target="boxun-mirror">洞悉中国了解真相：博闻社2015年10大独家报道</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -815,52 +846,6 @@
     <br>
     博闻社详细报道：<a href="http://bowenpress.com/news/bowen_49227.html">独家：中共军改灭杂音 师以上军官人人写服从安排“申请书”</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512190603" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2840603       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2015/12/201512192144.shtml" target="boxun-mirror">军方少将证实刘源退役“向总后告别"讲话全文曝光</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>军方少将证实刘源退役  “向总后告别"讲话全文曝光<br><font color="#000fC0">(<small>博讯北京时间2015年12月19日</small> <small>来稿</small>)</font>
-</center>
-                <!--bodystart-->      【博闻社】北京时间12月19日，前中共中央调查部部长罗青长之子、“中国战略文化促进会常务副会长兼秘书长”罗援少将，在其新浪个人微博转贴盛传是军纪委掌门热门候选人、总后政委刘源在总后勤部的讲话记录，透露盛传要升任中央军委军纪委书记的刘源，要解甲归田的信息。这是首有中共军方将领公开证实外传刘源要退役的传闻。<br>
-    <br>
-     罗援在微博中为刘源的告别辞写了一份简短的感言，文中写到：“一位朋友传给我一份刘源政委的告别词《心中永存――向总后勤部告别》，看后催人泪下，令人感奋。这是一名革命军人的心灵告白，这是一部堂堂正正的正气歌”。罗援还在文中对刘源表达了赞赏和祝福，称“他（刘源）不计个人家庭名利得失，忠心耿耿为党为民”、“祝愿刘源政委保重、愉悦”。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    分析认为，此次军改被视为中共建政后最大的军事改革动作，利益纠葛难度是难以想象的。因为涉及高层将领利益，军队高层内部出现不少分歧，各机构负责人迟迟难产。包括38名现役上将在内，近两千高级将领必然面对“走转并留”，如何安抚选调并安抚因此而造成的人心浮动，乃是最为棘手的问题。在此背景下，若刘源主动响应，自告奋勇请辞，便具有相当丰富的意义。<br>
-    <br>
-    对刘源本人来说，他生于1951年2月，按照正大军区级将领65岁退役两三个月后将“解甲”，但若进军委则可以顺序延长服役年限。两种结果都有可能，但如果选择前者必然获得不恋栈的美名，就如同十八大时胡锦涛未效仿江泽民继续执掌军权，赢得“高风亮节”赞誉，令其人格魅力大涨。<br>
-    WeChat_1450506936<br>
-     而对习近平来说，刘源举动舍生取义，将无疑对军改腹诽的高级将领产生压制和示范效应，令其不敢轻举妄动。毕竟，即使反腐功勋卓著的刘源也主动情愿下台，其他高级将领更无理由以个人利益阻挠改革。这无疑为习近平解除僵局贡献了最后一份余热。<br>
-    <br>
-    以下为刘源上将的讲话全文，罗援少将表示未经刘本人审阅，有所删减：<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_49398.html">查看刘源告别演讲：心中永存<br>
-    ――向总后勤部告别</a><br>
-    <br>
-    总后勤部政委 刘 源 上将
- [博讯来稿] <!--bodyend-->(博讯 boxun.com) <br><!----> 1972144       
 <hr>
 <table width="620"><tr><td>
 <b></p>
