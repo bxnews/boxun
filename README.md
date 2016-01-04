@@ -249,7 +249,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601010619.shtml" target="boxun-mirror">年终时评：让我们顶住雾霾的威胁，迎接新年的曙光</a>
 </h2>
@@ -711,7 +711,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12天前</small>
+	<small> ============== 13天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2015/12/201512200425.shtml" target="boxun-mirror">独家：中办设彭丽媛办公室专责习近平私人外交公关请看博讯热点：习近平观察</a>
 </h2>
