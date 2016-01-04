@@ -112,7 +112,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5分钟前</small>
+	<small> ============== 10分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601040611.shtml" target="boxun-mirror">洞悉中国了解真相：博闻社2015年10大独家报道</a>
 </h2>
@@ -166,7 +166,7 @@
     <br>
     评语：2015年8月中共北戴河会议，因其所具有的独特神秘性，中共至今只字未提，博闻社率先披露北戴河会议会期和主要议程，尤其是独家披露了张高丽密会朱</td></tr></p>
 <p>
-	<small> ============== 29分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601020409.shtml" target="boxun-mirror">北京、南昌等七城市数千e租宝投资人元旦集会讨款请看博讯热点：突发事件</a>
 </h2>
