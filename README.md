@@ -56,6 +56,37 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601052158.shtml" target="boxun-mirror">混迹民运多年，中共特工曾大军逃离美国回中国</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>混迹民运多年，中共特工曾大军逃离美国回中国<br><font color="#000fC0">(<small>博讯北京时间2016年1月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601052158" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】据知情人士透露，被美国执法部门调查并监控的中共特工曾大军日前逃离美国。推测指，此行或得领馆协助，从墨西哥返回中国。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       曾大军是被美国认定的中共特工，有佩戴电子手铐，但依旧能从非正规渠道返回中国，疑似有政府部门协助。<br>
+    <br>
+    资料显示，曾大军系曾</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601050004.shtml" target="boxun-mirror">铜锣湾书店事件：失踪股东李波亲笔信报平安请看博讯热点：打压媒体和记者</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -761,52 +792,6 @@
 <b></p>
 <p>
 	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512200425.shtml" target="boxun-mirror">独家：中办设彭丽媛办公室专责习近平私人外交公关请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：中办设彭丽媛办公室 专责习近平私人外交公关<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512200425" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】中共总书记、中国国家主席习近平麾下将出现一个新机构。博闻社获悉，习夫人彭丽媛已经成为习近平身边的工作人员，专门负责习近平个人的外交和社交公关，设在中共中央办公厅之下，简称「彭办」。暂时未知其行政规格和人员编制为如何。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    中南海知情人士对博闻社透露，中办下设「彭办」并没有公开挂牌，也没有公开对外宣布，但中办工作人员都知道该办已经存在，而且负责范围主要是总书记和国家主席的个人涉外事务，包括外事活动、社会公关等，侧重于亲善专案；「彭办」事实上从习近平9月底出访美国前已开始运作。<br>
-    <br>
-    知情者指，暂时未知彭丽媛在中办以何身份和称谓开展工作，她的公职是解放军艺术学院院长，专业技术三级，正军级待遇，但这已名存实亡。一方面她作为中国第一夫人，已不适宜再以公职身份频繁相亮于社会；二方面，在此波军队改革中，文艺团体是首当其冲要裁减的，故无论于公于私，她都很可能辞去军艺院长身份。<br>
-    <br>
-    而作为中国著名女高音歌唱家，中国音乐学院客座教授，北京大学、上海师范大学兼职教授，解放军艺术学院及中国音乐学院博士生导师，并且是世界卫生组织「抗击结核病和爱滋病亲善大使」，她的优雅得体、端庄大方的气质，过去两年伴随习出访外国，迷倒无数外国人，成为为习加分的正面因素，甚至被称为中国「软实力」的象征。<br>
-    <br>
-    中南海知情人士提醒博闻社，其实在彭丽媛最近几次伴夫出国进行国事访问，中方对外宣传推介彭时，已经使用新的称谓，除了"国家主席夫人"此一称谓，还加上"教授" 、"世界卫生组织抗爱滋亲善大使"等头衔，"这绝不是随意加上去的。"<br>
-    <br>
-    中南海知情人士对博闻社指，大概是有鉴于以上因素，彭丽媛遂以习近平私人助理身份参与习的工作，专门负责习私人的外交和社会公关等。据透露，习和彭的独生女儿习明泽，目前也在「彭办」帮助工作。目前未知彭丽媛是否已辞去军艺院长之职。但消息形容「那是迟早的事」。<br>
-    <br>
-    博闻社此前曾披露，习近平和彭丽媛的独生女儿习明泽从美国哈佛大学毕业后，利用其出色的英文和留美经验，回国后一直在父亲背后「帮工」，为父亲外访、接待外宾充当礼仪参谋和编外翻译。今年9月底习近平对美国国事访问，她曾低调跟团出访，低调「藏身」于外交部随团翻译之中。<br>
-    <br>
-    博闻社详细报道：<a href="http://bowenpress.com/news/bowen_49591.html">独家：中办设彭丽媛办公室专责习近平私人外交公关</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512200425" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 190425       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 17天前</small>
 </p>
 <table>
     <tr>
