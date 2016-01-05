@@ -99,6 +99,44 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601052200.shtml" target="boxun-mirror">为救经济习近平急赴重庆寻方变相为薄熙来正名请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>为救经济习近平急赴重庆寻方 变相为薄熙来正名<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601052200" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】2016年1月4日，中国股市新年第一个交易日，却迎来“开门绿”：原本为防止沪深两市暴跌而新设的“熔段机制”，在开市首日闻声而动；受中国股市新年首日糟糕表现，全球各大股市均遭拖累，纷纷走低。同日，中共总书记习近平突然现身重庆“考察”，为2010年12月他赴重庆为薄熙来“唱红打黑”背书后首次，更是薄熙来倒台被判囚以来第一次赴重庆，对外释放的信号，引起外界高度关注。<br>
+    <br>
+     据新华社透露，习近平4日下午来到重庆果园港考察，察看正在作业的集装箱船。听说渝新欧国际铁路沿线国家实现一次报关查验、全线放行，他赞赏“挺好”，说：“这里大有希望。”习还到重庆京东方光电科技有限公司考察，要求把创新摆在第一位，一定要牢牢把创新抓在手里，把创新搞上去。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社从中南海获悉，习近平将新年首次出访考察地选择了重庆，选择曾被视为其政治对手薄熙来主政之地，在中国经济频频告急之际，表面上看似乎是例行考察，实质是寻找救中国经济的良策。其对外释放的信号，更是意义良多，值得关注。<br>
+    <br>
+     在中国经济增速大幅放缓的严峻形势下，重庆的GDP增速却领先其他省市，原因到底何在？博闻社此前报导，这与素有“金融市长”之称的黄奇帆密不可分。习近平此行，让尽管年龄偏大的“政坛不倒翁”黄市长，可能破格进京的几率大增。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_54191.html">博闻社报道全文</a><br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601052200" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4392200       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601040819.shtml" target="boxun-mirror">视频：2016年第一天香港团体发起“元旦止蚀大游行”</a>
 </h2>
 <p><tr>
@@ -738,60 +776,6 @@
     目击网友“</td></tr></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512230355.shtml" target="boxun-mirror">e租宝事件升级7省34市上万人联合示威多地被镇压请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>e租宝事件升级7省34市上万人联合示威多地被镇压<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512230355" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      周二（12月22日），e租宝投资人的维权行动升级，江苏南京、湖北武汉等7省34市上万投资人发起联合示威，分别到当地政府部门集会追讨投资款，其中上海、南京、无锡、南通、苏州的投资人遭到警察镇压，大量投资人被打伤抓捕。<br>
-    <br>
-    据网友统计，当天共有南京、无锡、镇江、南通、苏州、太原、大同、晋城、济南、青岛、枣庄、淄博、临沂、烟台、龙口、芜湖、淮北、保定、武汉、湘潭、厦门、上海等34个城市的投资人分别到当地政府部门进行了集会。<br>
-    <br>
-    大量的现场图片以及视频显示，投资人们手持写有“央视混淆视听，误导e租宝受害者”、“还我血汗钱”、“欺骗民众”、“维权必胜”等字样的横幅、标语，聚集于各自所在地的政府、信访部门以及闹市区，齐声高喊各种维权口号，场面壮观。<br>
-    <br>
-    在上海、南京、无锡、南通、苏州五地，投资人遭到了警察的镇压，大量的投资人被警察打倒在地、头破血流，或被强行拖走关押，现场到处是投资人的惨叫声、哭声、怒骂声。<br>
-    <br>
-    目击网友“苏果022802”发帖说：警察打人，老百姓维权，不让，强行要带走，自己不走的就采取暴力手段，用公交车拉人，被带上车的在车上就开始打，这就是我们伟大的人民警察，10分钟时间就来了将近200警察。<br>
-    <br>
-    另一名目击网友“武佳娜”发帖说：去无锡信访局求领导帮忙的受害者刚到门口就被警察照头踹，一群人在地上拖着一个孕妇走，照脸肚子打，不管你是老人，还是孕妇，照样往死打，不管你是投资受害者还是围观的路人，冲过来就是劈头盖脸一顿暴打，那股浓浓的悲哀，中国你是怎么了，你还像表面上的那么和谐吗。<br>
-    <br>
-    同时，当事人以及网友发布到网络的信息也被大量删除。<br>
-    <br>
-    公开资料显示，e租宝是安徽钰诚控股集团打造的、以融资租赁债权交易为基础的互联网金融服务平台，公司全称为“金易融（北京）网络科技有限公司”，成立于2014年7月，注册资本金1亿元，总部位于北京，曾被“中国新闻周刊”评选为 2015 年中国最有“责任感的互联网金融企业”之一。<br>
-    <br>
-    本月8日，e租宝突遭政府以“涉嫌违法经营”调查，截止当日，e租宝总成交量745.68亿元，总投资人数90.95万人，待收金额约703.97亿元。<br>
-    <br>
-    之后，e租宝在各地投资人陆续发起多次维权，有大量投资人因此遭到抓捕。<br>
-    <br>
-    （网络图片）<br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512230355china1.jpg" alt="e租宝事件升级7省34市上万人联合示威多地被镇压"><p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512230355china2.jpg" alt="e租宝事件升级7省34市上万人联合示威多地被镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512230355china3.jpg" alt="e租宝事件升级7省34市上万人联合示威多地被镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512230355china4.jpg" alt="e租宝事件升级7省34市上万人联合示威多地被镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512230355china5.jpg" alt="e租宝事件升级7省34市上万人联合示威多地被镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512230355china6.jpg" alt="e租宝事件升级7省34市上万人联合示威多地被镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512230355china7.jpg" alt="e租宝事件升级7省34市上万人联合示威多地被镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512230355china8.jpg" alt="e租宝事件升级7省34市上万人联合示威多地被镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512230355china9.jpg" alt="e租宝事件升级7省34市上万人联合示威多地被镇压"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512230355" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512221251001.jpg http://upload.bx.tl/news/temp13/201512221251002.jpg http://upload.bx.tl/news/temp13/201512221251003.jpg http://upload.bx.tl/news/temp13/201512221251004.jpg http://upload.bx.tl/news/temp13/201512221251161.jpg http://upload.bx.tl/news/temp13/201512221251162.jpg http://upload.bx.tl/news/temp13/201512221251163.jpg http://upload.bx.tl/news/temp13/201512221251164.jpg http://upload.bx.tl/news/temp13/201512221251221.jpg--> 3620355       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
