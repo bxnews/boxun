@@ -54,7 +54,7 @@
     <br>
     另据《苹果日报》透露，李波夫妇都曾是香港爱国人士，知名作家陶杰说：“都系爱国人士，点知都搞成</td></tr></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601050004.shtml" target="boxun-mirror">铜锣湾书店事件：失踪股东李波亲笔信报平安请看博讯热点：打压媒体和记者</a>
 </h2>
@@ -66,7 +66,7 @@
                 <!--bodystart-->      <br>
     【博</td></tr></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601040819.shtml" target="boxun-mirror">视频：2016年第一天香港团体发起“元旦止蚀大游行”</a>
 </h2>
