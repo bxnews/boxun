@@ -19,6 +19,43 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601050918.shtml" target="boxun-mirror">铜锣湾书店失踪股东李波亲笔信背后：小角色掀滔天浪请看博讯热点：打压媒体和记者</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>铜锣湾书店失踪股东李波亲笔信背后：小角色掀滔天浪<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201601050918" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】香港专营中共政治书籍的铜锣湾书店最后一位股东李波失踪事件搅动香港全城。不少舆论齐声质疑内地公安跨境执法、甚至有绑架之嫌之际，1月4日下午，李波妻子突然向香港警方销案，称已与丈夫联系上。傍晚，媒体更收到据称是李波写给书店员工的"报平安"亲笔信，信中李自称"采取了自己的方式返回内地，配合有关方面调查”，令事件峰回路转。<br>
+    <br>
+     博闻社从有关方面获悉，李波的署名亲笔信确为其本人所写，至于他在信件中表示“我急需处理有关问题，不能让外界知道，已采取了自己的方式返回内地，配合有关方面调查”，到底是出于何动机，是为自已没带回乡证和护照如何能回大陆辩解，还是有其它原因，暂不得而知，但可以确定的是，李波目前现身在大陆正配合大陆方面进行调查，而且有一定的"自由度"。至于他为何要采用"自已的方式"(其实就是非法的方式)回大陆"配合调查",尚待求证。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    本社获悉，铜锣湾书店事件的确与内地某些部门有关，但在内地有关当局对铜锣湾书店的处理过程中，李波本来并非主要角色，有关部门本来也没有把精力放在他的身上，整个事件的核心是瑞典籍的前北京大学学生桂民海(阿海)，阿海的作品和出版物，对中共当局构成了巨大杀伤力，使他成为中共要追究的目标。李波只是作为阿海的合伙人，有必要作为旁证"配合调查"。<br>
+    <br>
+    内地有关部门万料不到，事件的主角落网没有引起香港社会特别关注，反而配角李波却成了漩涡的中心，被香港媒体越炒越大，小角色成了大角色，令内地有关部门大出意外。消息形容"李波本人其实问题不大，是香港舆论把事件搞大了"。<br>
+    <br>
+    本社还获悉，李波除了给公司的陈姓员工写信，还给太太写了一封亲笔信，这是导致李太于4日下午向警方销案的重要原因。据了解，在给妻子的信中，李波称有关部门“甚至连我每天要喝的番茄汁也买来了，我只说了一句而已，连我也感意外”，同时又较详细地交待妻子，先行处理公司四件比较紧急的事情，涉及货物收取、支票入账等等，并列举了事件、地点等细节。从信件看李波显得很牵心公司的生意。李波还在信中对太太提到“稍后会将签好名的书店支票寄来给你”。<br>
+    <br>
+    尽管李波有亲笔信爆光，其家人又向警方销案，但因事件已引起香港社会高度关注，搅起了滔天巨浪，香港社会恐仍难以平息。内地有关部门恐怕也感到难办，李波势必成为当局的烫手山芋。<br>
+    <br>
+    另据《苹果日报》透露，李波夫妇都曾是香港爱国人士，知名作家陶杰说：“都系爱国人士，点知都搞成</td></tr></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601050004.shtml" target="boxun-mirror">铜锣湾书店事件：失踪股东李波亲笔信报平安请看博讯热点：打压媒体和记者</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -765,50 +802,6 @@
     <br>
     博闻社详细报道：<a href="http://bowenpress.com/news/bowen_49591.html">独家：中办设彭丽媛办公室专责习近平私人外交公关</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512200425" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 190425       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/finance/2015/12/201512200427.shtml" target="boxun-mirror">紫禁来鸿：中央经济工作会议沦为中央工作检讨大会</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁来鸿：中央经济工作会议沦为中央工作检讨大会<br><font color="#000fC0">(<small>博讯北京时间2015年12月20日</small> <small>转载</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】尽管2015年12月18日是个吉利的日子，但一延再延和一拖再拖的中共中央经济工作会议，还是在北京的雾霾天气下，于京西宾馆撩开了神秘而朦胧的面纱。本社获悉，迄今为止，这次会议重点是检讨2015年工作与失误，故将会议称为“检讨大会”或更确切。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    博闻社从中南海知情人士处了解到，在此之前，中国国家主席习近平外访回到北京后，就已经匆匆主持召开了中央全会和党外人士座谈会，并且大谈经济工作和城市发展等问题；随后便前往浙江乌镇，出席所谓世界互联网大会。<br>
-    <br>
-    另一方面，此次习近平下江南竟然缺席了于近在咫尺南京举行的大屠杀纪念日；不仅如此，也没有按通常惯例顺便特别安排，对沿途街坊邻居进行嘘寒问暖或者走进农家村舍“亲民活动”。<br>
-    <br>
-    尽管官媒一致声称中央经济工作会议将对明年中国经济定调。但博闻社获悉，事实上定义本次会议为检讨大会更加确切；中共高层对2015年的工作进行闭门思过，成为这两天的“主旋律”。<br>
-    <br>
-    中南海知情者披露，习近平要求中宣部将本次会议对外宣传的重点，放在2015年的优异成绩和2016年美好展望上；在内部则要求所有与会者全面深刻地反思去年工作中的重大失误甚至失职。<br>
-    <br>
-    据了解，在18、19两天京西宾馆会议上，习近平重点讲了天津巨爆、股市暴跌、外访安排失当、美国对台军售和台湾大选评估等事项；并对货币政策、国企转型、军队改革、人事安排、明年两会和G20峰会筹备等进行紧张磋商和部署。<br>
-    <br>
-    迄今为止，官媒对今夏中共北戴河会议只字未提，正在进行的中央经济工作会议，只有一天对2016年的工作进行展望。不过，200多名与会代表也不可能对上头早已确定的目标提出什么意见。随着20日会议的“圆满成功”，赞歌势必将“一浪高过一浪”。<br>
-    <br>
-    博闻社详细报道：<a href="http://bowenpress.com/news/bowen_49558.html">紫禁城来鸿：中央经济工作会议沦为中央工作检讨大会</a>
- <!--bodyend-->(博讯 boxun.com) <br><!----> 2390427       
 <hr>
 <table width="620"><tr><td>
 <b></p>
