@@ -162,6 +162,36 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601071335.shtml" target="boxun-mirror">朝鲜核爆威胁中国，李伟东建言联合出兵灭金正恩/视频请看博讯热点：朝鲜半岛局势</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>朝鲜核爆威胁中国，李伟东建言联合出兵灭金正恩/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/korea.shtml">朝鲜半岛局势
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601071335" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     （博讯独家）昨天，朝鲜在中国边境地带进行核试验，引发5.1级地震。随后，朝鲜官方宣称成功进行了氢弹爆炸。博讯记者接触的学者，包括纽约华人同乡会会长，都异口同声的说“（中国）养虎为患”。<br>
+    <br>
+    哥伦比亚访问学者、原《中国改革》杂志社原社长李伟东先生谈了朝鲜核武的危害，他认为，朝鲜火箭技术落后，根本无法将核弹打到美国，其目的就是在需要时攻击南韩，或者中国。叶宁律师指出，美国专家实地考察朝鲜核设施后，结论是，其设备简陋、技术落后，在这样条件下进行核试验，早晚会发生严重核泄漏或者核事故，其危害将超过切尔诺贝利核电事故多倍，中国东三省、一直到北京都会受害，真的发生事故，中国预计会不得已而迁都。<br>
+    <br>
+    据悉，朝鲜的核技术是中国在胡锦涛时期，先转移给巴基斯坦，再由巴基斯坦转给朝鲜。最初的两枚原子弹是中国制造。博讯无法核实这个信息，但纽约时报前研究员赵岩透露，当时中国给巴基斯坦制造核武的有关设备。由此可见，朝鲜在中国边境核爆，中国“养虎为患”名副其实。<br>
+    <br>
+    李伟东谈了如何根除朝鲜核威胁的解决办法，在三个可能的方案中，可行的办法是：取得俄罗斯理解后，中美日韩联合出兵，灭掉金正恩，中国承诺朝鲜民主化的前提下，由中国占领朝鲜。<br>
+    <br>
+    <a href="/news/gb/pubvp/2016/01/201601070506.shtml">今天稍早，旅居澳门的学者张刚谈朝鲜核爆问题</a>，他认为：中美应联手对朝鲜进行“外科手术”打击。<br>
+    <br>
+    视频一：李伟东先生谈话<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/xz4QifJKdz8" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    视频二：叶宁律师谈话<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/ySu3HsU6Rfg" frameborder="0" allowfullscreen></iframe>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601071335" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3301335       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601070506.shtml" target="boxun-mirror">战略专家张刚认为：中美应联手对朝鲜进行“外科手术”打击/视请看博讯热点：朝鲜半岛局势</a>
 </h2>
 <p><tr>
@@ -790,52 +820,6 @@
     12月24日的平安夜对于信仰基督教的人类而言，无论你有何种肤色，说何种语言，也无论你在世界的任何角落，都会以同样的方式度过这一夜:走进教堂，在平安钟声的陪伴下，向耶稣基督祈祷，祈求他降福于你，还有你的至亲和众生。<br>
     <br>
     不过，2015年12月24日的平安夜，中国的基督教徒们得在小心翼翼和惶恐不安中，悄无声息地秘密度过，因为中共当局把他们与雾霾，恐袭视为同类，如临大敌，采取长期的和一贯的防范措施，阻止他们走进教堂</td></tr></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512260708.shtml" target="boxun-mirror">独家：中央军委组成大爆棚两年后十九大才消肿请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：中央军委组成大爆棚 两年后十九大才消肿<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512260708" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】中共军改如逆水行舟破浪挺进。本社获悉，即将召开的中央军委扩大会议将宣布新的中央军委组成，除了原来的11位委员，还包括新成立的五大战区司令、军纪委书记、陆军总司令等，几近20人，组成一个中共建政以来最庞大的临时中央军委，直到两年后的十九大才会消肿，回复到原有的规模。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    军方知情人士对博闻社透露，由于军改后部份现任军委委员任职会有变动，为了过渡期间军队高层的稳定，中共高层决定新的中央军委采取「逐渐替换」的模式，即现任军委委员全部留任，除军委副主席范长龙、许其亮，国防部长常万全保留现职外，其余军委委员如军改后调职，则以专职军委委员名义，履职至2017年底的中共十九大，不会再委以具体职位。<br>
-    <br>
-    其中异动者包括现任总参谋长房峰辉(传将辞参谋总长职)、总政治部主任张阳(传续任新军委内设的政治工作部主任)、总后勤部长赵克石(传退休)、总装备部部长张又侠(传要升军委副主席)，以及二炮司令魏凤和(传调任新组建的战略支援军司令)；现任海军司令吴胜利、空军司令马晓天传要退休交班。<br>
-    <br>
-    军方消息指，上述10名(加上军委主席习近平11人)现军委委员不管在职抑或调职，将会全部留在新的中央军委，无任职者则以专职军委委员身份，履职至两年后的十九大。加上新设五战区司令、军纪委书记、陆军司令等，新的临时中共中央军委多达近20人，为中共建政以来人员最多的一届中央军委。<br>
-    <br>
-    军方消息人士对博闻社指，在临时军委成员中的专职委员，有些因年龄到界线，将在两年内退休，包括副主席范长龙(现68岁)、赵克石(现68岁)、吴胜利(现已70岁、常万全(现66岁)、马晓天(现66岁)等。他们退休后的空缺，将不会增补。<br>
-    <br>
-    消息透露，此次中央军委扩大会议，有可能增选一位副主席、一位军委秘书长，另增两位副秘书长(大军区正级)；并增选两位国防部副部长(也是大军区正级)；透过这样格局，使现有的大区正级将领基本都有了安排。<br>
-    <br>
-    博闻社详细报道全文：<a href="http://bowenpress.com/news/bowen_51034.html">独家：中央军委组成大爆棚两年后十九大才消肿</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512260708" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3400708       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
