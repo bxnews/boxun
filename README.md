@@ -116,7 +116,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 0分钟前</small>
+	<small> ============== 5分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601070506.shtml" target="boxun-mirror">战略专家张刚认为：中美应联手对朝鲜进行“外科手术”打击/视请看博讯热点：朝鲜半岛局势</a>
 </h2>
@@ -137,7 +137,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4分钟前</small>
+	<small> ============== 9分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601050918.shtml" target="boxun-mirror">铜锣湾书店失踪股东李波亲笔信背后：小角色掀滔天浪请看博讯热点：打压媒体和记者</a>
 </h2>
