@@ -118,6 +118,50 @@
 <p>
 	<small> ============== 1小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601070911.shtml" target="boxun-mirror">传中共陆军副司令含戎贵卿少将消息指传闻不实请看博讯热点：军队高层</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>传中共陆军副司令含戎贵卿少将 消息指传闻不实<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601070911" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】2015年12月31日，中共正式宣告成立陆军总部，会后习近平及军委领导成员与首届陆军领导班子合影。从官媒发布的新闻影像可以看到，陆军领导层由11人组成。原成都军区司令员李作成上将任陆军司令员，原兰州军区政委刘雷中将任陆军政委。但传三名副司令中有戎贵卿少将，本社获悉此传不实。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    陆军总部除司令政委外，其余9人中有7名军事将领和2名政工将领，包括原兰州军区副司令员彭勃中将、南京军区副司令员尤海涛中将、成都军区参谋长戎贵卿少将、兰州军区副政委石晓少将、南京军区副政委兼纪委书记吴刚中将、武警部队参谋长刘振立少将、北京军区政治部主任张书国少将、济南军区联勤部部长韩志庆少将、总装备部陆军装备科研订购部部长高波少将。<br>
+    <br>
+    香港亲中大公报分析指，按照通常的军队职务排序，预料彭勃、尤海涛、戎贵卿担任陆军副司令员，石晓任陆军副政委，吴刚任陆军纪委书记。刘振立任陆军参谋长，张书国任陆军政治工作部主任，韩志庆、高波分别任陆军后勤保障部和装备部部长。<br>
+    <br>
+    不过，军方消息对博闻社指，戎贵卿担任陆军副司令员之说不实。但消息未能提供戎将在陆军总部何职。<br>
+    <br>
+    资料显示，57岁的戎贵卿河南尉氏人，国防大学联合战役指挥专业研究生学历。曾任任武汉军区副司令员张震秘书，张震后来官至中央军委副主席。彭勃、尤海涛都是中将，戎贵卿只是少将。<br>
+    <br>
+    博闻社详细报道全文：<a href="http://bowenpress.com/news/bowen_54585.html">传中共陆军三名副司令含戎贵卿少将 消息指传闻不实</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601070911" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 420911       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601070506.shtml" target="boxun-mirror">战略专家张刚认为：中美应联手对朝鲜进行“外科手术”打击/视请看博讯热点：朝鲜半岛局势</a>
 </h2>
 <p><tr>
@@ -794,54 +838,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512250603.shtml" target="boxun-mirror">独家：中共年末“两会”故弄虚玄与画饼充饥</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：中共年末“两会”  故弄虚玄与画饼充饥<br><font color="#000fC0">(<small>博讯北京时间2015年12月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512250603" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】与通常意义的每年3月召开的全国政协与全国人大「两会」不同，本月18日至21日，中共在年末例行召开中央经济工作会议同时，罕有地同时召开中央城市工作会议；后者为中共改革开放37年来首次次，且规格之高超出1978年那次。官方媒体高调宣传报道年末「两会」。本次年末两会真的如官媒所描绘的那么邪乎吗？ 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    博闻社从中南海获悉，中共罕见的年末两会，其实可以用两句话描述：故弄虚玄与画饼充饥。一是向中国民众务虚的「画饼」；另一句则是务实的工作检讨。如果说真正从积极意义而言，年末两会对2015年中央各项工作进行全面而深刻的检讨，倒是值得一提。<br>
-    <br>
-    中央经济工作会议还未结束，博闻社就披露，今年的中央经济工作会议一开幕，中共总书记习近平担钢主讲，要求与会人员，从政治局常委到中央委员以及出席或列席会议的其他各部委和省市官员，都要「深刻反思和检讨」2015年工作中的失误乃至失职。<br>
-    <br>
-    中南海消息向博闻社透露，因为需要检讨的问题成堆，所以本次中央经济工作会议不得不延长一天才勉强宣告结束，开了整整四天，会期长度是历年最长；而且为防会期过长引发外界对中国政局和经济的负面猜测，当局同时召开所谓中央城市工作会议，为1978年以来再次。<br>
-    <br>
-    博闻社了解到，中共官媒对本次年末两会的高调宣传，其实纯粹是配合习李向中国民众画饼充饥，没有任实质意义和新意；所谓亮点其实乏善可陈，大部份是偷换概念和旧瓶装新酒而已。<br>
-    <br>
-    有与会者对本社指，会上对高层提出的所谓「供给侧改革」提法，曾存在不同争论，认为该提法就是传统的供给改革，加多个侧字，玩虚玄，但概念模糊不清，而且很难让公众理解，最后只是为了强调所谓新意、显示本届政府有创意，才勉强表决通过。<br>
-    <br>
-    会上应习、李的要求，对今年六、七月中国股市爆跌进行了深刻反思，但并未真正找到良策，最后只是老调重弹要「防范金融风险」。推出一项最新的做法就是，下令全国银行等金融机构，立即将各自的网路系统与最高人民检察院并网，以便检察院可以随时监控货币流动情况。<br>
-    <br>
-    此举被与会者视为「走回头路」、多此一举。有与会者向博闻社记者笑言：如此做法，不过是在一行三会(央行和银监、证监、保监会)的头上，再加多个婆婆，而且「这位婆婆势必要活到老学到老，增加很多金融人才和金融知识才行。<br>
-    <br>
-    而所谓中央城市工作会议，博闻社了解到，其实是专门针对已经发生的天津巨爆和深圳山泥崩塌埋没工业园的城市「人祸」，以及各地民众对所居城市周边的众多化工和污染等潜在安全隐患项目接连爆发的抗议示威活动，增加一个高层议论的场所，与现有的城市管理体制的做法完全无二致，充其量只显示出习李高层对城市工作的「重视」。<br>
-    <br>
-    博闻社相信报道全文<a href="http://bowenpress.com/news/bowen_50718.html">独家：中共年末“两会”  故弄虚玄与画饼充饥</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512250603" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2140603       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
 </p>
 <table>
     <tr>
