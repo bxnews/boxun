@@ -133,7 +133,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601070738.shtml" target="boxun-mirror">李方：如果梁振英失踪，胡锡进会怎么说？请看博讯热点：缺德、没人性</a>
 </h2>
