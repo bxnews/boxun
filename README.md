@@ -135,6 +135,80 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601082218.shtml" target="boxun-mirror">中国证监会主席肖钢已辞职项俊波接任</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中国证监会主席肖钢已辞职 项俊波接任<br><font color="#000fC0">(<small>博讯北京时间2016年1月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601082218" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社】中国股市熔断机制上路4天以来惹出不少麻烦，中国证监会主席肖钢承受巨大压力。今有消息人士称，肖钢已在中国国务院周四的紧急会议上提出辞呈，目前已经卸下职务，由项俊波接任新主席。<br>
+    <br>
+     据说这项消息将于本周末宣布。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社发布消息不久，<a href="http://bowenpress.com/news/bowen_55273.html">证监会公布肖</a>
+</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601082221.shtml" target="boxun-mirror">军委联合参谋部今挂牌原总参大瘦身二部三部剥离请看博讯热点：军队高层</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>军委联合参谋部今挂牌 原总参大瘦身二部三部剥离<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601082221" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+     【博闻社独家】博闻社获悉，中共军队改革又有新动作。新的中央军委联合参谋部今天正式挂牌。新任总参谋长为房峰辉，副总参谋长包括五大军种司令；此外原广州军区司令徐粉林代表陆军出任副总参谋长。因联合参谋部属军委内设机构，当局没有举行特别挂牌仪式。此次军改，原总参谋部大瘦身，是原军委变动最大的部门。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       中共军方消息人士对博闻社透露，新的中共中央军委联合参谋部1月8日正式挂牌。因属军委内部机构挂牌，没有举行特别仪式，主要是人员到位，高级将领与原总参将领交接，新部门则与原总参相关部门交接。至本社发稿止，军方未有发布有关消息。<br>
+    <br>
+    消息证实，新的联合参谋部总参谋长仍是现任总参谋长房峰辉，64岁的房是陕西彬县城关镇人，陆军上将，为现任中央军委委员，是上届中央军委栽培的将领，曾在2009年国庆60周年阅兵式任总指挥，陪胡锦涛阅兵。之前有消息指他可能要“下课”，故此番任职或属“过渡型”，参谋总长一职明年十九大仍要换将。<br>
+    <br>
+     据了解，新的副总参谋长组成将一改现行“以人定岗”做法，改位“以岗定人”，即五大军种(陆军、海军、空军、火箭军和战略支援军)司令是当然的副总参谋长，,包括现任陆军司令为李作成，海军司令吴胜利、空军司令马晓天、火箭军司令魏凤和、战略支援军司令高津。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_55221.html">点击这里</a><br>
+    <br>
+    －－
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601082221" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1792221       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601070738.shtml" target="boxun-mirror">李方：如果梁振英失踪，胡锡进会怎么说？请看博讯热点：缺德、没人性</a>
 </h2>
 <p><tr>
@@ -857,71 +931,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512292253.shtml" target="boxun-mirror">乌镇会议重兵保安有内幕：地方官勾结IS预谋暗杀</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>乌镇会议重兵保安有内幕：地方官勾结IS预谋暗杀<br><font color="#000fC0">(<small>博讯北京时间2015年12月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512292253" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     媒体报道，乌镇世界互联网大会布置装甲等正规军，人数达四万，引发外界热议。今天香港面世的《博讯》杂志独家披露，乌镇会议兴师动众，是源于一个重要情报，报道指出，来自某沿海开放省份的厅级公安系统的官员勾结IS，欲做出惊天大事，对习近平的人身安全构成威胁，故此，乌镇的保安规模才让人难以捉摸。<br>
-    <img src="http://www.boxun.com/news/images/2015/12/201512292253china1.jpg" alt="乌镇会议重兵保安有内幕：地方官勾结IS预谋暗杀"><p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512292253" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201512290747171.jpg--> 4872253       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2015/12/201512280710.shtml" target="boxun-mirror">中共海空军换主帅孙建国掌海军乙晓光掌空军请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中共海空军换主帅 孙建国掌海军 乙晓光掌空军<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2015年12月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201512280710" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】随着中共军队改革不断推进，军方将领换马的消息不断传来。博闻社获悉，继新组建的陆军总部司令确定，海军、空军也将换主官；现任海军司令吴胜利、空军司令马晓天因年龄达线将退休，海军将由孙建国将接掌，空军司令则由乙晓光接掌；孙、乙两人均为副总参谋长，上将军衔。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    军方消息对博闻社透露，新组建的陆军总部由于财产交接等问题，要到元旦后才能正式宣告成立。博闻社早前已披露，陆军总部设在北京军区联勤部原址，北京军区联勤部则搬到军区85楼招待所办公，以后要搬到石家庄。陆军司令员李作成（原成都军区司令员）、政委刘雷（原兰州军区政委）、副司令彭勃（原兰州军区副司令）、政治部主任张书国（原北京军区政治部主任）均已到位，等待正式宣读任命。<br>
-    <br>
-    军方消息指，因现任海军司令吴胜利(70岁)年龄已达退休线，空军司令马晓天两年后十九大亦已68岁，达到退役年龄，两人已确定退休；其中海军将由现任副总参谋长孙建国上将接掌。 1952年出生的孙建国，河北吴桥人，16岁参军入海军，后到海军潜艇学院前身海军潜水艇学校（第四海军学校）航海专业学习。<br>
-    <br>
-    毕业后长期在海军服役，曾任常规潜艇见习航海长、航海长、常规潜艇副艇长、艇长，中国核潜艇「长征三号」艇长，90年代出任海军潜艇基地副司令员，2000年后任海军副参谋长、海军参谋长、解放军总参谋部总参谋长助理、副总参谋长。 47岁升少将，54岁升中将，59岁升上将。<br>
-    <br>
-    孙建国在潜舰部队服役的岁月中，最为人所称道的是在1985年他指挥403艇（长征3号）进行远洋航行训练，最后终于打破了由美国「鹦鹉螺号」核潜艇（USS Nautilus SSN-571 ）创造的核潜艇最大自持力84天的纪录，创造核潜艇连续海上巡航90天的新世界纪录，从而闻名军界，有「铁艇长」、「小巴顿」之称。海军出身的孙建国接掌海军，被认为是名至实归。<br>
-    <br>
-    军方消息人士指，1949年8月出生的空军司令马晓天亦确定要退役，其接班人初定为现任副总参谋长乙晓光。 1958年出生的乙晓光，江苏沭阳人，保定航校毕业，在东北空军服役，历任战斗机飞行员、中队长、大队长，成都军区空军司令部军训处射击主任、航空兵团团长、歼击师师长；后入国防大学进修，获军事硕士学位。<br>
-    <br>
-    2001年被授予少将军衔，2012年7月晋升中将军衔。空军指挥学院前院长刘广智因间谍案出事后，乙晓光于2004年接任空军指挥学院院长，2008年任空军副参谋长，2010年任南京军区副司令员兼南京军区空军司令员，2012年12月转任解放军总部领导。 2014年7月任副总参谋长。<br>
-    <br>
-    博闻社报道详细全文：<a href="http://bowenpress.com/news/bowen_51776.html">独家：中共海空军换主帅孙建国掌海军乙晓光掌空军</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201512280710" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1750710       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
