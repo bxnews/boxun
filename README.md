@@ -102,7 +102,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601110713.shtml" target="boxun-mirror">李克强该为股市“负责”证监会大改组成“替罪羊”请看博讯热点：股市危机</a>
 </h2>
@@ -157,7 +157,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601110712.shtml" target="boxun-mirror">西部战区：赵宗岐任司令徐才厚旧部朱熙福暂代政委</a>
 </h2>
@@ -187,7 +187,7 @@
                        <br>
     军方消息对博闻社表示，南海问题、西藏和新疆问题是目前中国主权和国家安全威</td></tr></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601090955.shtml" target="boxun-mirror">李方：730万香港人，未来会成为国际难民吗？请看博讯热点：抗议示威</a>
 </h2>
