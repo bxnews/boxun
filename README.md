@@ -19,6 +19,56 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601120210.shtml" target="boxun-mirror">广西凤山数千失地农民游行示威与警察对峙请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>广西凤山数千失地农民游行示威与警察对峙<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601120210" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      广西河池市凤山县的数千失地农民周一（1月11日）发起示威，抗议当地政府取消征地时承诺的低保，与大量警察一直对峙到当天深夜，多人被警察殴打抓捕。<br>
+    <br>
+    据网友透露，之前凤山政府为征地承诺发放最低保障给失地农民，但在官员换届后，凤山政府取消了低保，村民近期曾多次抗议。<br>
+    <br>
+    目击网友“王腾洋95587”发帖说：征地时拿低保来骗农民，现在又把低保停了也不给个说法，农民是这样拿来骗的吗？这是要把农赶尽杀绝吗？政府领导一直不出来给农民一个交代，真不把我们农民当回事吗？<br>
+    <br>
+    11日中午，数百村民同时将县城内的多条交通要道堵死，持续到当天下午，示威人数增至数千人，同时，有大量警察到现场驱逐村民，双方一度发生冲突，多名村民遭到殴打和抓捕。<br>
+    <br>
+    图片、视频显示，大批村民持“打倒官僚，还我土地，农民最低生活得不到保障”等横幅将交通堵死，并与大量警察对峙，现场人山人海水泄不通，一些村民被警察抓走。<br>
+    <br>
+    目击网友“危情旦夕”发帖说：凤山县人民政府占用群众土地，不给群众低保，而被群众们把县城每一条出路都封得严严实实。几千人，还没有结果。<br>
+    <br>
+    另一名目击网友“CCCCLlove”说：广西河池凤山人民，在田地征完后，又面临低保的取消，为了讨个说法，镇府出动防爆镇压，人民的父母官，你们就是这样待你们子民的吗？连基本的温饱都不能解决，让老百姓怎么生存？<br>
+    <br>
+    截止当天深夜，仍有大批村民聚集在凤山公安局门口。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601120210china1.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601120210china2.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601120210china3.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601120210china4.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601120210china5.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601120210china6.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601120210china7.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601120210china8.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601120210china9.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601120210" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601111054371.jpg http://upload.bx.tl/news/temp13/201601111054372.jpg http://upload.bx.tl/news/temp13/201601111054373.jpg http://upload.bx.tl/news/temp13/201601111054374.jpg http://upload.bx.tl/news/temp13/201601111054541.jpg http://upload.bx.tl/news/temp13/201601111054542.jpg http://upload.bx.tl/news/temp13/201601111054543.jpg http://upload.bx.tl/news/temp13/201601111054544.jpg http://upload.bx.tl/news/temp13/201601111055001.jpg--> 800210       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601110516.shtml" target="boxun-mirror">搜狐怪异发文：吁内地有关部门尽快披露李波事件真相请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr>
@@ -1045,58 +1095,6 @@
     评语：2015年8月中共北戴河会议，因其所具有的独特神秘性，中共至今只字未提，博闻社率先披露北戴河会议会期和主要议程，尤其是独家披露了张高丽密会朱</td></tr></p>
 <p>
 	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601020409.shtml" target="boxun-mirror">北京、南昌等七城市数千e租宝投资人元旦集会讨款请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>北京、南昌等七城市数千e租宝投资人元旦集会讨款<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601020409" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      北京、南昌、南京、杭州等七城市的数千e租宝投资人元旦节（1月1日）分别到当地政府、国家信访局等地集会，追讨投资款，湖北武汉的1名投资人遭警察抓捕。<br>
-    <br>
-    去年12月8日知名P2P网贷平台e租宝被政府以“涉嫌违法经营”调查以来，各地大批e租宝投资人陆续发起了多次大规模集会，希望能挽回损失，追回投资款，但收效甚微。<br>
-    <br>
-    1日上午，约3000名来自北京等地的投资人聚集到位于北京的国家信访局，齐声高喊“还钱、还钱、还钱”等口号，期间有一些投资人遭到警察殴打。<br>
-    <br>
-    据当事人透露，此次北京的讨款行动将持续10天，多名投资人在网络上呼吁更多e租宝受害人加入到北京的行动中来。<br>
-    <br>
-    当事人“智一有双大眼睛”发帖说：那帮畜生正在车上吃着饭盒 不让我们出去买吃的，还好有好心人送来吃的，难友们，我们在北京需要你们，快来吧，1-10号都在，本金不回，维权不止。<br>
-    <br>
-    另一名当事人“丢了你我怪谁”说：今天维权人数3000，明天估计翻倍，我看媒体报道不，中国媒体记者死光了。<br>
-    <br>
-    同日，江西省南昌市、江苏省南京市、浙江省杭州市、湖北省武汉市、湖南省常德市、辽宁省大连市也有大量投资人分别到当地政府、信访局以及闹市区集会追讨投资款。<br>
-    <br>
-    现场图片以及视频显示，投资人手持“反对媒体封杀，反对监管推卸责任”等横幅、标语，分别聚集在政府、信访局、闹市区等地，其中杭州的投资人在西湖边集会时遭警察抢夺横幅、殴打，一名投资人一度跳湖抗议，湖北武汉的一名投资人在省政府集会过程中遭到抓捕。<br>
-    <br>
-    公开资料显示，e租宝是安徽钰诚控股集团打造的、以融资租赁债权交易为基础的互联网金融服务平台，公司全称为“金易融（北京）网络科技有限公司”，成立于2014年7月，注册资本金1亿元，总部位于北京，曾被“中国新闻周刊”评选为 2015 年中国最有“责任感的互联网金融企业”之一。截止去年12月8日，e租宝总成交量745.68亿元，总投资人数90.95万人，待收金额约703.97亿元。<br>
-    <br>
-    （网络图片）<br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601020409china1.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"><p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601020409china2.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601020409china3.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601020409china4.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601020409china5.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601020409china6.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601020409china7.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601020409china8.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601020409china9.jpg" alt=" 北京、南昌等七城市数千e租宝投资人元旦集会讨款"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601020409" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601011233001.jpg http://upload.bx.tl/news/temp13/201601011233002.jpg http://upload.bx.tl/news/temp13/201601011233003.jpg http://upload.bx.tl/news/temp13/201601011233004.jpg http://upload.bx.tl/news/temp13/201601011233141.jpg http://upload.bx.tl/news/temp13/201601011233142.jpg http://upload.bx.tl/news/temp13/201601011233143.jpg http://upload.bx.tl/news/temp13/201601011233144.jpg http://upload.bx.tl/news/temp13/201601011233231.jpg--> 1370409       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
