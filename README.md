@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601120210.shtml" target="boxun-mirror">广西凤山数千失地农民游行示威与警察对峙请看博讯热点：突发事件</a>
 </h2>
