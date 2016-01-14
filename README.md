@@ -19,6 +19,42 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601140936.shtml" target="boxun-mirror">独家：E租宝军方背景爆光内讧致缅甸情报工作受创</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：E租宝军方背景爆光 内讧致缅甸情报工作受创<br><font color="#000fC0">(<small>博讯北京时间2016年1月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201601140936" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】中国公安部上月8日以“涉嫌非法集资”为名，查封了近年在互联网金融业名声鹊起、影响甚广的e租宝，并逮捕e租宝母公司钰诚集团董事局主席丁宁。事件轰动全国，并酿成2016年新年第一波“10万投资者集体赴京上访请愿”事件。本案涉“非法集资”金额高达729.53亿人民币，受影响人数达489.9万；并誉之为“互联网金融整治收网之役”。有媒体质疑丁宁将巨款挪到缅甸投资，导致出现问题。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社从中国公安部知情者获悉，中共此役“互联网金融整治”背后，原来涉及一个庞大的国际军事政治内幕，丁宁和他的e租宝的背后，实际上有中共军方对外情报背景。媒体质疑丁宁将巨款洗出国外到缅甸，与军方借助其在缅甸实行一项重要的战略情报计划有关，该计划还间接得到中共总书记、军委主席习近平的支持。因缅甸政治改革民主化，加上美国对缅甸的介入日深，中共军方一直利用缅边境的独立势力做工作。<br>
+    <br>
+    公安部知情者向博阗社透露，本案涉及军方情报部门、公安部经侦局、国家安全部，而且由于缺乏沟通，搅成了一锅粥，不但军方在缅甸的情报和战略工作受损，还因丁宁在缅的投资突然中断酿致缅甸当局(主要是佤邦地方政府)的交涉。公安以为是尽忠职守，国安趁火打劫，军方有苦难言，外部部日莫明其妙。目前该事件如何收场尚未得知。<br>
+    <br>
+    公安部知情人士透露，e租宝实际控制人、33岁的丁宁虽是土生土长的安徽蚌埠人，但却有缅甸国籍。至于他是何时因何获缅甸国籍，并不清楚。有消息指他是在家乡经营家族五金生意发财后，跑到缅甸做生意，与缅甸果敢邦华人武装首领彭家声关系密切，被彭家声授予“果敢同盟军副司令”、“果敢民族主义党副书记”头衔。<br>
+    <br>
+    果敢同盟军被政府军打败后，丁宁又与缅甸另一个自治邦佤邦自治政府搭上关系。并与中共军方搭上了关系，实际上成为中共军方在缅甸的代理人，利用其生意身份在缅甸从事情报、战略工作，包括招慕雇佣兵、贩运军火等。<br>
+    <br>
+    知情者指，中国军方通过丁宁染指缅甸，背后有一位很重要的牵线搭桥人物：前中央军委秘书长、国防部长耿</p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601130745.shtml" target="boxun-mirror">南宁乌鲁木齐直通火车当局下令禁向新疆人出租屋请看博讯热点：新疆问题</a>
 </h2>
 <p><tr>
@@ -1060,37 +1096,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601041331.shtml" target="boxun-mirror">26军军长喝酒死人内幕曾想用钱收买死者家属掩口</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>26军军长喝酒死人内幕 曾想用钱收买死者家属掩口<br><font color="#000fC0">(<small>博讯北京时间2016年1月04日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社】2015年12月28日，博闻社第一时间转发了内地新浪微博网民@“空军世界网站”发贴指：解放军26军军长张岩近日在军部与39军两位原部下喝酒，致116师高炮团长死亡，中共最年轻的集团军少将军长张岩被撤正军、降至副军免职的消息。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       2015最后一天，中国国防部在记者会上证实了该消息。但是，张岩喝酒出人命的详情细节，外界仍不得而知。<br>
-    <br>
-    昨天，内地公众微信号“i看见”（ikanjian）刊出了张岩军长喝酒出事的事件内幕，不但爆光当时的细节，还透露出事后张岩等人欲以金钱来掩住死者家属的口，不料家属要求过高无果，事情</td></tr></p>
 <p>
 	<small> ============== 10天前</small>
 </p>
