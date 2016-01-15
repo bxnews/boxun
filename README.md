@@ -359,7 +359,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601140936.shtml" target="boxun-mirror">独家：E租宝军方背景爆光内讧致缅甸情报工作受创</a>
 </h2>
