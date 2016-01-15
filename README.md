@@ -207,7 +207,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10分钟前</small>
+	<small> ============== 15分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601142240.shtml" target="boxun-mirror">胡石根、刘四新被“颠覆”罪11人因大抓捕被逮捕</a>
 </h2>
