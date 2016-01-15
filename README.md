@@ -209,6 +209,45 @@
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601151355.shtml" target="boxun-mirror">中纪委今天证实北京与美方沟通遣返令完成请看博讯热点：令计划</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中纪委今天证实 北京与美方沟通遣返令完成<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月15日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      【博闻社】中国国家预防腐败局副局长、中央纪委国际合作局局长刘建超今天在国新办发布会上回应对令完成的调查是否已经展开：关于令完成这件事情，中方正在处理，也在和美国进行沟通。这是中共官方首次证实与美方商讨遣返令完成。博闻社最早于去年七月就独家披露，中共向美方交涉，要求遣返潜逃到美国的令计划胞弟令完成。<br>
+    <br>
+     刘建超是对路透社记者提问做出回应时，披露有关信息的。路透社问：现在对令完成的调查是否已经展开，他是一名美国的公民，调查过程中是否会和美国官方沟通。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社7月曾独家披露北京派人来美国寻找令完成下落<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_57389.html">博闻社全文报道</a><br>
+    －
+ [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 51355       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601142240.shtml" target="boxun-mirror">胡石根、刘四新被“颠覆”罪11人因大抓捕被逮捕</a>
 </h2>
 <p><tr>
@@ -1254,18 +1293,6 @@
                        曾大军是被美国认定的中共特工，有佩戴电子手铐，但依旧能从非正规渠道返回中国，疑似有政府部门协助。<br>
     <br>
     资料显示，曾大军系曾</td></tr></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601050004.shtml" target="boxun-mirror">铜锣湾书店事件：失踪股东李波亲笔信报平安请看博讯热点：打压媒体和记者</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>铜锣湾书店事件：失踪股东李波亲笔信报平安<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601050004" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博</td></tr></p>
 <p>
 	<small> ============== 10天前</small>
 </p>
