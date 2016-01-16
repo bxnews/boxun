@@ -67,7 +67,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4分钟前</small>
+	<small> ============== 9分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601150336.shtml" target="boxun-mirror">李方：中共进入“偷人”时代请看博讯热点：白色恐怖</a>
 </h2>
