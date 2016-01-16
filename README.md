@@ -19,6 +19,25 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601160812.shtml" target="boxun-mirror">银行告示：美元等外汇无库存－人民币危机来临请看博讯热点：人民币升值</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>银行告示：美元等外汇无库存－人民币危机来临<br><font color="blue" size="2">请看博讯热点：<a href="/hot/renminbi.shtml">人民币升值
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601160812" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     博讯得到北京银行的一个告示，称美元、泰铢等货币无存货。博讯此前转载银行新规，自2016年元旦开始，汇入中国的外汇只能在银行开户存，而不能提现。如果提现，则要强制换成人民币。<br>
+    这些迹象足以表明，中国外汇吃紧，人民币汇率贬值压力加大。如果没有换汇限制，人民币恐会崩盘。近期有外国银行“专家”预测，人民币兑美元7:1比较合理。此判断缺乏对中国经济的基本判断，或者是帮助中国维护信心而故意造谣。以目前形势，居民应该尽快取出外币存款，不然很可能禁止提现或者强制换成日益贬值的人民币。<br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601160812china1.jpg" alt="银行告示：美元等外汇无库存－人民币危机来临"><p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601160812" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601151704521.jpg--> 4090812       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 18分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601160244.shtml" target="boxun-mirror">伊力哈木•土赫提被抓两周年其仍将继续申诉请看博讯热点：新疆问题</a>
 </h2>
 <p><tr>
@@ -67,7 +86,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 14分钟前</small>
+	<small> ============== 19分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601150336.shtml" target="boxun-mirror">李方：中共进入“偷人”时代请看博讯热点：白色恐怖</a>
 </h2>
@@ -1277,43 +1296,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601050918.shtml" target="boxun-mirror">铜锣湾书店失踪股东李波亲笔信背后：小角色掀滔天浪请看博讯热点：打压媒体和记者</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>铜锣湾书店失踪股东李波亲笔信背后：小角色掀滔天浪<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201601050918" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】香港专营中共政治书籍的铜锣湾书店最后一位股东李波失踪事件搅动香港全城。不少舆论齐声质疑内地公安跨境执法、甚至有绑架之嫌之际，1月4日下午，李波妻子突然向香港警方销案，称已与丈夫联系上。傍晚，媒体更收到据称是李波写给书店员工的"报平安"亲笔信，信中李自称"采取了自己的方式返回内地，配合有关方面调查”，令事件峰回路转。<br>
-    <br>
-     博闻社从有关方面获悉，李波的署名亲笔信确为其本人所写，至于他在信件中表示“我急需处理有关问题，不能让外界知道，已采取了自己的方式返回内地，配合有关方面调查”，到底是出于何动机，是为自已没带回乡证和护照如何能回大陆辩解，还是有其它原因，暂不得而知，但可以确定的是，李波目前现身在大陆正配合大陆方面进行调查，而且有一定的"自由度"。至于他为何要采用"自已的方式"(其实就是非法的方式)回大陆"配合调查",尚待求证。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    本社获悉，铜锣湾书店事件的确与内地某些部门有关，但在内地有关当局对铜锣湾书店的处理过程中，李波本来并非主要角色，有关部门本来也没有把精力放在他的身上，整个事件的核心是瑞典籍的前北京大学学生桂民海(阿海)，阿海的作品和出版物，对中共当局构成了巨大杀伤力，使他成为中共要追究的目标。李波只是作为阿海的合伙人，有必要作为旁证"配合调查"。<br>
-    <br>
-    内地有关部门万料不到，事件的主角落网没有引起香港社会特别关注，反而配角李波却成了漩涡的中心，被香港媒体越炒越大，小角色成了大角色，令内地有关部门大出意外。消息形容"李波本人其实问题不大，是香港舆论把事件搞大了"。<br>
-    <br>
-    本社还获悉，李波除了给公司的陈姓员工写信，还给太太写了一封亲笔信，这是导致李太于4日下午向警方销案的重要原因。据了解，在给妻子的信中，李波称有关部门“甚至连我每天要喝的番茄汁也买来了，我只说了一句而已，连我也感意外”，同时又较详细地交待妻子，先行处理公司四件比较紧急的事情，涉及货物收取、支票入账等等，并列举了事件、地点等细节。从信件看李波显得很牵心公司的生意。李波还在信中对太太提到“稍后会将签好名的书店支票寄来给你”。<br>
-    <br>
-    尽管李波有亲笔信爆光，其家人又向警方销案，但因事件已引起香港社会高度关注，搅起了滔天巨浪，香港社会恐仍难以平息。内地有关部门恐怕也感到难办，李波势必成为当局的烫手山芋。<br>
-    <br>
-    另据《苹果日报》透露，李波夫妇都曾是香港爱国人士，知名作家陶杰说：“都系爱国人士，点知都搞成</td></tr></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
