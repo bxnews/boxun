@@ -19,6 +19,56 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601160244.shtml" target="boxun-mirror">伊力哈木•土赫提被抓两周年其仍将继续申诉请看博讯热点：新疆问题</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>伊力哈木•土赫提被抓两周年 其仍将继续申诉<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinjiang.shtml">新疆问题
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601160244" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社】今天2016年1月15日，也是伊力哈木•土赫提失去自由两周年。2014年1月26日，中共党宣环球时报网站新闻称伊力哈木涉嫌分裂国家被捕。而英国广播公司中文网则称，据伊力哈木家人收到的通知书，乌鲁木齐警方在2月20日晚11点正式逮捕伊力哈木。乌鲁木齐市公安局通报称其“创办并利用“维吾尔在线”网站，组织、拉拢、操纵部分人员充当网站管理员、通讯员、信息员，造谣、歪曲、炒作案事件，借机制造事端，散布分裂思想，煽动民族仇恨，鼓吹“新疆独立”，从事分裂活动。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    维权网报道说，两天前，李方平律师和伊力哈木妻子古再丽努尔见面，共同回忆伊失去自由前后的时间。伊进去前非常投入自己的事业，关注别人的事甚至胜过家庭。两个孩子的户口问题一直没有解决，在京的教育医疗等问题也让古特别的揪心。<br>
+    <br>
+    李方平律师介绍说：伊力哈木服刑后，古再丽努尔有两次探视，每一次伊都是微笑着鼓励她要坚强，自己在里面能应付过去。而且一直表示希望申诉，目前可能需要方方面面消除程序启动的一些障碍。<br>
+    <br>
+    2014年4月1日，美国笔会宣布伊力哈木获得2014年芭芭拉・戈德史密斯自由写作奖。自由写作奖是美国的一个重要文学奖，旨在鼓励面对强权依然争取自由写作的作家。中国作家北岛、刘晓波、杨天水等人曾获此奖。美国笔会表示，伊力哈木因为维吾尔人维权，长期遭到中国当局骚扰。<br>
+    <br>
+    伊力哈木主张“在新疆面临着民族矛盾激化危险、讨论民族问题时观点容易极端化的大环境下，用我们理性、健康的声音与极端化的声音争夺观念的市场，影响社会情绪向好的方向发展，是我认为最重要的任务和使命之一”。<br>
+    <br>
+    伊力哈木：（CPPC编号：00059）1969年10月25日出生，新疆维吾尔自治区阿图什人，原中央民族大学维吾尔族教师，维族学者，维汉双语网站“维吾尔在线”创建人，中国在押政治犯。<br>
+    <br>
+    曾于2006年创办维吾尔在线网站，2009年新疆乌鲁木齐发生“7•5”事件期间，因该网站被当局视为进行了“大肆煽动宣传，传播谣言”的活动，7月8日，伊力哈木及其家人即被中共当局带走，隔离软禁于北京周边某处，后来在作家王力雄等数百人联署的《关于维吾尔学者伊力哈木•土赫提遭拘押的呼吁》之下，8月23日，才被释放回家；2013年10月，又因北京发生天安门撞桥事件，遂于11月2日在开车带孩子及妻子外出时遭遇国保便衣警察的驾车冲撞及恐吓。<br>
+    <br>
+    2014年1月15日，再次被北京及新疆警察从家中带走刑拘，被羁押于新疆自治区公安厅看守所；2014年2月20日，被乌鲁木齐市检察院以涉嫌“分裂国家罪”正式批捕，理由是“伊力哈木•土赫提与境外‘东突’势力勾结”，利用互联网鼓吹‘新疆独立’，利用讲堂煽动’推翻政府’，利用教师身份从事分裂活动”；2014年9月23日，最终被新疆自治区中级法院以“分裂国家罪”重判无期徒刑，没收个人全部财产；其不服上诉，2014年11月21日二审再次宣判：驳回上诉，维持原判；据悉，其亲属前往送钱及衣服等物品时遭狱方拒绝，理由是伊力哈木的钱尚未用完，被羁押者无需送衣物。<br>
+    <br>
+    目前在新疆自治区第一监狱服刑（乌鲁木齐市新市区四平路5号，邮编830013）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601160244" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3210244       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601150336.shtml" target="boxun-mirror">李方：中共进入“偷人”时代请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr>
@@ -1262,37 +1312,6 @@
     尽管李波有亲笔信爆光，其家人又向警方销案，但因事件已引起香港社会高度关注，搅起了滔天巨浪，香港社会恐仍难以平息。内地有关部门恐怕也感到难办，李波势必成为当局的烫手山芋。<br>
     <br>
     另据《苹果日报》透露，李波夫妇都曾是香港爱国人士，知名作家陶杰说：“都系爱国人士，点知都搞成</td></tr></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601052158.shtml" target="boxun-mirror">混迹民运多年，中共特工曾大军逃离美国回中国</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>混迹民运多年，中共特工曾大军逃离美国回中国<br><font color="#000fC0">(<small>博讯北京时间2016年1月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601052158" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社独家】据知情人士透露，被美国执法部门调查并监控的中共特工曾大军日前逃离美国。推测指，此行或得领馆协助，从墨西哥返回中国。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       曾大军是被美国认定的中共特工，有佩戴电子手铐，但依旧能从非正规渠道返回中国，疑似有政府部门协助。<br>
-    <br>
-    资料显示，曾大军系曾</td></tr></p>
 <p>
 	<small> ============== 11天前</small>
 </p>
