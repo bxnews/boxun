@@ -36,7 +36,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601160244.shtml" target="boxun-mirror">伊力哈木•土赫提被抓两周年其仍将继续申诉请看博讯热点：新疆问题</a>
 </h2>
@@ -86,7 +86,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601150336.shtml" target="boxun-mirror">李方：中共进入“偷人”时代请看博讯热点：白色恐怖</a>
 </h2>
