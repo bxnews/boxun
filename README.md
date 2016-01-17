@@ -601,7 +601,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601110516.shtml" target="boxun-mirror">搜狐怪异发文：吁内地有关部门尽快披露李波事件真相请看博讯热点：白色恐怖</a>
 </h2>
