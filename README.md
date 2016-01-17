@@ -52,7 +52,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601160812.shtml" target="boxun-mirror">银行告示：美元等外汇无库存－人民币危机来临请看博讯热点：人民币升值</a>
 </h2>
