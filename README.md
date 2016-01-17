@@ -19,6 +19,41 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601171337.shtml" target="boxun-mirror">总参情报部加紧收集习近平亲信黑材料</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>总参情报部加紧收集习近平亲信黑材料<br><font color="#000fC0">(<small>博讯北京时间2016年1月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601171337" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      北京最新消息，习近平大刀阔斧进行军事改革，准备打散重来，不但得罪了军头，也得罪了在军队中享受特权的总参情报部门。<br>
+    <br>
+     近日记者从两个渠道得到消息证实，该情报部门已经针对习近平亲信发出了十六起调查案子，其中大多同习近平有不同寻常的关系。总参为什么敢调查习近平的身边人和亲戚亲信？据知情人士透露，这和总参一些情报功能有关，总参情报部门原本就有责任在保护首长的名义下，对首长身边的人进行适度的监控，以防首长身边的人有泄密的情况。但总参这次却扩大职能范围，直接针对习近平周围人收集黑材料。目前总参情报排名前十六位的首长和部门负责人，有十三位还是徐才厚郭伯雄的亲信。他们认定习近平推行军改在于集权，迟早会下台，这些材料如果现在无法使用，今后迟早可以派上用场。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    另据消息，虽然两位国安部副部长被抓，但由于国安部的工作是单线联系，盘根错节，从周恩来之后，只有1983年习近平试图整改过。目前消息透露，邱进在里面透露了很多国安部黑幕。消息来源称，习近平将在军改之后全面整改国安部，也将是打散重来，时间可能在今年10月启动。习近平的所谓打散从来也是从苏联模式向美国模式转变，军队如此，情报反间部门也将如此。国安部将会被一拆为而二，成立类似美国联邦调查局的侦查部门和类似中央情报局的情报部门，首长都将由习近平亲自任命，确保忠诚度。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601171337" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4611337       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601160812.shtml" target="boxun-mirror">银行告示：美元等外汇无库存－人民币危机来临请看博讯热点：人民币升值</a>
 </h2>
 <p><tr>
@@ -1270,27 +1305,6 @@
     视频二：叶宁律师谈话<br>
     <iframe width="560" height="315" src="https://www.youtube.com/embed/ySu3HsU6Rfg" frameborder="0" allowfullscreen></iframe>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601071335" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3301335       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601070506.shtml" target="boxun-mirror">战略专家张刚认为：中美应联手对朝鲜进行“外科手术”打击/视请看博讯热点：朝鲜半岛局势</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>战略专家张刚认为：中美应联手对朝鲜进行“外科手术”打击/视<br><font color="blue" size="2">请看博讯热点：<a href="/hot/korea.shtml">朝鲜半岛局势
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201601070506" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      朝鲜正式向世界宣布拥有了核武器，同时全世界的监测也证实了朝鲜的核武器实验虽然没达到他们所宣称的“氢弹”但的确达到了一颗大当量的核弹的爆炸杀伤力度。那么朝鲜，金正恩现在确确实实的有了对亚洲和以前不一样的实力。至少以后金正恩的身边有一位和中，美，俄最高领导人一样的一位提着黑箱子的保镖了。北京身边现在又多了一只随时可以按下毁灭性武器的手手。<br>
-    <br>
-    对这突发的朝核事件，博讯网记者铁勋及时采访了战略专家张刚。张刚从过去中朝关系到现在新形式下地缘政治的新格局中国政府应对的得失总结，以及如何解决眼前这个棘手问题，提出了自己明晰的见解。<br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/l-cbsxeVhUA" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201601070506" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
-<!----> 350506       
 <hr>
 <table width="620"><tr><td>
 <b></p>
