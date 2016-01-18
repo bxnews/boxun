@@ -19,6 +19,39 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601180852.shtml" target="boxun-mirror">视频:祭赵紫阳逝世11周年,杜导正说“和党感情疏远了”</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频:祭赵紫阳逝世11周年,杜导正说“和党感情疏远了”<br><font color="#000fC0">(<small>博讯北京时间2016年1月18日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601180852" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <iframe width="560" height="315" src="https://www.youtube.com/embed/om8adsi_LOw" frameborder="0" allowfullscreen></iframe><br>
+     【博闻社记者独家报道】1月17日是前中共总书记赵紫阳先生逝世11周年的祭日，当局低调稳控。一大早，在赵紫阳故居所在的灯市口西街停靠的警车不超过十辆，用于拉访民的公交车有2辆，工作人员使用的大巴车有2辆。富强胡同的“安保力量”全部隐形，更多地则是通过无缝隙的视频系统实施监控。<br>
+    <img src="http://bowenpress.com/wp-content/uploads/2016/01/7b0cca13554bbc58bea5b9b89160bbe7" width="590"><br>
+    上午来访的吊唁人员数量不多，除赵家的亲朋故交、老家赵村的乡亲及日本共同社、香港有线电视等媒体朋友外，来访者数量稀少，至少比往年少了很多。据说是因为当局普遍采取了稳控措施，大批政治危险分子、国宝重点人均被控制所致。前国务院秘书俞梅荪先生在3天前赴外地、突然回京才得以来访。<br>
+    <img src="http://bowenpress.com/wp-content/uploads/2016/01/86857a8844bb46f2c53dcb6e9c81a5b4" width="590"><br>
+    <br>
+    上午，前国家新闻出版总署署长杜导正先生在女儿的陪伴下来访、吊唁，现场留字并当众朗读。据杜导正先生透露：前中共领导人毛泽东的机要秘书 李锐先生因卧床，无法前往赵府吊唁，请他代签。<br>
+    <br>
+    <img src="http://bowenpress.com/wp-content/uploads/2016/01/d22ac5ada26f9ad7f23d019d7fb1afdb" width="590"><br>
+    <br>
+    此前博闻记者也从其他渠道获知，李锐先生的身体堪忧，一直在卧床休养。李锐先生出生于1917年，已99岁高龄。他曾任毛泽东的机要秘书，经历过延安时期，建国初年任水电部副部长，也曾长期被关押于秦城监狱。李锐是硕果仅存的中共元老之一，以敢于说真话而享誉外界。<br>
+    <br>
+    以下是杜导正宣读的部分悼念词，由博闻社根据视频整理，如有偏差以原意为准：<br>
+    <br>
+    紫阳同志：<br>
+     今天是你的第11个冥纪，李锐和（？？）同志今早来电话，他们卧床来不了，委托我代他俩签字祭奠。、、、<br>
+     六四大冤案不平反，这个、、永远就消失不了。古今中外，一切冤案、错案终必平反。公正自在人心、、、、孙中山说，世界潮流浩浩荡荡，顺我者昌、逆我者亡，中国也必需顺应潮流，、、、、你的老部下老朋友，在大是大非前决不会后退一步。<br>
+     ？？教训太多啦，我们没有别的选择。、、、、、<br>
+     向您倾诉：还有今年国家与党为胡耀邦诞辰做了隆重纪念，对胡耀邦做了公正对功过评价，大家是满意的。反贪总的说也好，、、改革滞后，尤其舆论聚会（？？）给人感觉越来越严，基层（？？）群众和党的感情疏远了，值得注意。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601180852" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4180852       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601172342.shtml" target="boxun-mirror">官方报道香港书商阿海（桂民海）案：他自己回国的</a>
 </h2>
 <p><tr>
@@ -1335,50 +1368,6 @@
     消息还透露，由于北京高层的介入，事件将很快会解决，李波将会以其合适的方式，回到其原有的生活中。
  [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601070853191.jpg http://upload.bx.tl/news/temp13/201601070853192.jpg http://upload.bx.tl/news/temp13/201601070853193.jpg http://upload.bx.tl/news/temp13/201601070853194.jpg--> 2302358       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601070911.shtml" target="boxun-mirror">传中共陆军副司令含戎贵卿少将消息指传闻不实请看博讯热点：军队高层</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>传中共陆军副司令含戎贵卿少将 消息指传闻不实<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601070911" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】2015年12月31日，中共正式宣告成立陆军总部，会后习近平及军委领导成员与首届陆军领导班子合影。从官媒发布的新闻影像可以看到，陆军领导层由11人组成。原成都军区司令员李作成上将任陆军司令员，原兰州军区政委刘雷中将任陆军政委。但传三名副司令中有戎贵卿少将，本社获悉此传不实。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    陆军总部除司令政委外，其余9人中有7名军事将领和2名政工将领，包括原兰州军区副司令员彭勃中将、南京军区副司令员尤海涛中将、成都军区参谋长戎贵卿少将、兰州军区副政委石晓少将、南京军区副政委兼纪委书记吴刚中将、武警部队参谋长刘振立少将、北京军区政治部主任张书国少将、济南军区联勤部部长韩志庆少将、总装备部陆军装备科研订购部部长高波少将。<br>
-    <br>
-    香港亲中大公报分析指，按照通常的军队职务排序，预料彭勃、尤海涛、戎贵卿担任陆军副司令员，石晓任陆军副政委，吴刚任陆军纪委书记。刘振立任陆军参谋长，张书国任陆军政治工作部主任，韩志庆、高波分别任陆军后勤保障部和装备部部长。<br>
-    <br>
-    不过，军方消息对博闻社指，戎贵卿担任陆军副司令员之说不实。但消息未能提供戎将在陆军总部何职。<br>
-    <br>
-    资料显示，57岁的戎贵卿河南尉氏人，国防大学联合战役指挥专业研究生学历。曾任任武汉军区副司令员张震秘书，张震后来官至中央军委副主席。彭勃、尤海涛都是中将，戎贵卿只是少将。<br>
-    <br>
-    博闻社详细报道全文：<a href="http://bowenpress.com/news/bowen_54585.html">传中共陆军三名副司令含戎贵卿少将 消息指传闻不实</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601070911" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 420911       
 <hr>
 <table width="620"><tr><td>
 <b></p>
