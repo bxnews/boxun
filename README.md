@@ -94,7 +94,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2016/01/201601190803.shtml" target="boxun-mirror">投稿被当“博讯记者”，新疆重判张海涛19年请看博讯热点：网络封锁和压制</a>
 </h2>
