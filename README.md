@@ -94,7 +94,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7分钟前</small>
+	<small> ============== 12分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2016/01/201601190803.shtml" target="boxun-mirror">投稿被当“博讯记者”，新疆重判张海涛19年请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -144,7 +144,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 17分钟前</small>
+	<small> ============== 22分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601180852.shtml" target="boxun-mirror">视频:祭赵紫阳逝世11周年,杜导正说“和党感情疏远了”</a>
 </h2>
