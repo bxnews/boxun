@@ -19,6 +19,23 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601192340.shtml" target="boxun-mirror">李和平已经被天津逮捕被逮捕的维权律师已到15人</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>李和平已经被天津逮捕 被逮捕的维权律师已到15人<br><font color="#000fC0"><small>(博讯北京时间2016年1月19日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601192340" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       <br>    <br>    博讯记者获悉，在李和平于1月8日被天津市检察院二分院批准执行逮捕十天之后，家属和代理于19日从天津市第一看守所警察李斌处获悉，李和平已经被逮捕。<br>    <br>    1月19日上午，李和平律师妻子王峭岭女士和代理律师马连顺等一行到天津市第一看守所查询李和平律师是否在押，看守所方面拒绝查询。马连顺律师向接待窗口递交手续，一个叫李闻一警官出来说，负责接待我们的人开会了，叫他们等他们现在只能等了，不离开接待室等待！<br><br>    <img src="http://upload.bx.tl/news/temp14/201601190846281.jpg"><br><br>    <img src="http://upload.bx.tl/news/temp14/201601190846282.jpg"><br>    <br>    随后下午三点左右，马连顺律师发出信息说：“好消息和平律师找到了。据警察李斌介绍，李和平律师于2016年1月8日经天津市检察院二分院批准，执行逮捕。以第23号被逮捕人家属通知书通知家属，但是，家属没有收到。这说明和平律师生命存在，也就是活着，健康状况达到看守所可以接收的程度，不会因为身体被刑讯逼供到不能入看守所的地步。”<br>    <br>    至此，因为维权律师大抓捕而被逮捕的维权律师和维权人士已经增加到15人：李和平、刘永平、李春富、勾洪国、胡石根、刘四新、王宇、包龙军、王全璋、高月、王全璋、周世锋、李姝云、谢燕益、赵威、谢阳。<br>    <br>    其中，刘永平、胡石根、刘四新、王宇、王全璋、周世锋、李姝云、赵威等8人被控“颠覆国家政权罪”；包龙军、谢燕益、谢阳三位律师被控“涉嫌煽颠颠覆国家政权罪”，高月被控“帮助毁灭证据罪”。而李和平、李春富、勾洪国三人涉及的具体罪名目前还不清楚。<br>    <br>    刘永平、勾洪国、胡石根、王宇、周世锋、李姝云、赵威、高月等8人被关押在天津市第一看守所；李春富、刘四新、谢燕益、包龙军、王全璋等5人关在天津市第二看守所；谢阳关押在长沙市第二看守所。<br>    <br>    下面是目前所知的天津市公安局发出的逮捕通知书编号：<br>    <br>    姓名  通知书编号<br>    <br>    胡石根    21<br>    <br>    周世锋    22<br>    <br>    李和平    23<br>    <br>    王全璋    25<br>    <br>    王  宇    26<br>    <br>    刘永平(老木)28<br>    <br>    刘四新    29<br>    <br>    赵威(考拉)30<br>    <br>    李春富    31<br>    <br>    李姝云    32<br>    <br>    谢燕益    33<br>    <br>    包龙军    35<br>    <br>    高月    36<br>    <br>    勾洪国(戈平)  <br>    <br>    林斌(望云) <br>    <br>    谢远东<br>    <br>    作为同一个案件，目前还有缺24、27、34，目前还有勾洪国、林斌、谢远东以及屠夫吴淦等人没有编号。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china1.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    刘永平<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china2.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china3.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    胡石根<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china4.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china5.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    刘四新<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china6.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china7.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    王宇<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china8.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china9.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    包龙军<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china10.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china11.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    高月<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china12.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china13.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    王全璋<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china14.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <div align="center"><img src="http://upload.bx.tl/news/temp13/201601120731003.png" width="500"></div>
+<br>    周世锋<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china16.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <div align="center"><img src="http://upload.bx.tl/news/temp13/201601120731005.png" width="500"></div>
+<br>    李姝云<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china18.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china19.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    谢燕益<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china20.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china21.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    赵威<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china22.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china23.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    谢阳<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china24.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601192340" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/1/19)--> <!--bodyend-->       
+           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601161420381.jpg http://bnn.co/news/images/2016/01/201601162352china1.jpg http://upload.bx.tl/news/temp13/201601140734431.jpg http://upload.bx.tl/news/temp13/201601140734432.jpg http://upload.bx.tl/news/temp13/201601140734433.jpg http://upload.bx.tl/news/temp13/201601140734434.jpg http://bnn.co/news/images/2016/01/201601132239china1.jpg http://upload.bx.tl/news/temp13/201601140734435.jpg http://bnn.co/news/images/2016/01/201601132239china2.jpg http://upload.bx.tl/news/temp13/201601140734436.jpg http://bnn.co/news/images/2016/01/201601132239china3.jpg http://bnn.co/news/images/2016/01/201601132239china4.jpg http://bnn.co/news/images/2016/01/201601132239china5.jpg http://bnn.co/news/images/2016/01/201601132239china6.jpg http://upload.bx.tl/news/temp13/201601120731003.png http://bnn.co/news/images/2016/01/201601132239china8.jpg http://upload.bx.tl/news/temp13/201601120731005.png http://bnn.co/news/images/2016/01/201601132239china10.jpg http://bnn.co/news/images/2016/01/201601132239china11.jpg http://bnn.co/news/images/2016/01/201601132239china12.jpg http://bnn.co/news/images/2016/01/201601132239china13.jpg http://bnn.co/news/images/2016/01/201601132239china14.jpg http://bnn.co/news/images/2016/01/201601132239china15.jpg http://bnn.co/news/images/2016/01/201601132239china16.jpg--> 4802340       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601190802.shtml" target="boxun-mirror">视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手</a>
 </h2>
 <p><tr>
@@ -90,6 +107,21 @@
     博讯记者西诺 纽约报道
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201601190802" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201601181700251.jpg http://upload.bx.tl/news/temp14/201601181700252.jpg http://upload.bx.tl/news/temp14/201601181700253.jpg http://upload.bx.tl/news/temp14/201601181700254.jpg http://upload.bx.tl/news/temp14/201601181700255.jpg http://upload.bx.tl/news/temp14/201601181700256.jpg http://upload.bx.tl/news/temp14/201601181700257.jpg http://upload.bx.tl/news/temp14/201601181700258.jpg http://upload.bx.tl/news/temp14/201601181700259.jpg http://upload.bx.tl/news/temp14/2016011817002510.jpg http://upload.bx.tl/news/temp14/201601181700411.jpg http://upload.bx.tl/news/temp14/201601181700412.jpg--> 160802       
 </p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601192251.shtml" target="boxun-mirror">战略支援部队成军原总参三部更名网络空间作战部队</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>战略支援部队成军 原总参三部更名网络空间作战部队<br><font color="#000fC0"><small>(博讯北京时间2016年1月19日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601192251" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->      <img src="http://www.boxun.com/news/images/2016/01/201601192251china1.jpg" alt="战略支援部队成军 原总参三部更名网络空间作战部队"><br><br>(中国网络作战部队正式成立)<br>    <br>    【博闻社独家报道】中共军改新成立的战略支援部队已成军，其中包括原总参谋部辖下技术侦察部(简称总参三部)，该部亦于近日正式更换名称、番号及徽章等，全称为“中国人民解放军战略支援军网络空间作战部队”，简称“战支三部”，由此，中共网络黑客部队正式独立成军。<br>    <br>    军方知情人士向博闻社透露，由于总参三部涉及军方情报工作，移交过程转战略支援军宣告成军(2015年12月31日)稍晚，至近日才宣告移交完毕，且由于该兵种的特殊性，相信不会完全对外公开，仍然保持一定的神秘性，但名称已定，为“中国人民解放军战略支援军网络空间作战部队”，简称“战支三部”；对外番号暂时不明。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192251china2.jpg" alt="战略支援部队成军 原总参三部更名网络空间作战部队"><br><br>(原解放军黑客大本营61398部队驻址)<br>    <br>    军方人士表示，战略支援部队由三大部分组成，一是网军，就是网络攻防的黑客队伍；二是天军，也就是军事航天部队，以各类侦察、导航卫星为主；三是电子战部队，干扰和误导敌方雷达和通讯。其中网军主要由原总参三部整体划拨成立，成为一个新兵种，随着互联网对人类生活以及各行业的作用和影响日益重要，网络已成为一个崭新的战场。<br>    <br>    美国《华尔街日报》曾披露，解放军原总参三部下辖有10万人的黑客、语言专家和分析师，和相应的技术军官，管辖16个局，承担监控分析全球通讯任务，总部设在北京海淀区，在上海、青岛、三亚、成都、广州等地都设有分部。而2013年被美国《纽约时报》首度爆光的61398部队，就是总参三部二局专门负责对英文目标攻防的黑客部队。<br>    <br>    据报道，位于上海浦东的61398部队被美国一家互联网公司6年追踪，从西方141家遭受攻击企业的数位线索，证实这个总部设于上海浦东一栋12层建筑内的“中国人民解放军61398部队”就是黑客攻击的源头，是中共网络部队的一部份，全称“中国人民解放军总参谋部技术侦察部第二局”。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192251china3.jpg" alt="战略支援部队成军 原总参三部更名网络空间作战部队"><br><br>(原总参三部部长孟学政少将)<br>    <br>    公开的信息显示，原总参三部下设多个局，其中二局（即61398部队）负责英语目标，其他局成员则需熟悉日语、韩语、俄语、西班牙语等。位于河南郑州的解放军信息工程大学，是培养军队黑客人才的基地，其毕业生大部分赴总参三部服役，总参三部也会向全中国大学招聘电脑专业、数学专业研究生。<br>    <br>    资料显示，去年5月，原总参三部部长孟学政少将已调任解放军信息工程大学校长，原政委为李金平少将。暂时未知三部划归战支军独立成军后，司令政委是何人。<br>    <br>    博闻社报道原文链接：http://bowenpress.com/news/bowen_58905.html<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601192251" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/1/19)--> <!--bodyend-->       
+           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201601190736591.jpg http://upload.bx.tl/news/temp14/201601190736592.jpg http://upload.bx.tl/news/temp14/201601190736593.jpg--> 3132251       
 <hr>
 <table width="620"><tr><td>
 <b></p>
@@ -1250,153 +1282,6 @@
     李波和桂民海等人的遭遇，就是类似的剧目。如此，相信大家也可以理解此时的蔡嘉</td></tr></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601081054.shtml" target="boxun-mirror">中南海夜话：朝鲜“氢爆”为何让世界心惊肉跳</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中南海夜话：朝鲜“氢爆”为何让世界心惊肉跳<br><font color="#000fC0">(<small>博讯北京时间2016年1月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601081054" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】2016年1月6日，新年伊始，世界在没有遭遇直接恐怖袭击中，却迎来了恐怖时刻――中国股市黑色星期一血洗全球股市；沙特与伊朗断交，又引发骨牌效应。但是真正让世界心惊肉跳的是，朝鲜声称成功进行了“氢弹试爆”！<br>
-    <br>
-     平壤时间2016年1月6日上午，当身着民族服装的朝鲜官方电视台女主播出现在电视屏幕上的那一刻起，世界睁大了眼睛；聆听她亮起那铿锵有力的大嗓门宣布：朝鲜已于６日１０时成功进行了有史以来首枚氢弹试验，“取得辉煌的大成功，是坚如磐石般地保证民族千万年未来的历史性大壮举、民族史上的一大事件。” 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    朝鲜方面这种明目张胆的叫嚣和声嘶力竭的鼓噪，无论事实和真相到底如何，显然都是对东北亚安全的公然挑衅，也是对半岛无核化的肆意践踏，甚至严重威胁世界和平。消息一出，舆论哗然，多国谴责，联合国随即召开安理会特别会议。<br>
-    <br>
-    至少以下10点，足以让世界心惊肉跳，令我们寝食难安――<br>
-    <br>
-    1. 朝鲜是否存在诈唬或忽悠之嫌？<br>
-    <br>
-    朝鲜多次声称已经“成功”进行了核试验，此次更是史无前例地进行了氢弹试爆；而官方电视台则指名道姓，“只要美国不终结穷凶极恶的对朝敌视政策，那么即使天塌下来，朝鲜也绝不会中断核开发或放弃核武”。<br>
-    <br>
-    由于历史的原因，美国一直是朝鲜的死敌，朝鲜与其势不两立，甚至不共戴天；那么不排除朝鲜为了震慑美国，而屡屡诈唬的可能性。<br>
-    <br>
-    2. 朝鲜是否真的拥有核技术？<br>
-    <br>
-    作为世界上最不发达、最落后和最贫穷国家之一，朝鲜是否真的拥有核技术？尤其是研制氢弹，需要力学、光学、化学和计算机等多个学科顶尖技术的综合应用和协同配合，而所涉及的分类学科，更是不计其数。<br>
-    <br>
-    无论是技术还是资金以及人才，鉴于目前朝鲜的综合国力和教育水平，朝鲜对外号称拥有核技术并且已经可以一步登天，其实恰恰比登天还难！<br>
-    <br>
-     3. 朝鲜此次是核试验还是“氢弹爆炸”？<br>
-    <br>
-    多国地震和气象监测部门通报，与朝鲜官方公布的“氢弹试验”时间几乎同时，朝鲜两江道白岩郡发生了5级左右浅源地震；但军事专家们则认为发生了疑似爆炸，或者是人为地震。<br>
-    <br>
-    因为其当量级别其实与朝鲜前几次核试验相仿，所以此次所谓成功，也很有可能是朝鲜方面借题发挥，将与前几次相同的“核试验”，夸大和升格为“氢弹爆炸"。<br>
-    <br>
-    4. 朝鲜已经拥有的核技术过关吗？<br>
-    <br>
-    即使真的如朝鲜所吹嘘的那样，那么朝鲜的所谓核技术，其实都是照葫芦画瓢，可以说根本不过关；所以不要说核试验，即使是朝鲜军队低级别的常规演习，都常常事故不断。<br>
-    <br>
-    包括朝鲜在内，没有任何国家对其拥有的所谓核技术，真正放心！<br>
-    <br>
-    5. 朝鲜“核试验”如果失败，对周边国家影响几何？<br>
-    <br>
-    朝鲜已经宣布的几次“核试验”地点，均在位于丰溪里的核设施基地，这是一个荒无人烟的神秘基地。但是无需使用间谍卫星，只要使用任何一款地图应用软件，就很容易看出，整个朝鲜半岛并不大，韩国与朝鲜紧密相连，而日本和中国也都近在咫尺。<br>
-    <br>
-    无论丰溪里多么隐秘，一旦朝鲜核试验失败，都很有可能歪打正着；不仅朝鲜本国平民百姓深受其害，也很容易殃及周边国家，后果不堪设想。<br>
-    <br>
-    6. 是否存在中国阴谋论？<br>
-    <br>
-    作为朝鲜的传统盟友，中国一直被视为朝鲜的后盾和守护神，而且中国也常常在关键敏感时刻，大打朝鲜牌。<br>
-    <br>
-    新年第一个交易日，中国股市令全球股市都惨遭滑铁卢；南海问题已经让中国处在风口浪尖，美国和台湾大选结果也很可能对中国极为不利。<br>
-    <br>
-    “内忧外患”的中国，确实又到了一个十字路口；“阴谋论”认为中国很有可能故意纵容朝鲜试核，从而转移国内民众种种不满和扰乱国际视听。<br>
-    <br>
-    但是，强大的中国不可能愚蠢到暗中帮忙朝鲜大举研发核技术的地步；因为非常渴望世界和谐的中国，至少肯定明白，如果铤而走险与朝鲜“合演双簧”，结果将被世界大家庭所集体不齿和彻底抛弃。而且古今中外，养虎为患和农户与蛇的前车之鉴，不胜枚举，中国对朝鲜早就存有戒心。<br>
-    <br>
-    在朝鲜半岛无核化问题上，尤其是此次朝鲜“氢弹试验”，如果中国阴谋论存在，中国将永远不可能实现习近平上任以来，竭力倡导的所谓中国梦和世界梦！<br>
-    <br>
-     7. 朝鲜听中国指挥吗？<br>
-    <br>
-    因为抗美援朝，中国和朝鲜结下了“兄弟般的”友谊；在金日成和金正日父子时代，总体而言，朝鲜基本可以做到与中国步调一致。<br>
-    <br>
-    但是随着官三代金正恩接班，也许是“金三胖”的脚疾日趋严重，上台至今也没有前往中国“朝拜”，致使两国之间几乎完全不同步，平壤当然也就不会听北京指挥！<br>
-    <br>
-    8. 金正恩如何使用核技术？<br>
-    <br>
-    朝鲜在向世界宣布“成功进行了氢弹试验”的同时，也此地无银式地安抚世界：“如果外敌不入侵朝鲜，我们将不会使用核武器；在任何情况下，我们都不会转移核技术。” 但是世界绝不会相信这样的承诺！<br>
-    <br>
-    尽管金正恩已过而立之年，但其标志式的发型和其不按常理出牌的治国理政风格，却让人联想起正处叛逆期的少年或更年期的妇女。<br>
-    <br>
-    金正日突然去世之后，金正恩被迅速扶上马；因其年轻气盛和血气方刚，不仅大规模铲除异己，就连自己的姑父也不放过。<br>
-    <br>
-    没有任何人，也没有任何国家知道，金正恩的下一步，要迈那条腿；当然，只有天晓得，金正恩将如何使用核技术？<br>
-    <br>
-    9. 何时天塌下来？<br>
-    <br>
-    正如本期夜话开始时所言，朝鲜表面高调向世界宣布“成功进行氢弹试验”，其实是向美国示威和喊话。那么到底何时才是朝鲜所指天塌下来？<br>
-    <br>
-    美国到底有没有“穷凶极恶的对朝敌视政策”？如果没有（朝鲜当然不会同意这样的答案），那么何时出台？如果有，那么何时终结（朝鲜希望对此进行确认）？<br>
-    <br>
-    10. 中美到底如何接招和拆招？<br>
-    <br>
-    现在，朝鲜不仅“成功进行了氢弹试验”，还要挟国际社会承认其合理合法，并且绑架中国和美国一起上了这条贼船；那么，中美到底如何接招和拆招？<br>
-    <br>
-    通常意义的声明或者楚辞强硬的谴责，都无关痛痒；但是习近平和奥巴马，都应该不会任由金正恩大耍流氓和小耍聪明！<br>
-    <br>
-    综上所述，2016年1月6日发生在朝鲜的“爆炸”，是5年前朝鲜突然炮击韩国所属延坪岛以来，最严重的爆炸；2016年1月6日，发生在朝鲜的地震，已经触动了全世界的神经，并且引发了全球地震！<br>
-    <br>
-    朝鲜"氢爆"炸响全球；但是一切形式的恐怖主义，都将注定被定在历史的耻辱柱，都将注定被扫进历史的垃圾堆！<br>
-    <br>
-    博闻社在此强烈呼吁，任何热爱和平的国家元首和普罗大众，都应该携起手来，让这个世界真正和谐美丽！<br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_54720.html">博闻社报道原文</a><br>
-    -
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601081054" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3201054       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601082218.shtml" target="boxun-mirror">中国证监会主席肖钢已辞职项俊波接任</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中国证监会主席肖钢已辞职 项俊波接任<br><font color="#000fC0">(<small>博讯北京时间2016年1月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601082218" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社】中国股市熔断机制上路4天以来惹出不少麻烦，中国证监会主席肖钢承受巨大压力。今有消息人士称，肖钢已在中国国务院周四的紧急会议上提出辞呈，目前已经卸下职务，由项俊波接任新主席。<br>
-    <br>
-     据说这项消息将于本周末宣布。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    博闻社发布消息不久，<a href="http://bowenpress.com/news/bowen_55273.html">证监会公布肖</a>
-</td></tr></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
