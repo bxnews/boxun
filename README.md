@@ -19,6 +19,83 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601190802.shtml" target="boxun-mirror">视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手<br><font color="#000fC0">(<small>博讯北京时间2016年1月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201601190802" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    1月17日，来自纽约的作家和新闻从业人员聚会法拉盛，对香港铜锣湾书店员工绑架案一事进行分析和讨论，对照今日央视审讯铜锣湾书店老板桂明海的视频，来宾指出桂明海在泰国被绑架案证据确凿，而央视一口咬定是桂明海主动愿意回国自首，其中的说法存在不少破绽。对于书店另一名股东李波的被捕，来宾认为这是自1997年香港回归以来最严重的政治事件，甚至超过“21条”恶法的颁布。<br>
+    <br>
+    参加会议的有：贝岭，刘路，胡平，何频，王军涛，陈小平，张博树，冯胜平，高光俊，冯哲胜，孟玄，罗小鹏，张艾枚，毕汝诸，陈小平，西诺等。<br>
+    <br>
+    这次会议由中国研究院主办。<br>
+    <br>
+    详细情况，请看博讯视频<br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/xWSwsMSrU_I" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/OvixsS4Om50" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/C7rK37cEYrk" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/PfgYjV-h0hM" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/pZDz_BuVUPw" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/A6tvhN3m65s" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/SCKb1Ide6sg" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="600" height="360" src="https://www.youtube.com/embed/Q1GUYNkGcXY" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan1.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"><p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan2.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan3.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan4.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan5.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan6.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan7.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan8.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan9.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan10.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan11.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan12.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
+<p><br>
+    <br>
+    博讯记者西诺 纽约报道
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201601190802" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201601181700251.jpg http://upload.bx.tl/news/temp14/201601181700252.jpg http://upload.bx.tl/news/temp14/201601181700253.jpg http://upload.bx.tl/news/temp14/201601181700254.jpg http://upload.bx.tl/news/temp14/201601181700255.jpg http://upload.bx.tl/news/temp14/201601181700256.jpg http://upload.bx.tl/news/temp14/201601181700257.jpg http://upload.bx.tl/news/temp14/201601181700258.jpg http://upload.bx.tl/news/temp14/201601181700259.jpg http://upload.bx.tl/news/temp14/2016011817002510.jpg http://upload.bx.tl/news/temp14/201601181700411.jpg http://upload.bx.tl/news/temp14/201601181700412.jpg--> 160802       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 3分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2016/01/201601190803.shtml" target="boxun-mirror">投稿被当“博讯记者”，新疆重判张海涛19年请看博讯热点：网络封锁和压制</a>
 </h2>
 <p><tr>
@@ -67,7 +144,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7分钟前</small>
+	<small> ============== 13分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601180852.shtml" target="boxun-mirror">视频:祭赵紫阳逝世11周年,杜导正说“和党感情疏远了”</a>
 </h2>
@@ -1318,49 +1395,6 @@
                        <br>
     博闻社发布消息不久，<a href="http://bowenpress.com/news/bowen_55273.html">证监会公布肖</a>
 </td></tr></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601082221.shtml" target="boxun-mirror">军委联合参谋部今挂牌原总参大瘦身二部三部剥离请看博讯热点：军队高层</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>军委联合参谋部今挂牌 原总参大瘦身二部三部剥离<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601082221" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-     【博闻社独家】博闻社获悉，中共军队改革又有新动作。新的中央军委联合参谋部今天正式挂牌。新任总参谋长为房峰辉，副总参谋长包括五大军种司令；此外原广州军区司令徐粉林代表陆军出任副总参谋长。因联合参谋部属军委内设机构，当局没有举行特别挂牌仪式。此次军改，原总参谋部大瘦身，是原军委变动最大的部门。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       中共军方消息人士对博闻社透露，新的中共中央军委联合参谋部1月8日正式挂牌。因属军委内部机构挂牌，没有举行特别仪式，主要是人员到位，高级将领与原总参将领交接，新部门则与原总参相关部门交接。至本社发稿止，军方未有发布有关消息。<br>
-    <br>
-    消息证实，新的联合参谋部总参谋长仍是现任总参谋长房峰辉，64岁的房是陕西彬县城关镇人，陆军上将，为现任中央军委委员，是上届中央军委栽培的将领，曾在2009年国庆60周年阅兵式任总指挥，陪胡锦涛阅兵。之前有消息指他可能要“下课”，故此番任职或属“过渡型”，参谋总长一职明年十九大仍要换将。<br>
-    <br>
-     据了解，新的副总参谋长组成将一改现行“以人定岗”做法，改位“以岗定人”，即五大军种(陆军、海军、空军、火箭军和战略支援军)司令是当然的副总参谋长，,包括现任陆军司令为李作成，海军司令吴胜利、空军司令马晓天、火箭军司令魏凤和、战略支援军司令高津。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_55221.html">点击这里</a><br>
-    <br>
-    －－
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601082221" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1792221       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 11天前</small>
 </p>
