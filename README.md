@@ -47,7 +47,7 @@
 <br>
                        军方知情者向博闻社透露，西部战区覆</td></tr></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601200447.shtml" target="boxun-mirror">国台办副主任龚清概落马涉睡台湾女星</a>
 </h2>
@@ -90,7 +90,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601192340.shtml" target="boxun-mirror">李和平已经被天津逮捕被逮捕的维权律师已到15人</a>
 </h2>
