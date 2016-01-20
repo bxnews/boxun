@@ -19,6 +19,79 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601200445.shtml" target="boxun-mirror">西部战区指挥中枢解密一正四副含陆军分部司令请看博讯热点：军队高层</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>西部战区指挥中枢解密 一正四副含陆军分部司令<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601200445" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】博闻社本月11日已独家披露，解放军西部战区指挥中心于1月9日已在成都宣告成立。西部战区首任司令为原济南军区司令赵宗岐，政委为原成都军区政委、曾经是徐才厚旧部的朱熙福暂任。最新消息透露，西部战区副司令有四位，含陆军分部司令。此军种将领兼战区副职的模式，也是其它战区领导班子的组成模式。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       军方知情者向博闻社透露，西部战区覆</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601200447.shtml" target="boxun-mirror">国台办副主任龚清概落马涉睡台湾女星</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>国台办副主任龚清概落马 涉睡台湾女星<br><font color="#000fC0">(<small>博讯北京时间2016年1月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601200447" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】台湾大选刚刚结束，中共就拿主管台湾事务的机构中央对台工作办公室(即国务院对台办)开刀，以涉嫌严重违纪为名拿下国台办副主任龚清概。博闻社从北京知情者了解到，龚清概涉严重违纪的问题之一，是他在福建平潭开发区主政期间与台商有不当经济来往，并且睡了台湾一位红遍两岸的知名女星。<br>
+    <br>
+     57岁的龚清概作为福建本土官员，又操闽南方言，很受台湾商界欢迎，历任晋江、南平等市市长，做过中共泉州市委副书记，2010年担任福建省平潭综合实验区管委会主任；该实验区专为吸引台资而设，2013年升格为国家级开发区。龚因此与许多台商关系良好。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    知情者指，龚清概因为中共重视对台工作而得益，于2013年底从福建调任中台办，成为朝中人。但他进入国台办后即被人举报，指他在平潭开发区主政期间，经常与台商吃吃喝喝，经济上不清不楚，涉嫌收受台商利益输送。<br>
+    <br>
+    更为严重的是，他还被举报曾以反台独为名，要挟睡了一位台湾知名的女艺人，该女艺人为在大陆发展，一直哑忍。直到这次黄安事件爆发后，有知情台商才向北京举报，累龚直接落马。<br>
+     另据了解，黄安事件虽非国台办亲手操弄，但国台办在黄安跳出来「反台独」之初却是暗中支持者，不料黄安走火入魔，在台湾大选投票前打周子瑜，惹来台湾全民愤慨，对台湾选情起了「极不好」的作用，无形中成为蔡英文的助选人，国台办欲刹车不能，只好打掉门牙往肚里吞，等待中南海的训斥。<br>
+    <br>
+    另据台湾媒体报道，这次龚清概遭查，令人联想到近来福建的官场震荡，自2015年福建前副省长徐钢、省长苏树林先后落马后，境外媒体便传言福建将是大陆反腐的另一个重灾区。龚清概落马，可能与前福建省长苏树林有关。<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_59002.html">博闻社报道原文</a><br>
+    -
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601200447" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1430447       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601192340.shtml" target="boxun-mirror">李和平已经被天津逮捕被逮捕的维权律师已到15人</a>
 </h2>
 <p><tr>
@@ -1122,166 +1195,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601110712.shtml" target="boxun-mirror">西部战区：赵宗岐任司令徐才厚旧部朱熙福暂代政委</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>西部战区：赵宗岐任司令 徐才厚旧部朱熙福暂代政委<br><font color="#000fC0">(<small>博讯北京时间2016年1月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601110712" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】博闻社获悉，解放军西部战区指挥中心前(9)日已在前成都军区总部挂牌成立，同日成都军区宣告撤消。西部战区首任司令为原济南军区司令赵宗岐，政委为原成都军区政委、曾经是徐才厚旧部的朱熙福暂任。战区负责区域包括原成都军区、兰州军区范围，面对的是目前中国最棘手的南亚、中亚等国家。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    军方消息对博闻社表示，南海问题、西藏和新疆问题是目前中国主权和国家安全威</td></tr></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601090955.shtml" target="boxun-mirror">李方：730万香港人，未来会成为国际难民吗？请看博讯热点：抗议示威</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>李方：730万香港人，未来会成为国际难民吗？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/protest.shtml">抗议示威
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201601090955" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <br><center><font size="4"><b>向香港人普及一个政治常识：千万不要相信赵国人</b></font></center>
-<br>
-    <br>
-        红色恐怖，笼罩香港<br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601090955pubvp1.jpg" alt="李方：730万香港人，未来会成为国际难民吗？"><p><br>
-    <br>
-    香港回归后，形势发展是很快的。许多港人，还没有来得及适应寄生在赵国大屁股下的新行情，情况就又变了。香港人都得换上跑鞋，才能跟得上中央的新形势。中南海的形势，就像巫山云雨，气象台不能提前预报。<br>
-    <br>
-    常言说，入乡随俗。在大英帝国怀里时，你享受过自由的阳光雨露。现在翻了船，跌进赵国的阴沟里，基本天天是阴云笼罩，前途未卜。就不要再怀念过去的阳光了。<br>
-    <br>
-    香港人挺老实，邓小平说50年不变，都信了。这不，才刚刚过了18年，中央大变脸。他看不惯的人，可以来香港捉，他看不惯的店铺，可以尽情打掉。现在，香港人都吓得尿紧，过去可以卖的书，不卖了，过去可以写的文章，不写了。跑得快的，率先躲到台湾、国外去了。有钱人，包括李嘉诚，撤离香港也是迟早的事。<br>
-    <br></p>
-<center><font size="4"><b>王毅口舌之间，340万港人的BNO变成废纸</b></font></center>
-<br>
-    <br>
-        BNO护照，在赵国是一张废纸<br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601090955pubvp2.jpg" alt="李方：730万香港人，未来会成为国际难民吗？"><p><br>
-    <br>
-    接近一半的香港人，约340万，拿着大英帝国的BNO 护照，以为这会是最后的护身符。李波也同样持有。岂料，中央宣布――李波首先是中国人，在赵国境内，你那个BNO护照没有效力，不能保护你，是一张废纸。<br>
-    <br>
-    中国的国籍法，采用的是血统主义为主，再辅之以出生地的混合方式。也就是说，认血不认纸，你拿什么护照都白搭。<br>
-    <br>
-    中国国籍法对于香港澳门居民，全国人大写了六大天条。其中第二条说：所有香港中国同胞，不论其是否持有“英国属土公民护照”或者“英国国民（海外）护照”，都是中国公民・・・・・・<br>
-    <br>
-    OK， 大家都KO了。<br>
-    <br>
-    所以，英国外相天真地提醒中国政府，李波持英国护照时，王毅依照全国人大的天条，直截了当砍断了李波受英国护照保护这条后路。依照人大天条和王毅定理，李波天然国籍是中国。所以，抓之有理，审之有理，判刑坐牢也有理。<br>
-    <br>
-    由此，大家知道了，340万港人拥有的BNO护照，基本就是废纸一张。在中国，包括香港境内，它没有任何用处，出了国，仅仅相当于一张旅行证。而且，作为旅行证，还不能享有英国的领事保护权，因为强大的中国政府不承认它。<br>
-    <br></p>
-<center><font size="4"><b>港人必读：9道应该记住的时政习题</b></font></center>
-<br>
-    <br>
-    形势真的变了。<br>
-    <br>
-    以后香港人新的公民课，将会增加以下几个时政习题，大家需要了解和掌握。<br>
-    <br>
-    1，香港人现在回内地有哪几种方式？<br>
-        正确答案：<br>
-        A、验证过关 <br>
-        B、偷渡<br>
-        C、以自己的方式（目前尚未清楚具体内容，设为X方式）<br>
-    <br>
-    2、什么是香港人回内地的X方式？<br>
-        参考答案：I don’t know <br>
-    <br>
-    3、如果你有祖先曾是中国人，现在持有他国护照，请问你到底是哪国人？<br>
-        正确答案：依照王毅定理，你首先是赵国人。<br>
-    <br>
-    4、王毅定理你明白了吗？<br>
-        参考答案：I don’t know <br>
-    <br>
-    5、请问赵国公安可以违反基本法，来香港绑架香港人吗？<br>
-        正确答案：可以，因为他们掌握了规避法律的方法<br>
-    <br>
-    6、请问赵国公安是怎样规避法律的？<br>
-        参考答案：I don’t know <br>
-    <br>
-    7、现在天天批评香港小朋友做的不好，不遵守纪律的，是哪位老师？<br>
-        正确答案：是赵国《监狱报》主编单仁平老师。<br>
-    <br>
-    8、请问单仁平是个什么东东？<br>
-        正确答案：他原名胡锡进，是胡扯的儿子，现在是赵国的一条狼狗，在监狱长赵六世那里领狗粮。<br>
-    <br>
-    9、胡扯的儿子，为什么愿意做一条狗？<br>
-        参考答案：I don’t know <br>
-    <br><center><font size="4"><b>请胡锡进来表演魔术，玩弄香港人</b></font></center>
-<br>
-    <br>
-    到现在，对于胡锡进这条狗的歪理，相信很多港人还耿耿于怀。<br>
-    <br>
-    胡说：<br>
-    “全世界的强力部门通常都有规避法律让一个被调查者进行配合的办法，既达到开展工作的目的，又不跨越制度的底线。”<br>
-    <br>
-    这句话，注定会成为狗国臭名昭著的名言。<br>
-    <br>
-    狗儿胡锡进，你过来，说说，你的主子们是怎么规避法律的？<br>
-    <br>
-    或者，不难为你，咱们玩新的游戏。给你一只完全密闭的铁罐儿，里面装着几粒狗粮。请问，在不打开铁罐的前提下，你怎样吃到里面那几粒狗粮？<br>
-    <br>
-    如果你能做到这一点，我将支持你，赵国公安跨境来香港绑人，确实不算违反基本法。<br>
-    <br>
-    20年前，张宝胜大师经常玩这个把戏，能从密闭的瓶子里取药片，能够意念移物。王林大师据说也会，但他现在忙着坐牢，不知有没有办法，在不越过围墙的情况下，把自己弄出监狱。<br>
-    <br>
-    张宝胜大师的把戏，后来被证明是魔术加骗术。这么说来，赵国公安也是玩儿的魔术和骗术，穿越了基本法？那就是说――赵国公安在玩弄基本法和香港人。对吗？<br>
-    <br>
-    我只能得出这样的结论。<br>
-    <br>
-    并且我是很相信这个结论的，他们在内地就是常年不厌其烦地玩弄老百姓的。老百姓哪怕是一个字的误差，他们也不惜让你跑上几千公里，几十次衙门。他们不厌其烦地让老百姓证明你是你、你妈是你妈，让活人证明你活着，让死人证明他死了。就像你们的特首梁振英，要求被绑架的李波，自己提供材料证明他被绑架。<br>
-    <br>
-    常年习惯于玩弄国内百姓的赵国政府、公安，现在尝试玩弄下基本法和香港人，有什么好奇怪的。<br>
-    <br>
-    本周日，会有一群香港人去中联办游行抗议。我相信，素来习惯于做无赖的赵国中联办，到时肯定会说，我们渡周末呀，没看到香港人游行过来，没有办法收到香港人的状子。那些常年在国外，围着赵国大使馆诉求的访民们，得到的就是这样的待遇。<br>
-    <br><center><font size="4"><b>悬赏100万港币，求解“以自己的方式”是什么方式</b></font></center>
-<br>
-    <br>
-    有赖大英帝国时期的阳光和宽宥，香港生长了无数个大富豪。不过你们都是待宰的肥羊，将来一定都要掏大价钱，购买赵国贵族的VIP卡。在这群肥羊里，唯一能看到，还有一位肥佬在战斗。他就是黎智英。媒体人，出版人，都在自我审查，退却时，他还在坚守香港的自由底线。<br>
-    <br>
-    现在，全香港人都感到疑惑，赵国公安创造的李波“以自己的方式回到内地”，那到底是什么方式？很想建议有钱的黎智英，设个奖项，促进全人类尽快找到这个问题的答案。<br>
-    <br>
-    悬赏100万港币，求解这个问题，如何？<br>
-    <br>
-    据说，黎智英先生资产超过百亿港币，100万元万分之一都不到，一根汗毛而已。不过，下一位“以自己的方式”回内地配合调查的，却最有可能就是黎智英先生。江湖上都清楚，心胸狭隘的赵氏家族，其实仇恨肥佬黎，超过桂民海100倍。<br>
-    <br>
-    现在，赵国强力部门办公楼里，据说都挂着一条新的最高指示：<br>
-    犯我赵王者，虽远必诛！<br>
-    <br>
-    不寒而栗吧，地球人？<br>
-    <br>
-        阴影下的肥佬黎<br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601090955pubvp3.jpg" alt="李方：730万香港人，未来会成为国际难民吗？"><p><br>
-    <br></p>
-<center><font size="4"><b>跨境控制家属，赵国匪徒欺人太甚</b></font></center>
-<br>
-    <br>
-    一个孩子，被匪徒劫走，打得遍体鳞伤。因为受到性命恐吓，回家后不敢和母亲说实话，只是说“我以自己的方式弄伤自己的”。被伤变成了自伤自残，如果他被杀，那就会变成自杀。看到这样的情景，做母亲的该是何其伤心，孩子伤成这样，还不敢说出凶手。而孩子又是何其的委屈，忍受痛苦，还要替歹徒说谎。<br>
-    <br>
-    这是何其丧尽天良的匪徒！<br>
-    <br>
-    李波和桂民海等人的遭遇，就是类似的剧目。如此，相信大家也可以理解此时的蔡嘉</td></tr></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
