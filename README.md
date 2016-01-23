@@ -33,7 +33,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601230531.shtml" target="boxun-mirror">习近平中东之旅背后一带一路项目面临危机重重请看博讯热点：习近平观察</a>
 </h2>
@@ -84,7 +84,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601200445.shtml" target="boxun-mirror">西部战区指挥中枢解密一正四副含陆军分部司令请看博讯热点：军队高层</a>
 </h2>
