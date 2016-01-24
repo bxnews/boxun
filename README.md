@@ -19,6 +19,59 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/01/201601240332.shtml" target="boxun-mirror">铜锣湾书店事件:李波或周日返港公开信曝光请看博讯热点：打压媒体和记者</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>铜锣湾书店事件:李波或周日返港 公开信曝光<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601240332" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    「博</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601240521.shtml" target="boxun-mirror">达沃斯论坛中国龟缩惧成靶标习近平拒派常委出席请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>达沃斯论坛中国龟缩惧成靶标 习近平拒派常委出席<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201601240521" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     【博闻社独家】一年一度的“达沃斯世界经济论坛”今天在瑞士小镇达沃斯落幕。四天会期间中国经济无疑成为焦点话题之一。奇怪的是，往常极注重利用国际舞台宣扬经济成就、多次派出总理或政治局常委出席的中共，这次仅派出政治局委员、国家副主席李源潮领衔参加。中国代表团无论是人数还是级别都较往年大幅“缩水”。<br>
+    <br>
+     博闻社从中南海知情者了解到，此次中共对达沃斯论坛“降温”甚至有点冷待，是担心若如常派出政治局常委级巨头出席，会成为众矢之的，因中国的经济现正处在危险之际，救难乏良策，国家主席习近平不会去做靶子，总理李克强也不愿意担此风险。问题交政治局讨论，最终习近平拍板“降格降温”! 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社获悉，作为世界经济论坛创始人和主席的日内瓦大学教授克劳斯・施瓦布，早在今年的达沃斯论坛开始筹备初期，就曾邀请中国国家主席习近平能够亲临现场；在去年底应邀出席中国乌镇世界互联网大会期间，施瓦布又再次亲自当面向习近平发出邀请，但中方均以“日程冲突而无法安排”为由给予了明确的答复，婉拒邀请。<br>
+    <br>
+    中南海知情者向博闻社透露，今年的达沃斯世界经济论坛与习近平的“中东之旅”确实几乎完全同步；不过，既然习近平因分身无术无法莅临，论坛主办方也曾试图邀请中国总理李克强，为此，瑞士外长迪迪埃・布尔克哈尔特于1月15日还专程赴北京，进行最后的“游说”，出乎意料的是，也遭到中方的婉然拒绝。<br>
+    <br>
+    中南海知情者对博闻社指，考虑到中国经济面临的严峻形势，为避免中国成为众矢之的，尤其是被视为殃及全球股市的替罪羊，中共经反复评估最终决定，政治局常委全部不出席今年世界经济论坛。曾代表中国参加过达沃斯论坛的政治局常委、第一副总理张高丽，原本计画前往达沃斯，但最终政治局会议讨论，习近平拍板，由政治局委员、国家副主席李源朝率团出席。<br>
+    <br>
+    中南海知情者向博闻社指，李源潮在中共权力中心其实已边缘化，且一度传闻习要把他“拿下”，故其主要对外有“副国级”的名份，也算是中方让瑞士外长不虚此行，同时也是对老朋友施瓦布的一个相对体面的交待。其实说到底，大权独揽的习近平，并不希望包括李克强在内的任何一位政治家常委，在任何国际场合抢风头。<br>
+    <br>
+    每年一度的世界经济论坛（世界经济Forum）是以研究和探讨世界经济领域存在的问题、促进国际经济合作与交流为宗旨的非官方国际性机构。每年均有众多外国元首、政府首脑及国际大企业代表出席。<br>
+    <br>
+    自1979年以来，中国一直与世界经济论坛保持着良好合作关系。中国领导人先后多次出席年会并发表讲话。1992年至2000年，时任总理李鹏、朱</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601230505.shtml" target="boxun-mirror">新闻评述：宁赠友邦，不予家奴――把撒币外交进行到底</a>
 </h2>
 <p><tr>
@@ -1020,108 +1073,6 @@
     知情者指，中国军方通过丁宁染指缅甸，背后有一位很重要的牵线搭桥人物：前中央军委秘书长、国防部长耿</p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601130745.shtml" target="boxun-mirror">南宁乌鲁木齐直通火车当局下令禁向新疆人出租屋请看博讯热点：新疆问题</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>南宁乌鲁木齐直通火车 当局下令禁向新疆人出租屋<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinjiang.shtml">新疆问题
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601130745" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】今日(1月13日)开始，由新疆乌鲁木齐来往广西南宁的T284/1次、T282/3次特快旅客列车开通，这是新疆与广西两地间首次开行直达列车，也是迄今内地里程最长的直通火车。但博闻社获悉，广西南宁市当局竟向辖下各区县下令，禁止居民向新疆人出租房子；禁止向新疆人出售刀具、生火工具、汽油、硫酸等具有威胁人身安全的物品；如发现新疆人行踪要立即向公安报告。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    博闻社获悉一张从黎塘镇永安东社区发出的通告称，根据市、县、镇政府的通告(黎塘填属南宁市宾阳县管辖)，南宁至乌鲁木齐的铁路运输1月13日正式开通，目前反恐形势严峻，为了广大人民群众的人身、财产安全起见，现将市、县、镇人民政府的通知发放给广大群众，望大家高度重视，积极配合。<br>
-    <br>
-    通知具体提出三点要求，一是“务必婉言拒绝出租房子给新疆人居住”；二是“拒绝出售刀具、生火工具、汽油、硫酸等具有威胁人身安全的物品给新疆人，只能出售食品和衣服”；三是“如发现新疆人行踪，要立即向镇政府、镇派出所报告”，并留下多个联系电话。<br>
-    <br>
-    博闻社昨与其中一个电话联系查询，对方坦承自己是社区工作人员，称有关通知是“(宾阳)县政府和县公安局下发的”，是否来自南宁市政府或市公安局，他表示“不知道”，但相信来自市里，因“县里没有这个权限”。<br>
-    <br>
-    根据铁路部门的通告，1月13日起，新疆铁路部门将隔日开行乌鲁木齐南至南宁T284/1次、南宁至乌鲁木齐南T282/3次特快旅客列车一对，列车全程4608公里，是目前中国里程最长的直达火车，途经新疆、甘肃、陕西、河南、湖北、湖南、广西七省区，设35个车站，主要停靠站点为乌鲁木齐南、吐鲁番、鄯善、哈密、柳园、嘉峪关、武威、兰州、西安、南阳、襄阳、当阳、张家界、怀化、柳州、南宁。全程运行时间59小时47分。<br>
-    <br>
-    这趟列车除连通乌鲁木齐、南宁两个省会城市外，还首次将湘西苗寨、张家界等著名旅游风景区串在一起。此前，由新疆去往南宁需在西安或郑州、成都、重庆等地转车，此次开行直达列车后，极大地缩短西北与华南的时空距离，当局期待对密切新疆、广西两地的社会经济往来，助力一带一路国家战略的全面实施起到积极的促进作用。但在目前恐袭阴影浓重之下，此趟客车对华南各地政府构成了治安压力。<br>
-    <br>
-    2014年2月云南昆明市火车站砍人事件发生后，新疆维人在大陆官方宣传下成了“恐怖”代名词，在各地遭到驱赶、拒载等，甚至被仇视。多地警方公开宣称对新疆和维族人进行严控。加上云南和广西成为新疆维人离家出逃、前往中亚国家的热门途径，更加重了当地治安负担。<br>
-    <br>
-    此前，广西南宁市仙葫派出所在网络发布通知称：“如发现辖区有新疆籍人员入住、经商、旅游等，立即上报仙葫派出所。”新疆人俨然被当作恐怖的代名词，这导致很多民众由此将新疆人与恐怖份子等同看待，不仅恐慌甚至敌视和仇视；新疆人在多地被驱赶、抓捕 无处容身。<br>
-    <br>
-    昆明火车站血案发生后，同年3月3日，广西省南宁市警方抓捕4名维吾尔族人，警方称，这些人虽然与昆明砍人案无关，但警方要严控他们，以防止暴力事件发生。桂林市警方通报声称，有民众举报有5名“疑似恐怖袭击分子”进入该市。桂林警方立即出动，在城区将5名新疆人拘捕。<br>
-    <br>
-    博闻社详细报道全文：<a href="http://bowenpress.com/news/bowen_56561.html">南宁乌鲁木齐今直通火车 当局下令禁向新疆人出租屋</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601130745" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1230745       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601120210.shtml" target="boxun-mirror">广西凤山数千失地农民游行示威与警察对峙请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>广西凤山数千失地农民游行示威与警察对峙<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601120210" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      广西河池市凤山县的数千失地农民周一（1月11日）发起示威，抗议当地政府取消征地时承诺的低保，与大量警察一直对峙到当天深夜，多人被警察殴打抓捕。<br>
-    <br>
-    据网友透露，之前凤山政府为征地承诺发放最低保障给失地农民，但在官员换届后，凤山政府取消了低保，村民近期曾多次抗议。<br>
-    <br>
-    目击网友“王腾洋95587”发帖说：征地时拿低保来骗农民，现在又把低保停了也不给个说法，农民是这样拿来骗的吗？这是要把农赶尽杀绝吗？政府领导一直不出来给农民一个交代，真不把我们农民当回事吗？<br>
-    <br>
-    11日中午，数百村民同时将县城内的多条交通要道堵死，持续到当天下午，示威人数增至数千人，同时，有大量警察到现场驱逐村民，双方一度发生冲突，多名村民遭到殴打和抓捕。<br>
-    <br>
-    图片、视频显示，大批村民持“打倒官僚，还我土地，农民最低生活得不到保障”等横幅将交通堵死，并与大量警察对峙，现场人山人海水泄不通，一些村民被警察抓走。<br>
-    <br>
-    目击网友“危情旦夕”发帖说：凤山县人民政府占用群众土地，不给群众低保，而被群众们把县城每一条出路都封得严严实实。几千人，还没有结果。<br>
-    <br>
-    另一名目击网友“CCCCLlove”说：广西河池凤山人民，在田地征完后，又面临低保的取消，为了讨个说法，镇府出动防爆镇压，人民的父母官，你们就是这样待你们子民的吗？连基本的温饱都不能解决，让老百姓怎么生存？<br>
-    <br>
-    截止当天深夜，仍有大批村民聚集在凤山公安局门口。<br>
-    <br>
-    （网络图片）<br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601120210china1.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"><p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601120210china2.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601120210china3.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601120210china4.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601120210china5.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601120210china6.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601120210china7.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601120210china8.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601120210china9.jpg" alt="广西凤山数千失地农民游行示威与警察对峙"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601120210" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601111054371.jpg http://upload.bx.tl/news/temp13/201601111054372.jpg http://upload.bx.tl/news/temp13/201601111054373.jpg http://upload.bx.tl/news/temp13/201601111054374.jpg http://upload.bx.tl/news/temp13/201601111054541.jpg http://upload.bx.tl/news/temp13/201601111054542.jpg http://upload.bx.tl/news/temp13/201601111054543.jpg http://upload.bx.tl/news/temp13/201601111054544.jpg http://upload.bx.tl/news/temp13/201601111055001.jpg--> 800210       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
