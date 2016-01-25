@@ -269,7 +269,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601190802.shtml" target="boxun-mirror">视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手</a>
 </h2>
