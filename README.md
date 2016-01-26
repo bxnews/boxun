@@ -19,6 +19,40 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601260328.shtml" target="boxun-mirror">被中国拘押的瑞典籍NGO达林获释已被驱离中国</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>被中国拘押的瑞典籍NGO达林获释 已被驱离中国<br><font color="#000fC0">(<small>博讯北京时间2016年1月26日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201601260328" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社】1月26日（今）凌晨获悉，被中国当局以“涉嫌危害国家安全罪”拘押的瑞典籍NGO林达获释，目前已和他的女友一起离开北京，飞往瑞典。瑞典外交部拒绝对此评论。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    ABC新闻今日凌晨报道，总部位于美国的人权组织"人权卫士紧急救援协会"（Chinese Urgent Action Working Group）在华瑞典籍工作人员彼得・达林(Peter Dahlin)，被中国当局拘押了23天，他的女友也自1月3号开始被拘押，目前两人同时获释，并被驱离中国，返回瑞典。<br>
+    <br>
+    19日，达林被中共各大官媒指认为“涉嫌危害国家安全”，并押上中央电视台“认罪”，官媒称林达所在的组织“插手社会热点问题和敏感案事件，蓄意激化一些原本并不严重的矛盾纠纷，煽动群众对抗政府，意图制造群体性事件”。并指称该组织曾经资助的幸清贤与境外勾连、策划组织律师王宇之子偷越国边境。<br>
+    <br>
+    外界一致认为，达林遭拘留一事显示中共</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601241333.shtml" target="boxun-mirror">东方集团张宏伟畏罪不敢回国证监会仍合作圈钱</a>
 </h2>
 <p><tr>
@@ -966,119 +1000,6 @@
 <b></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601142240.shtml" target="boxun-mirror">胡石根、刘四新被“颠覆”罪11人因大抓捕被逮捕</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕<br><font color="#000fC0">(<small>博讯北京时间2016年1月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601142240" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     胡石根更多文章请看<a href="http://blog.boxun.com/my-cgi/post/display_all.cgi?cat=hsg">胡石根</a>专栏<br>
-     <br>
-    <br>
-    博讯记者获悉，又有胡石根和刘四新被以“涉嫌颠覆国家政权罪”逮捕，因为大抓捕而比逮捕的维权律师增加到11人。这11人的逮捕通知书可能都是同一天1月8日发出的，其他目前未获得消息的人，他们的逮捕通知书可能在路上。<br>
-    <br>
-    著名民主人士、原北京语言大学教师胡石根的代理律师李柏光说：“刚接到胡石根弟弟给我来电，胡石根家属收到逮捕通知书，罪名是‘涉嫌颠覆国家政权罪’，关押在天津市第一看守所，逮捕通知书发出时间也是2016年1月8日，晚上扫描发给我。”<br>
-    <br>
-    另外，锐锋律师事务所的行政助理刘四新博士也被以嫌颠覆国家政权罪”逮捕，关押在天津市第二看守所。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china1.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"><p><br>
-    胡石根<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china2.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china3.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    刘四新<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china4.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china5.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    王宇<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china6.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china7.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    包龙军<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china8.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china9.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    、高月<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china10.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china11.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    王全璋<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china12.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    </p>
-<div align="center"><img src="http://upload.bx.tl/news/temp13/201601120731003.png" width="500"></div>
-<br>
-    周世锋<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china14.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"><p><br>
-    <br>
-    </p>
-<div align="center"><img src="http://upload.bx.tl/news/temp13/201601120731005.png" width="500"></div>
-<br>
-    李姝云<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china16.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"><p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china17.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    谢燕益<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china18.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china19.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    赵威<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china20.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china21.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    谢阳<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china22.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    目前因为维权律师大抓捕而被逮捕的11人：胡石根、刘四新、王宇、包龙军、王全璋、高月、王全璋、周世锋、李姝云、谢燕益、赵威、谢阳。其中，胡石根、刘四新、王宇、王全璋、周世锋、李姝云、赵威等七人被控“颠覆国家政权罪”，包龙军、谢燕益、谢阳三位律师被控“涉嫌煽颠颠覆国家政权罪”，高月被控“帮助毁灭证据罪”。胡石根、王宇、周世锋、李姝云、赵威、高月等6人被关押在天津市第一看守所，刘四新、谢燕益、包龙军、王全璋等4人关在天津市第二看守所，谢阳关押在长沙市第二看守所。<br>
-    <br>
-    1月14日，周世锋的代理律师杨金柱到天津第一看守所，要求会见一直遭拒。一直到晚上七点，杨金柱仍然一个人坚守在天津市第一看守所死磕律师辩护权。杨金柱说：“啥意思？老子现在一个人还在天津市第一看守所门口要天津市公安局的杨杰来见我，你说啥意思，老子一个人在这冷的要死！”<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china23.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601142240china24.jpg" alt="胡石根、刘四新被“颠覆”罪 11人因大抓捕被逮捕"></p>
-<p><br>
-    <br>
-    随后在8点多，杨金柱又说：“亲们，很好玩啊！天津市公安局七处向当地派出所报警了，杨今主对派出所的警察们说：这是杨金柱律师和七处杨杰主任的公事，和你们当地派出所没有关系，你们不要来趟这趟浑水。他们看了我的律师证，登记了我的电话号码就走了。刚才，天津市七处的杨杰给值班室门卫打来电话，杨金柱和杨杰在电话里说明了情况。杨杰要我明天下午一点半来看守所，一定给我一个说法。我对杨杰说：长沙市司法局律师处王剑处长，湖南省律师协会周爱梧秘书长今天晚上9点半的飞机飞北京，明天上午，我和他们一起来天津市公安局。我们要依法维护辩护律师的辩护权。我现在已经离开天津市第一看守所，吃饭后回北京。谢谢大家的关注！”<br>
-    <br>
-    杨金柱还表示：“为周世锋颠覆案的律师辩护权，吾将抬棺前行！中国30万律师同仁们：杨金柱已经过了60岁了，已经完全活明白了！男子汉大丈夫，应当有担当！作为执业30年的刑辩律师，为了追求心中的正义，为了对中国现行法律的信仰，为了维护中国刑辩律师的神圣辩护权，杨金柱听从自己内心的召唤，决心再次抬棺上阵，与违法公权力再次大战风车！虽千万人吾往矣！”
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601142240" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601140734431.jpg http://upload.bx.tl/news/temp13/201601140734432.jpg http://upload.bx.tl/news/temp13/201601140734433.jpg http://upload.bx.tl/news/temp13/201601140734434.jpg http://bnn.co/news/images/2016/01/201601132239china1.jpg http://upload.bx.tl/news/temp13/201601140734435.jpg http://bnn.co/news/images/2016/01/201601132239china2.jpg http://upload.bx.tl/news/temp13/201601140734436.jpg http://bnn.co/news/images/2016/01/201601132239china3.jpg http://bnn.co/news/images/2016/01/201601132239china4.jpg http://bnn.co/news/images/2016/01/201601132239china5.jpg http://bnn.co/news/images/2016/01/201601132239china6.jpg http://upload.bx.tl/news/temp13/201601120731003.png http://bnn.co/news/images/2016/01/201601132239china8.jpg http://upload.bx.tl/news/temp13/201601120731005.png http://bnn.co/news/images/2016/01/201601132239china10.jpg http://bnn.co/news/images/2016/01/201601132239china11.jpg http://bnn.co/news/images/2016/01/201601132239china12.jpg http://bnn.co/news/images/2016/01/201601132239china13.jpg http://bnn.co/news/images/2016/01/201601132239china14.jpg http://bnn.co/news/images/2016/01/201601132239china15.jpg http://bnn.co/news/images/2016/01/201601132239china16.jpg http://upload.bx.tl/news/temp13/201601140734437.jpg http://upload.bx.tl/news/temp13/201601140734438.jpg--> 4542240       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
