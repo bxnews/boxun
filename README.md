@@ -57,7 +57,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11分钟前</small>
+	<small> ============== 16分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601270717.shtml" target="boxun-mirror">北京做法太过份：瑞典派调查组赴泰调查桂民海事件</a>
 </h2>
@@ -104,7 +104,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 14分钟前</small>
+	<small> ============== 19分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601270712.shtml" target="boxun-mirror">内地有关人士回应香港立法会就李波事件质询</a>
 </h2>
@@ -161,7 +161,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 14分钟前</small>
+	<small> ============== 19分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601260328.shtml" target="boxun-mirror">被中国拘押的瑞典籍NGO达林获释已被驱离中国</a>
 </h2>
