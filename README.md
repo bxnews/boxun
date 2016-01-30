@@ -108,6 +108,57 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/pubvp/2016/01/201601302048.shtml" target="boxun-mirror">李方：桂民海会判“泄露主席情人罪”？请看博讯热点：打压媒体和记者</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>李方：桂民海会判“泄露主席情人罪”？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月30日</small> <small>转载</small>)</font>
+</center>
+                <!--bodystart--> <center><font size="4"><b>原题：泄露主席情人罪</b></font></center>
+<br>
+    <br>
+        “电视认罪”的铜锣湾书店老板桂民海<br>
+    <img src="http://www.boxun.com/news/images/2016/01/201601302048pubvp1.jpg" alt="李方：桂民海会判“泄露主席情人罪”？"><p><br>
+    <br><br><b>绑架李波回国，为交通肇事案作证？</b><br>
+    <br>
+    广东警方回应香港政府，说李波是以“证人身份”，留在内地，配合调查。那么，李波是为什么事情做证？官员打死不说。<br>
+    其他三位铜锣湾书店失踪人――林荣基、吕波、张志平，至今依旧下落不明，香港人也不要忘记了追寻他们三位。他们三位，也是证人吗？广东公安现在连他们在不在内地都不透露，藏得好深啊。<br>
+    内地法律定义：以本人所知道的情况对案件作证的，称为证人。可是李波并不知道桂敏海12年前的交通肇事案，更不是现场目击人，绑架他回去为这个事作证？为一桩交通肇事案，需要从香港绑架证人，回去作证吗？<br>
+    <br><br><b>朱小丹，剁你一根指头影不影响我俩关系？</b><br>
+    <br>
+    近日广东人大会议上，香港记者就李波事件追问省长朱小丹。朱称自己还不是很了解，并称相信任何个案不会影响粤港澳，特别是粤港之间的整体关系。对于省长先生的话，我的理解，第一他失职，手下人越境绑架香港人，已经造成国际大丑闻，作为省长你不知？真不知就是失职，假不知就是欺骗民众，官德卑劣。第二，还是欺骗，你都践踏基本法，在香港绑人，把香港人不当人了，这还是个案，还不影响粤港关系？<br>
+    我想问朱小丹省长，我剁你一根手指头，你抗议。我说：不要因为一根小指头，影响咱俩关系。你同意吗？<br>
+    记者追问广东省公安厅常务副厅长李庆雄，李大官人称“没什么好说的，我刚刚吃饭”。一个人不见了，没什么好说的？李波的公民自由，居然不如副厅长大人吃饭重要。李副厅长看来是个吃饭厅长，饭桶？<br>
+    <br><br><b>李波成污点证人，过年可以请几天假吗？</b><br>
+    <br>
+    大家见过越境绑架证人回国作证的事儿吗？我是没见过，也没听说过。可见这事儿一定很重大，不然不会采取这等让整个国家丢脸的做法。如果是证人，应该有他的自由，不自由的证人，其证言基本是不可信的。现在李波被宣布做了证人，还被关着不让回家，不知春节能不能请假回香港过几天节，然后再回去被关着。如此看来，李波应该是污点证人，只有污点证人，才会被关押。<br>
+    既是污点证人，应该还要等到案件开庭，出庭作证。那么李波近日怎么回得来？案件开庭哪有那么快，恐怕还得等待几个月。<br>
+    这么一来，李波不但被抓去做了证人，还被泼了一身污水，成了污点证人。<br>
+    强国电视台说，桂敏海千里迢迢自愿偷渡回去，为多年前的交通肇事案请罪。但这个案子早已经判决过了，重新追究，莫不是欲加之罪？电视台的说法其实已经成为国际笑料，显而易见的证据，充分证明桂敏海是被跨国从泰国绑架回去的。难道强国跨国绑架一个外籍商人，仅仅是为了一单交通肇事旧案？<br>
+    <br><br><b>桂敏海会否判“泄露主席情人罪”？</b><br>
+    <br>
+    香港人都清楚，中共现在上上下下，都是揣着明白装糊涂。强国强力部门费尽周折，不惜被全世界臭骂，越境绑架回去一批人，背后就是为了他们领袖的秘密，他的情人的秘密。<br>
+    铜锣湾书店常年出版政治八卦书籍，开涮中共领袖那是家常菜。江泽民时代出，胡锦涛时代也出，唯独到了习近平时代不行了。香港那么多的书店，那么多出版公司，其他的不搞，为何专搞桂敏海的公司和书店，要把桂敏海的人马一网打尽？<br>
+    说来有点八卦，还不就是因为桂敏海的书店犯了大忌，计划出版习近平的隐私。那本《习近平的六个女人》，目前好像部分情节已经晒在网上了，不知习近平会采取什么办法，将网络世界这些文字也抓进监狱。所谓文字狱也。<br>
+    这么大个事件，中共相关官员，从上到下，一概装糊涂，桂民海被央视示众，也只说交通肇事案。独独这个大事件的背后真正原因，被刻意隐瞒。那是因为，习近平的情人，不但在强国域内是国家机密，在强国域外，也是国家机密，必须封锁。<br>
+    不知桂敏海五人，将来会被判“泄露主席情人罪”，还是“泄露国家机密罪”。<br>
+    <br><br><b>梦雪火了，彭丽媛吃醋</b><br>
+    <br>
+    铜锣湾事件后，那个叫梦雪的女人，再度火了起来。网友说，习近平的中国梦，其实就是“梦雪”。曹操的魏国梦，好像是“衮雪”。<br>
+    大家注意了吗，习近平新年首次出访中东三国，彭丽媛意外没有陪同出去撒钱。据说，就是因为李波事件闹大了，彭麻麻上网也发现了那位漂亮的“中国梦”。麻麻醋意大发，就和习大大在中南干仗，宣布――今后再出国，找你情人陪去！<br>
+    <br>
+    来源：苹果日报网
+ <!--bodyend-->(博讯 boxun.com)</p>
+<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
+<!-- http://upload.bx.tl/news/temp14/201601300547121.jpg--> 962048       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601290704.shtml" target="boxun-mirror">以美国击毙占领政府民兵，驳斥脑残中国小粉红</a>
 </h2>
 <p><tr>
@@ -883,83 +934,6 @@
 <br>    周世锋<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china16.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <div align="center"><img src="http://upload.bx.tl/news/temp13/201601120731005.png" width="500"></div>
 <br>    李姝云<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china18.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china19.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    谢燕益<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china20.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china21.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    赵威<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china22.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china23.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br>    谢阳<br>    <br>    <img src="http://www.boxun.com/news/images/2016/01/201601192340china24.jpg" alt="李和平已经被天津逮捕 被逮捕的维权律师已到15人"><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601192340" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/1/19)--> <!--bodyend-->       
            (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp13/201601161420381.jpg http://bnn.co/news/images/2016/01/201601162352china1.jpg http://upload.bx.tl/news/temp13/201601140734431.jpg http://upload.bx.tl/news/temp13/201601140734432.jpg http://upload.bx.tl/news/temp13/201601140734433.jpg http://upload.bx.tl/news/temp13/201601140734434.jpg http://bnn.co/news/images/2016/01/201601132239china1.jpg http://upload.bx.tl/news/temp13/201601140734435.jpg http://bnn.co/news/images/2016/01/201601132239china2.jpg http://upload.bx.tl/news/temp13/201601140734436.jpg http://bnn.co/news/images/2016/01/201601132239china3.jpg http://bnn.co/news/images/2016/01/201601132239china4.jpg http://bnn.co/news/images/2016/01/201601132239china5.jpg http://bnn.co/news/images/2016/01/201601132239china6.jpg http://upload.bx.tl/news/temp13/201601120731003.png http://bnn.co/news/images/2016/01/201601132239china8.jpg http://upload.bx.tl/news/temp13/201601120731005.png http://bnn.co/news/images/2016/01/201601132239china10.jpg http://bnn.co/news/images/2016/01/201601132239china11.jpg http://bnn.co/news/images/2016/01/201601132239china12.jpg http://bnn.co/news/images/2016/01/201601132239china13.jpg http://bnn.co/news/images/2016/01/201601132239china14.jpg http://bnn.co/news/images/2016/01/201601132239china15.jpg http://bnn.co/news/images/2016/01/201601132239china16.jpg--> 4802340       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601190802.shtml" target="boxun-mirror">视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手<br><font color="#000fC0">(<small>博讯北京时间2016年1月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201601190802" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-    1月17日，来自纽约的作家和新闻从业人员聚会法拉盛，对香港铜锣湾书店员工绑架案一事进行分析和讨论，对照今日央视审讯铜锣湾书店老板桂明海的视频，来宾指出桂明海在泰国被绑架案证据确凿，而央视一口咬定是桂明海主动愿意回国自首，其中的说法存在不少破绽。对于书店另一名股东李波的被捕，来宾认为这是自1997年香港回归以来最严重的政治事件，甚至超过“21条”恶法的颁布。<br>
-    <br>
-    参加会议的有：贝岭，刘路，胡平，何频，王军涛，陈小平，张博树，冯胜平，高光俊，冯哲胜，孟玄，罗小鹏，张艾枚，毕汝诸，陈小平，西诺等。<br>
-    <br>
-    这次会议由中国研究院主办。<br>
-    <br>
-    详细情况，请看博讯视频<br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/xWSwsMSrU_I" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/OvixsS4Om50" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/C7rK37cEYrk" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/PfgYjV-h0hM" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/pZDz_BuVUPw" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/A6tvhN3m65s" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/SCKb1Ide6sg" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="600" height="360" src="https://www.youtube.com/embed/Q1GUYNkGcXY" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan1.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"><p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan2.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan3.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan4.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan5.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan6.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan7.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan8.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan9.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan10.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan11.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601190802taiwan12.jpg" alt="视频：纽约作家讨论铜锣湾书店员工绑架案的背后黑手"></p>
-<p><br>
-    <br>
-    博讯记者西诺 纽约报道
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201601190802" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201601181700251.jpg http://upload.bx.tl/news/temp14/201601181700252.jpg http://upload.bx.tl/news/temp14/201601181700253.jpg http://upload.bx.tl/news/temp14/201601181700254.jpg http://upload.bx.tl/news/temp14/201601181700255.jpg http://upload.bx.tl/news/temp14/201601181700256.jpg http://upload.bx.tl/news/temp14/201601181700257.jpg http://upload.bx.tl/news/temp14/201601181700258.jpg http://upload.bx.tl/news/temp14/201601181700259.jpg http://upload.bx.tl/news/temp14/2016011817002510.jpg http://upload.bx.tl/news/temp14/201601181700411.jpg http://upload.bx.tl/news/temp14/201601181700412.jpg--> 160802       
-</p>
 <hr>
 <table width="620"><tr><td>
 <b></p>
