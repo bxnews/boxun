@@ -57,7 +57,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601290704.shtml" target="boxun-mirror">以美国击毙占领政府民兵，驳斥脑残中国小粉红</a>
 </h2>
