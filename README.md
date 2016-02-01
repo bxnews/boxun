@@ -75,7 +75,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/02/201602010816.shtml" target="boxun-mirror">海外知识界纽约研讨会：台湾大选对两岸三地影响请看博讯热点：台海之争</a>
 </h2>
@@ -90,7 +90,7 @@
     <br>
     1月30日，由博讯新闻网和纽约通讯主办、美东</td></tr></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601311225.shtml" target="boxun-mirror">被判19年重刑的张海涛捎出“上诉书”家属急需救助</a>
 </h2>
