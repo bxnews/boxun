@@ -75,7 +75,22 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 19分钟前</small>
+	<small> ============== 24分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2016/02/201602010816.shtml" target="boxun-mirror">海外知识界纽约研讨会：台湾大选对两岸三地影响请看博讯热点：台海之争</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>海外知识界纽约研讨会：台湾大选对两岸三地影响<br><font color="blue" size="2">请看博讯热点：<a href="/hot/taiwan.shtml">台海之争
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201602010816" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    【博闻社独家】2016年1月16日，台湾举行总统大选和立法院选举，民进党的蔡英文以689万多的票数当选为第十四任总统，民进党同时赢得立法院2/ 3多数席位，绿营实现行政立法全面执政，国民党下野，台湾再度变天。<br>
+    <br>
+    1月30日，由博讯新闻网和纽约通讯主办、美东</td></tr></p>
+<p>
+	<small> ============== 24分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601311225.shtml" target="boxun-mirror">被判19年重刑的张海涛捎出“上诉书”家属急需救助</a>
 </h2>
@@ -1062,36 +1077,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601200445.shtml" target="boxun-mirror">西部战区指挥中枢解密一正四副含陆军分部司令请看博讯热点：军队高层</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>西部战区指挥中枢解密 一正四副含陆军分部司令<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601200445" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社独家】博闻社本月11日已独家披露，解放军西部战区指挥中心于1月9日已在成都宣告成立。西部战区首任司令为原济南军区司令赵宗岐，政委为原成都军区政委、曾经是徐才厚旧部的朱熙福暂任。最新消息透露，西部战区副司令有四位，含陆军分部司令。此军种将领兼战区副职的模式，也是其它战区领导班子的组成模式。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       军方知情者向博闻社透露，西部战区覆</td></tr></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
