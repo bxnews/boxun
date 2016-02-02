@@ -161,7 +161,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602020453.shtml" target="boxun-mirror">中共建全国访民资料库防访民“串联搞事”越洋截访请看博讯热点：访民动态</a>
 </h2>
@@ -208,7 +208,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602010723.shtml" target="boxun-mirror">原学运领袖致信美国国会和联合国恳请关注遭无限期关押的于世文</a>
 </h2>
