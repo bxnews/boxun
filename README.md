@@ -247,7 +247,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602010723.shtml" target="boxun-mirror">原学运领袖致信美国国会和联合国恳请关注遭无限期关押的于世文</a>
 </h2>
