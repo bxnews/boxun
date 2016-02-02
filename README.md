@@ -161,7 +161,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602021713.shtml" target="boxun-mirror">美国大选焦点：对华政策的两个派系</a>
 </h2>
@@ -200,7 +200,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602020453.shtml" target="boxun-mirror">中共建全国访民资料库防访民“串联搞事”越洋截访请看博讯热点：访民动态</a>
 </h2>
