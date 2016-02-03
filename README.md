@@ -56,7 +56,7 @@
     <br>
     而今天，习近平对中共军队大刀</td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/02/201602021621.shtml" target="boxun-mirror">评述：“习核心”打扮三年正式亮相，王沪宁制造请看博讯热点：习近平观察</a>
 </h2>
@@ -286,7 +286,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602010723.shtml" target="boxun-mirror">原学运领袖致信美国国会和联合国恳请关注遭无限期关押的于世文</a>
 </h2>
@@ -344,7 +344,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/02/201602010816.shtml" target="boxun-mirror">海外知识界纽约研讨会：台湾大选对两岸三地影响请看博讯热点：台海之争</a>
 </h2>
@@ -359,7 +359,7 @@
     <br>
     1月30日，由博讯新闻网和纽约通讯主办、美东</td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601311225.shtml" target="boxun-mirror">被判19年重刑的张海涛捎出“上诉书”家属急需救助</a>
 </h2>
@@ -964,7 +964,7 @@
     <br>
     而官方喉舌新华社代表中共对外发出有关股市的声音是什么呢？是警告索罗斯，因为这位国际金融家看淡中国经济，公开主张做空中国股市。在股市上黔</td></tr></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/misc/2016/01/201601281244.shtml" target="boxun-mirror">习近平迟早要活埋那些给他挖坑的人？</a>
 </h2>
@@ -1005,7 +1005,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601270034.shtml" target="boxun-mirror">瑞典政府与泰国警方联手调查将揭开阿海失踪之谜请看博讯热点：打压媒体和记者</a>
 </h2>
@@ -1092,7 +1092,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/01/201601270712.shtml" target="boxun-mirror">内地有关人士回应香港立法会就李波事件质询</a>
 </h2>
@@ -1149,7 +1149,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/01/201601260328.shtml" target="boxun-mirror">被中国拘押的瑞典籍NGO达林获释已被驱离中国</a>
 </h2>
@@ -1183,7 +1183,7 @@
     <br>
     外界一致认为，达林遭拘留一事显示中共</td></tr></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/01/201601241333.shtml" target="boxun-mirror">东方集团张宏伟畏罪不敢回国证监会仍合作圈钱</a>
 </h2>
