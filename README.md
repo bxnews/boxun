@@ -56,7 +56,7 @@
     <br>
     而今天，习近平对中共军队大刀</td></tr></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/02/201602021621.shtml" target="boxun-mirror">评述：“习核心”打扮三年正式亮相，王沪宁制造请看博讯热点：习近平观察</a>
 </h2>
