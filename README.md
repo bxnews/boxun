@@ -19,6 +19,45 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/02/201602031142.shtml" target="boxun-mirror">借动作对外搞隐喻：习近平缘何此时「重上井岗山」？请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>借动作对外搞隐喻：习近平缘何此时「重上井岗山」？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602031142" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】中共官方媒体证实，中共总书记习近平今日已抵江西革命老区井冈山视察。在互联网高度发达的今天，中共不得不破了以往「政治局常委外出考察要离开当地后才能报道」惯例，在习近平抵达井岗山的第一时间，即在微博放料，再由官媒跟进报道。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    据透露，上午习近平来到茅坪八角楼旧址群参观，那里是他向往的地方：「我们唱过《八角楼的灯光》・・・・・・」从枫石到中共湘赣边界第一次代表大会会址，从毛泽东、朱德住室到士兵委员会旧址，他认真察看，不时提问，了解情况。听说毛泽东当年住室里的桌、床、凳都是原物，他嘱咐「一定要保护好」。<br>
+    <br>
+    习近平此次去井岗山考察，对外释放出什么信号？有何特别意义呢？<br>
+    <br>
+    外界注意到，习近平前天(2月1日)上午刚刚在北京参加解放军战区成立大会，向五战区授军旗并发布训令，之后即前往中共军队的诞生地井冈山，其符号性意义不言而喻，至少他要对外释放两个信息：<br>
+    <br>
+    首先，井岗山是中共第一代领导人毛泽东，朱德等人曾率军打江山的初始地，1927年毛泽东率领的队伍在湖南搞秋收起义暴动失败后，与朱德、陈毅搞南昌起义失败部队在井冈山会师，组成红四军，井岗山因此有「革命摇篮」之称。<br>
+    <br>
+    而今天，习近平对中共军队大刀</td></tr></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/02/201602021621.shtml" target="boxun-mirror">评述：“习核心”打扮三年正式亮相，王沪宁制造请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -1185,18 +1224,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601240332.shtml" target="boxun-mirror">铜锣湾书店事件:李波或周日返港公开信曝光请看博讯热点：打压媒体和记者</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>铜锣湾书店事件:李波或周日返港 公开信曝光<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinwenziyou.shtml">打压媒体和记者
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601240332" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    「博</td></tr></p>
 <p>
 	<small> ============== 10天前</small>
 </p>
