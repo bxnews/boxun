@@ -58,7 +58,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602031142.shtml" target="boxun-mirror">借动作对外搞隐喻：习近平缘何此时「重上井岗山」？请看博讯热点：习近平观察</a>
 </h2>
