@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602041755.shtml" target="boxun-mirror">TPP――21世纪的贸易协定</a>
 </h2>
