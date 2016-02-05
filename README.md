@@ -81,7 +81,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602050443.shtml" target="boxun-mirror">独家：中共官媒又接禁令“低调冷处理”美国大选请看博讯热点：打压媒体和记者</a>
 </h2>
@@ -129,7 +129,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602041755.shtml" target="boxun-mirror">TPP――21世纪的贸易协定</a>
 </h2>
