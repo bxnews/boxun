@@ -19,6 +19,45 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/editorial/2016/02/201602061147.shtml" target="boxun-mirror">澄清：习近平新书非博讯策划和出版</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>澄清：习近平新书非博讯策划和出版<br><font color="#000fC0">(<small>博讯北京时间2016年2月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=editorial201602061147" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      近日新闻热点事件“习近平”新书，有人误以为是博讯策划出版，因为旅居纽约的作者西诺称自己是新书作者，而西诺过去几年曾做博讯义工记者。<br>
+    <br>
+     因博讯资源有限，在美国一直仰仗大家义务参与，西诺是其中一名义工记者。西诺义务参与纽约多种公益活动，并从事一些自主生意经营谋生。因此，西诺自己的写作等活动，完全是自主进行。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    “习近平新书”最早由某记者将谷歌链接发给博讯主编，主编只看到数页免费版，并不知道作者是谁。数日后，纽约其他人说西诺网上推出“习书”，主编才向西诺核实，方知道西诺网上卖书。有BBC记者来电，问“习书”的事情，博讯主编韦石已经说明，此书是从外界先知道，才向西诺求证。<br>
+    <br>
+    博讯的运作有海内外众多义工参与，义工的创作等活动不受博讯约束，任何不以博讯名义出版的书籍，对其真实性博讯不能保证。<br>
+    <br>
+    另外，铜锣湾书店未必是因为某本书引起，而更可能是对相关出版业的一种打压。外界不应该专注于某书，而忽视香港新闻自由的大背景。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=editorial201602061147" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1671147       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602060652.shtml" target="boxun-mirror">中共要"借刀杀人"：爆令完成泄密加速令计划灭亡请看博讯热点：令计划</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -1197,43 +1236,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/finance/2016/01/201601280629.shtml" target="boxun-mirror">面对股灾掩耳盗铃中共下令禁唱衰经济妄议股市请看博讯热点：股市危机</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>面对股灾掩耳盗铃 中共下令禁唱衰经济妄议股市<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年1月28日</small> <small>转载</small>)</font>
-</center>
-                <!--bodystart-->     <br>
-    【博闻社独家】1月26日星期一，中国股市再爆灾难，沪股劲跌6.4%，跌穿2800点关口；深指则跌7%，两市近千股跌停。中国股市尸横遍野，血流成河，但漩涡中的中南海高层稳坐高堂，无动于衷，相反还下令禁止唱衰中国经济，尤其不许妄议股市，并发动宣传机器大力唱好股市经济。内地亿万股民怨声载道，怒不能言。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       博闻社驻京记者采访获悉，就在中国国家主席习近平出访中东三国、豪送500多亿美元凯旋后的首个交易日，中国股市再以黑色面目还以颜色，26日周一一开市，沪深两市即如水泻般下跌，全日两市分别下跌6.4%和7%，近千股跌停。至此，A股自新年以来已劲挫22%，其跌幅熊霸全球股市。<br>
-    <br>
-    就在此日，中共召开中央财经领导小组会议，接通知与会者包括国家发展改革委、财政部、住房城乡建设部、人民银行、国务院国资委等，而出席会议的中共巨头包括李克强、刘云山和张高丽几位常委。<br>
-    <br>
-    有与会人士对博闻社驻京记者表示，初以为在年关将至之际，股市如此灾难，当局会商议救市举措，以救股民于水火，岂料习近平亲自主持并发表“重要讲话”，涉及的话题仅限“研究供给侧结构性改革方案”、“长江经济带发展规划”、“森林生态安全工作”，几个小时会议下来，竟只字不涉股市!<br>
-    <br>
-    更令人意料不到的是，北京的各级喉舌媒体接到中宣部指令，强调不得“唱衰”中国经济，尤其不许“妄议”中国股市。对涉导向性及政策性的报道，要以新华社发稿为准。很多中共喉舌媒体中人对有关禁令哑然失色，无奈摇头!<br>
-    <br>
-    而前一天，25日，总理李克强召集各民主党派全国工商联负责人和无党派人士举行了座谈会，听取他们对《政府工作报告（征求意见稿）》和《“十三五”规划纲要（草案）（征求意见稿）》的意见建议，同样不谈股市。中国股市俨然成为中共高层额头上见不得的瘌痢疮疤，不能提、不敢提、不屑提!<br>
-    <br>
-    而官方喉舌新华社代表中共对外发出有关股市的声音是什么呢？是警告索罗斯，因为这位国际金融家看淡中国经济，公开主张做空中国股市。在股市上黔</td></tr></p>
-<p>
-	<small> ============== 9天前</small>
 </p>
 <table>
     <tr>
