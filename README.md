@@ -53,7 +53,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 19分钟前</small>
+	<small> ============== 24分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2016/02/201602061147.shtml" target="boxun-mirror">澄清：习近平新书非博讯策划和出版</a>
 </h2>
