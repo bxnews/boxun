@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/02/201602070615.shtml" target="boxun-mirror">西诺：“习近平新书”一书创作背景</a>
 </h2>
@@ -68,7 +68,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2016/02/201602061147.shtml" target="boxun-mirror">澄清：习近平新书非博讯策划和出版</a>
 </h2>
