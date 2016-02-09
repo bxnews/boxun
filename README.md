@@ -94,7 +94,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602071018.shtml" target="boxun-mirror">猴年春节七常委取消休假中部战区进入二级战备</a>
 </h2>
