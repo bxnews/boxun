@@ -57,7 +57,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602090602.shtml" target="boxun-mirror">中国烈士旅：曝乌鲁木齐中法极其贪腐、假公济私请看博讯热点：新疆问题</a>
 </h2>
