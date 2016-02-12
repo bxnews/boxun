@@ -54,6 +54,38 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/finance/2016/02/201602121510.shtml" target="boxun-mirror">中国银行业危机规模将是美国次贷危机5倍</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中国银行业危机规模将是美国次贷危机5倍<br><font color="#000fC0">(<small>博讯北京时间2016年2月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201602121510" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社编译综合】美国次贷危机是指发生在美国，因次级抵押贷款机构破产、投资基金被迫关闭、股市剧烈震荡引起的金融风暴。它致使全球主要金融市场出现流动性不足危机。美国“次贷危机”是从2006年春季开始逐步显现的，2007年8月开始席卷美国、欧盟和日本等世界主要金融市场。美国银行公布的研究报告显示, 美国次贷危机导致全球损失7.7万亿美元。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/02/201602121510finance1.jpg" alt="中国银行业危机规模将是美国次贷危机5倍"><p>（Kyle Bass。资料图片）<br>
+    <br>
+    Hayman Capital Management创始人、著名对冲基金经理Kyle Bass曾经准确预言2007年的美国次贷危机，并因此做空次贷获利。他还成功预测了日本的银行业问题及此后日本央行大胆的货币宽松。Kyle Bass本周三在致投资者的信中警告，中国将爆发银行业危机，就陷入危机的资产规模而言，规模将是美国次贷危机5倍，“类似于美国银行体系应对全球金融危机的方法，中国的银行体系已越来越多地追求过度杠杆化、监管套利和不负责任的冒险行为。”<br>
+    <br>
+    Bass指出，过去10多年来，中国的银行体系资产已增至34.5万亿美元，从之前的3万亿美元大幅增长。如果中国的银行体系失去10%的资产，中国的银行将失去大约3.5万亿美元的股权。从历史上看，在不良贷款周期中中国银行失去的资产远远超过10%，因此中国银行将迎来巨额的股权损失。<br>
+    <br>
+    在2007-09年的整个全球金融危机期间，美国银行损失了大约6500亿美元的股本。而国际清算银行估计，中国银行业在1998年-2001年不良贷款周期系统损失的资产超过GDP的30%。此次金融危机中中国银行业的损失将超过上个周期。因此，巴斯警告称，按照现在的中国GDP计算，30%就将超过3.6万亿美元，这是美国银行业损失的五倍之多。<br>
+    <br>
+    Bass预期，中国银行业一旦再度遭遇巨大损失，人民币兑美元可能会失去三分之一的价值, 将迫使中国政府和央行通过增发人民币来进行对冲，为此中国将有可能不得不加印价值10万亿美元的人民币。由此导致的后果便是严重的通货膨胀和人民币贬值一同来袭的风险。<br>
+    <br>
+    Bass的信中称：“我们正在见证的是世界上最大的宏观经济失衡的重置。中国面临的问题没有先例・・・他们是如此巨大, 以至于中国政府需拼尽全力来纠正失衡。”<br>
+    <br>
+    Bass还宣称, 中国的外汇储备比显示的要少很多。这是因为中国3.2万亿美元的外汇的一大部分是绑在其他产品或已借出, 这意味着它不是可以立即使用。最终, 中央银行可支配的大约只有2.2万亿美元。这点很重要，因为中央银行最近一直以每月约1000亿美元的速度支出其外汇储备，很大程度是为了支撑人民币的价值。假如人民币贬值，企业预计将把现金退出中国, 反过来进一步使人民币贬值, 造成一个恶性的自由落体。<br>
+    <br>
+    即使有3.2万亿美元的资金, 这样的支出不能永远持续下去。但因三分之一的外汇储备被占用或遥不可及, Bass认为, 央行不能再以这种方式支持经济的时间将更早到来。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=finance201602121510" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602120007541.jpg--> 731510       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602111119.shtml" target="boxun-mirror">视频：中共民警武警捆猪一样把藏民拽一堆毒打请看博讯热点：西藏问题</a>
 </h2>
 <p><tr>
@@ -889,161 +921,6 @@
     1月30日，由博讯新闻网和纽约通讯主办、美东</td></tr></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/01/201601311225.shtml" target="boxun-mirror">被判19年重刑的张海涛捎出“上诉书”家属急需救助</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>被判19年重刑的张海涛捎出“上诉书” 家属急需救助<br><font color="#000fC0">(<small>博讯北京时间2016年1月31日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201601311225" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-    2016年1月27日，张海涛妻子李爱杰陪同李敦勇律师，在乌鲁木齐会见了被新疆乌鲁木齐市法院以“煽动颠覆国家政权”及“为境外提供情报”罪，两罪并罚一审从重判决19年的河南籍维权人士张海涛。新疆当局一直严厉打击异议分子，在此之前中央民族大学教授伊力哈木被以“分裂国家罪”重判无期徒刑，新疆民主人士赵海通被以“煽动颠覆国家政权罪”判刑十四年<br>
-    <br>
-    据李爱杰讲，她与李敦勇律师1月27日上午11:20到达新疆维吾尔族自治区看守所，李敦勇律师12:25分会见完毕，会见时间大约一个小时。李敦勇律师说张海涛精神状态还可以，就是比上次会见时消瘦了许多。并写了一封信及长达八页的《上诉书》让李敦勇律师带了出来。<br>
-    <br>
-    据张海涛《上诉书》中对新疆乌鲁木齐市中院的判决提出以下异议：<br>
-    <br>
-    “1、伪证、非法证据，不合常理证据应予以排除。<br>
-    <br>
-    于新永证言系为证。是办案人员炮制或于新永的虚假陈述。侵犯本人的沉默权、隐私权，刑讯逼供诱供得到的本人口供系非法证据。<br>
-    <br>
-    一些一面或数面之交，没什么了解的网友证言是不合常理的证据。<br>
-    <br>
-    2、逻辑荒谬，法律适用对象错误。<br>
-    <br>
-    中共=中国，反对=颠覆，异议=造谣、诽谤，和平表达=严重危害如此逻辑比比皆是，不一而足。<br>
-    <br>
-    界定什么需要公开，什么不能公开的法规，适用对象是国家机关和公职人员，公民在网上发表一些公共场合经历见闻的文字，被认定为非法刺探、提供情报罪，是法律适用对象的错误，更是不合常理的荒诞判决。<br>
-    <br>
-    3、充满斗争思维，文革大字报式的政治批判。<br>
-    <br>
-    我发表言论的这些网站，媒体都是民营的，不隶属于任何政府及政治组织，却被冠以敌对、反动、反华、勾结之辞，政客们把两国人民友谊源远流长的口号挂在嘴边，而民间的这种互动交流何以成为如此严重的政治罪行？”<br>
-    <br>
-    另据李爱杰讲，张海涛在狱中极尽对妻儿的思念与担忧，他希望国际人权机构和社会各界有识之士，在他失去自由期间能够关心照顾好他的妻儿，他出狱后定会报答。<br>
-    <br>
-    博讯记者获悉，李爱杰也是河南南阳人，她与张海涛属同乡。2014年与张海涛在南阳相识相爱并结为夫妻。<br>
-    <br>
-    张海涛的担忧不无道理，由于李爱杰在怀孕期间张海涛就被捕入狱，生产后照顾孩子及为张海涛呼吁全靠她一个人跑来跑去，加上近日在法庭亲眼目睹张海涛被判19年重刑，对李爱杰打击非常之大，导致她现在奶水严重不足，每天只能喂孩子吃一顿母乳外，其他全靠奶粉喂养。所以张海涛狱中念念不忘希望呼吁社会各界能够替他照顾他的妻儿。<br>
-    <br>
-    而博讯记者获悉，由于李爱杰目前经济状况不好，没有钱支付律师费用，因此只请李敦勇一个律师，甚至连李敦勇这次去新疆帮张海涛上诉，由于家属只给了2000块钱的路费，都不能买飞机票，只能坐火车去。在李敦勇律师递交上诉材料之后，由于现在火车票十分难买，又不得不在新疆等火车。而接下来的二审开庭也需要支付律师的费用。<br>
-    <br>
-    因此，目前张海涛的妻子李爱杰急需外界人权团体以及各界人士救助。<br>
-    <br>
-    下面是张海涛姐姐张清珍的银行帐号：<br>
-    <br>
-    中国建设银行：6210814540000965921<br>
-    <br>
-    李爱杰电话：13999861817<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china1.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"><p><br>
-    张海涛<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china2.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    张海涛妻子李爱杰与刚满月的儿子<br>
-    <br></p>
-<center><font size="4"><b> 张海涛的上诉书</b></font></center>
-<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china3.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"><p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china4.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china5.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china6.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china7.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china8.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china9.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china10.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br></p>
-<center><font size="4"><b> 张海涛的判决书</b></font></center>
-<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china11.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"><p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china12.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china13.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china14.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china15.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china16.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china17.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china18.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china19.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china20.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china21.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china22.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china23.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china24.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china25.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china26.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china27.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china28.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china29.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china30.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china31.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/01/201601311225china32.jpg" alt="被判19年重刑的张海涛捎出“上诉书” 家属急需救助"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201601311225" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://bnn.co/news/images/2016/01/201601190543china1.jpg http://bnn.co/news/images/2016/01/201601190543china2.jpg http://upload.bx.tl/news/temp14/201601302115091.jpg http://upload.bx.tl/news/temp14/201601302115092.jpg http://upload.bx.tl/news/temp14/201601302115093.jpg http://upload.bx.tl/news/temp14/201601302115094.jpg http://upload.bx.tl/news/temp14/201601302115095.jpg http://upload.bx.tl/news/temp14/201601302115096.jpg http://upload.bx.tl/news/temp14/201601302115097.jpg http://upload.bx.tl/news/temp14/201601302115098.jpg http://upload.bx.tl/news/temp14/201601302121051.jpg http://upload.bx.tl/news/temp14/201601302121052.jpg http://upload.bx.tl/news/temp14/201601302121053.jpg http://upload.bx.tl/news/temp14/201601302121054.jpg http://upload.bx.tl/news/temp14/201601302121055.jpg http://upload.bx.tl/news/temp14/201601302121056.jpg http://upload.bx.tl/news/temp14/201601302121057.jpg http://upload.bx.tl/news/temp14/201601302121058.jpg http://upload.bx.tl/news/temp14/201601302121059.jpg http://upload.bx.tl/news/temp14/2016013021210510.jpg http://upload.bx.tl/news/temp14/201601302121561.jpg http://upload.bx.tl/news/temp14/201601302121562.jpg http://upload.bx.tl/news/temp14/201601302121563.jpg http://upload.bx.tl/news/temp14/201601302121564.jpg http://upload.bx.tl/news/temp14/201601302121565.jpg http://upload.bx.tl/news/temp14/201601302121566.jpg http://upload.bx.tl/news/temp14/201601302121567.jpg http://upload.bx.tl/news/temp14/201601302121568.jpg http://upload.bx.tl/news/temp14/201601302121569.jpg http://upload.bx.tl/news/temp14/2016013021215610.jpg http://upload.bx.tl/news/temp14/201601302121581.jpg http://upload.bx.tl/news/temp14/201601302121582.jpg--> 911225       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
