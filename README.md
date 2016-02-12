@@ -52,7 +52,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602111119.shtml" target="boxun-mirror">视频：中共民警武警捆猪一样把藏民拽一堆毒打请看博讯热点：西藏问题</a>
 </h2>
