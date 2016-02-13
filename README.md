@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2016/02/201602130942.shtml" target="boxun-mirror">定性旺角事件“分离组织策动”为出动解放军做铺垫</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>定性旺角事件“分离组织策动” 为出动解放军做铺垫<br><font color="#000fC0">(<small>博讯北京时间2016年2月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201602130942" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      北京定性香港旺角事件为“分离组织策动” 学者指或为出动解放军“严打”做铺垫<br>
+    <br>
+     【博闻社独家】香港旺角因无牌小贩被执法人员驱赶引发警民暴力冲突、最后发展成为暴乱事件，中国外交部首度开腔指事件为“暴乱”，并指是由“个别本土激进分离组织为主策动”，为北京当局首次用“分离组织”形容事件。本社获悉，外交部的口径实为中共港澳工作协小组所定，中共高层专门开会研究事件，冠之以“分离组织”帽子，旨在防止香港问题新疆西藏化。当局要求特区政府务必依法严治肇事的一小撮人士，并采取有效措施，制止和预防香港出现不可控制的动乱局面。有香港学者认为，北京此举有可能为日后出动驻港解放军做</td></tr></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2016/02/201602121401.shtml" target="boxun-mirror">美国科学家宣布探测到引力波存在</a>
 </h2>
 <p><tr>
@@ -904,21 +916,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2016/02/201602010816.shtml" target="boxun-mirror">海外知识界纽约研讨会：台湾大选对两岸三地影响请看博讯热点：台海之争</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>海外知识界纽约研讨会：台湾大选对两岸三地影响<br><font color="blue" size="2">请看博讯热点：<a href="/hot/taiwan.shtml">台海之争
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201602010816" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-    【博闻社独家】2016年1月16日，台湾举行总统大选和立法院选举，民进党的蔡英文以689万多的票数当选为第十四任总统，民进党同时赢得立法院2/ 3多数席位，绿营实现行政立法全面执政，国民党下野，台湾再度变天。<br>
-    <br>
-    1月30日，由博讯新闻网和纽约通讯主办、美东</td></tr></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
