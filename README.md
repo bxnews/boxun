@@ -248,7 +248,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/02/201602172301.shtml" target="boxun-mirror">新年观察：习氏语录铺天盖地中国再回造神时代请看博讯热点：习近平观察</a>
 </h2>
