@@ -68,7 +68,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602182223.shtml" target="boxun-mirror">华国锋铜像：山西交城暂停拆除但最终还是会拆除</a>
 </h2>
