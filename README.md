@@ -19,6 +19,26 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/02/201602200048.shtml" target="boxun-mirror">夺枪后再夺笔习近平借视察三大喉舌央媒敲打中宣部请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>夺枪后再夺笔 习近平借视察三大喉舌央媒敲打中宣部<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602200048" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      独家：夺枪之后再夺笔 习近平借视察三大喉舌央媒敲打中宣部<br>
+    <br>
+    【博闻社独家】中共总书记习近平2月19日上午接续视察人民日报、新华社和中央电视台三大中共喉舌媒体；紧随着又召开新闻舆论工作座谈会。显示习以军改名义独揽军权后，终于将手伸向舆论战线，要对这个他一直未能完全掌控的阵地进行整治；习近平借视察三大央媒敲打中宣部，重掌舆论阵地，趋势甚显。<br>
+    <br>
+    本社驻北京记者了解到，习近平此次考察三大喉舌媒体是早已策划安排的，就等军队改革大局一定，即由中办安排出行。当局对这次习视察三大央媒十分重视，分管意识形态的政治局常委刘云山、中宣部长刘奇葆亲自陪同；习安插在中宣部的心腹、中宣部常务副部长黄坤明也获钦点陪同。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/02/201602200048china1.jpg" alt="夺枪后再夺笔 习近平借视察三大喉舌央媒敲打中宣部"><p><br>
+    <br>
+    本社获悉，人民日报社长、新华社长、央视台长提前一周已被中</p>
+</td></tr></p>
+<p>
+	<small> ============== 3分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2016/02/201602191726.shtml" target="boxun-mirror">中国核电布局引发国际警惕中英关系潜藏危机</a>
 </h2>
 <p><tr>
@@ -962,37 +982,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/02/201602060652.shtml" target="boxun-mirror">中共要"借刀杀人"：爆令完成泄密加速令计划灭亡请看博讯热点：令计划</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中共要"借刀杀人"：爆令完成泄密加速令计划灭亡<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602060652" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      独家：中共要"借刀杀人" 美媒爆令完成向中情局泄密加速令计划灭亡<br>
-    <br>
-     令完成被指向美国泄密给中共递来杀令计划的刀把 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    【博闻社独家】美国新闻网站“华盛顿自由明灯”日前爆光前中办主任令计划外逃美国的弟弟令完成，已向美国情报部门抖出中共核心机密，包括核武系统布局密码口令等。事件随即获中共各级媒体</td></tr></p>
 <p>
 	<small> ============== 14天前</small>
 </p>
