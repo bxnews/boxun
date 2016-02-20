@@ -39,6 +39,30 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/02/201602202249.shtml" target="boxun-mirror">习情人书首版被买断桂民海李波食髓知味终惹祸请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习情人书首版被买断 桂民海李波食髓知味终惹祸<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月20日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602202249" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart--> <br><b> 独家：习情人书首版被300万买断 桂民海李波食髓知味再出终惹祸</b><br>
+    <br>
+    【博闻社独家】抓铜锣湾书店五人发生在北京收紧香港言论的大背景下，然而桂民海、李波等离奇“自愿回内地”接受调查，起因复杂。除了他们出版众多大陆政治八卦书籍并在深圳有地下销售点涉“非法经营”，更严重的因素是他们出版的书籍有些涉及高层内斗，疑有某派势力给其出版的书籍放料。<br>
+    <br>
+    <table cellpadding="0" align="right"><tr><td align="center" style="line-height:10pt; font-family:宋体; font-size: 10pt;padding:0px;border-top:0"><a href="/img/pol1.shtml"><img src="http://www.boxun.com/news/images/2016/02/201602202249china1.jpg" alt="习情人书首版被买断 桂民海李波食髓知味终惹祸" border="0"></a></td></tr></table>
+<br>
+    <br>
+    本社从知情者获悉，桂民海和李波事实上已出版了一本有关习近平情人的书，但面世前被内地用300万港币买断，不料桂民海食髓知味，又在世界各地物色数名作者再写此主题的书，想继续让内地“买断”挣钱，终惹怒有关当局，出动强力部门“了结”。<br>
+    <br>
+    知情人士指，桂民海和李波其实已于2014年出版了有关习近平情的一本书，但该书在开印前(也有说已印好但未上市)，被山东方面用300万港币买断，包括该书版权。知情者指出，该书买断本不该花那么多钱，山东方面拍马心切，也不懂行情，才出此高价。<br>
+    <br>
+    消息指，桂民海见钱眼开，食髓知味，又在海外又找了多名写手，继续“创作”习近平情人主题的书，实际上是想让内地当局继续“买断”；为此阿海故意透过关系向内地“放风”，的确引来内地另外的有“兴趣者”。<br>
+    <br>
+    铜锣湾书店事发后，海外曾有报道指，流亡美国的政治异见人士穆文斌曾代表习近平情史的出版方，与中国大陆有关人士谈判，而穆更称对方的人来自“彭办”(即习近平夫人彭丽媛</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2016/02/201602191726.shtml" target="boxun-mirror">中国核电布局引发国际警惕中英关系潜藏危机</a>
 </h2>
 <p><tr>
@@ -945,45 +969,6 @@
 <b></p>
 <p>
 	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/editorial/2016/02/201602061147.shtml" target="boxun-mirror">澄清：习近平新书非博讯策划和出版</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>澄清：习近平新书非博讯策划和出版<br><font color="#000fC0">(<small>博讯北京时间2016年2月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=editorial201602061147" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      近日新闻热点事件“习近平”新书，有人误以为是博讯策划出版，因为旅居纽约的作者西诺称自己是新书作者，而西诺过去几年曾做博讯义工记者。<br>
-    <br>
-     因博讯资源有限，在美国一直仰仗大家义务参与，西诺是其中一名义工记者。西诺义务参与纽约多种公益活动，并从事一些自主生意经营谋生。因此，西诺自己的写作等活动，完全是自主进行。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    “习近平新书”最早由某记者将谷歌链接发给博讯主编，主编只看到数页免费版，并不知道作者是谁。数日后，纽约其他人说西诺网上推出“习书”，主编才向西诺核实，方知道西诺网上卖书。有BBC记者来电，问“习书”的事情，博讯主编韦石已经说明，此书是从外界先知道，才向西诺求证。<br>
-    <br>
-    博讯的运作有海内外众多义工参与，义工的创作等活动不受博讯约束，任何不以博讯名义出版的书籍，对其真实性博讯不能保证。<br>
-    <br>
-    另外，铜锣湾书店未必是因为某本书引起，而更可能是对相关出版业的一种打压。外界不应该专注于某书，而忽视香港新闻自由的大背景。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=editorial201602061147" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1671147       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
 </p>
 <table>
     <tr>
