@@ -401,7 +401,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602170521.shtml" target="boxun-mirror">博讯记者“情人节”专访：张海涛与李爱杰的爱情故事</a>
 </h2>
