@@ -19,6 +19,35 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/02/201602220528.shtml" target="boxun-mirror">习近平亲选刘仕余接肖钢，黄奇帆何去何从？</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平亲选刘仕余接肖钢，黄奇帆何去何从？<br><font color="#000fC0">(<small>博讯北京时间2016年2月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602220528" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      博闻社中南海报道，备受瞩目的证监会手术终于动刀，并不为亿万股民熟悉的刘仕余，接任广为人知又人人喊打的肖钢，成为新一任中国证券业掌门人；而呼声更高的金融市长黄奇帆，或将另有任用。<br>
+    <br>
+     业界人士向博闻社表示，面对中国股市的怨声载道，肖钢做替罪羊下课并无悬念。国务院在物色新任证监会主席时，慎之又慎，曾经有多名合适人选，经权衡再三，黄奇帆入围最后两位最佳人选；在最终上报中国国家主席习近平时，他用红笔圈下了刘仕余的名字。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社此前曾多次独家报道伤痕累累的中国股市，尤其是中国总理李克强在猴年春节假期后的首次国务院常务会议上，更是罕见地效仿其前任温家宝，严厉批评了有关部门。博闻社从中南海高层又独家获悉，免职肖钢，只是对中国证监会动手术的第一刀，中国证监会乃至中国金融业改组的步伐，将进一步提速。<br>
+    <br>
+    博闻社早就独家披露，作为不倒翁的重庆市长黄奇帆，最终能否进京，年龄问题是关键因素。中南海高层进一步向博闻社确认，习近平新年伊始，首选重庆进行考察，其实是实地对黄奇帆的期末大考；选择刘仕余接替肖钢，表明习近平对黄奇帆的考试成绩很满意，或将对其另降大任。外界已经传出黄奇帆会取代</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602200048.shtml" target="boxun-mirror">夺枪后再夺笔习近平借视察三大喉舌央媒敲打中宣部请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -928,42 +957,6 @@
 </center>
             <!--bodystart-->       <br>    <br>     【博闻社独家】明天就是中国农历除夕。猴年即将到来之际，博闻社全体同仁恭祝所有读者网民猴年吉祥，做生意的财源达三江；读书的猴（后）来居上，从政的早升官侯，马上封侯！亦希望猴年读者网民能给予本社更多关注、更大支持，让我们继续洞悉中国，共同见证中国的剧变！ <br>                       <br>    年宵之际，亿万家庭团聚一堂，中国内地民众可以共享为期七天的天伦之乐，不过本社得悉，中南海诸君将难有此福，因总书记习近平已指令，政治局七常委猴年春节要取消假期，「坚守岗位」；他们贵为党国政要、天朝统治者，要对社稷安危负责，因为他们领导的在一个剧变动荡的朝代。<br>    <br>    中南海消息人士告诉本社，习近平不但下令七常委春节不能放假，除留守者外，其他各位要利用春节深入基层，与民同乐；而且，习近平还首次以军委主席之身份，签署了军改后首份战备令：中部战区从2月7日(年廿九)起，进入二级战备状态，中部战区司令韩卫国中将将亲自掌管北京卫戍区，负责首都的警备工作。<br>    <br>    消息人士对博闻社指，成立中部战区本来是作为东南西北四个方向战区的策应和后备，以及战时的战略预备队，但在目前情况下，中部战区实际所起作用更主要是拱卫首都、防止被敌人「掏心窝」，而这个敌人除了外来威胁，还有来自内部的威胁。而目前来自内部的威胁比外部威胁更大。<br>    <br>    消息透露，由于过去三年习近平所进行的一系列动作，包括以反贪腐名义拿下数以百计党政军老虎；以军改名义重整军队导致数万军中指挥官丢饭碗；加上经济增长减速、企业破产接连；特别是股市崩盘导致亿万民众怨声载道；国际上在东海南海因主权争议与邻国磨刀霍霍、美国大军压境。<br>    <br>    中南海消息人士指，在这样一种「内外交困」形势下，习近平要求全体常委春节「坚守岗位」，下令中部战区进入二级战备状态，「是完全可以理解的」。另有消息指，中共常委春节不休假，以及中部战区进入二级战备，可能与当局有重大审判活动有关，包括令计划、郭伯雄等大老虎，有可能近期开审。<br>    <br>    博闻社详细报道全文：<a href="http://bowenpress.com/news/bowen_65110.html">独家：猴年春节七常委取消休假 中部战区进入二级战备</a><br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201602071018" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/2/07)--> <!--bodyend-->       
            (博讯 boxun.com) <br><!----> 841018       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2016/02/201602070615.shtml" target="boxun-mirror">西诺：“习近平新书”一书创作背景</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>西诺：“习近平新书”一书创作背景<br><font color="#000fC0">(<small>博讯北京时间2016年2月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201602070615" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     （编者按：“习近平新书”上网后，引发关注。有人指责作者编故事，西诺以下声明做了解释，此书是文学创作，不应该按史书或者新闻看待。）<br>
-    <br>
-     近日，针对香港铜锣湾书店股东和员工被抓，传闻此事件和习近平情人题材书籍有关。对此，本人接受BBC记者采访时已经透露，桂民海（阿海）2014年曾约稿此书，但可能因为有压力而放弃出版。本人将《习近平与他的情人们》一书上网，希望有助于铜锣湾书店员工的获释。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    本人有必要对此书的创作背景做出说明：一年半前接到约稿时，接到的只是一个提纲，之后向朋友征集信息，写作期间也收到匿名爆料。创作本书用2个月匆匆而成， 此书属于文学创作，相关信息未经核实。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201602070615" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
-<!----> 4160615       
 <hr>
 <table width="620"><tr><td>
 <b></p>
