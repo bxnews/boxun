@@ -58,7 +58,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602230114.shtml" target="boxun-mirror">专访遇罗克胞弟遇罗文：爆发革命已不可避免/视频</a>
 </h2>
@@ -70,7 +70,7 @@
     <br>
     中共太子党习近平上台后，俨以「根正苗红接班人」自居，党媒喉舌不时炫耀习的父亲、中共改革派元老习仲勋，大有吹捧习近平出身名门、「老子英雄儿好汉」之寓意，当年被遇罗克怒批的「血统论」再度漾溢于表，文革遗味甚盛，令外界无不</td></tr></p>
 <p>
-	<small> ============== 8小时前</small>
+	<small> ============== 9小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602221608.shtml" target="boxun-mirror">官媒发文抨击任志强反党措辞尖厉被指大字报</a>
 </h2>
