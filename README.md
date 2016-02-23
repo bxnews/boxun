@@ -19,6 +19,47 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/02/201602231542.shtml" target="boxun-mirror">支付宝后台偷拍手机用户大陆个人隐私底线击穿</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>支付宝后台偷拍手机用户 大陆个人隐私底线击穿<br><font color="#000fC0">(<small>博讯北京时间2016年2月23日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      国产移动应用的权限需求和后台活动再次引发了关注，这一次又是支付宝。<br>
+    <br>
+    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602230037022.png" width="500"></div>（摄像头权限是循环获取的，拒绝之后会不断重新提示。）<br>
+    <br>
+    支付宝是最流行的中国移动应用之一，安装量有数亿之多，它的体积庞大功能庞杂，用户根本无法了解它在后台究竟会干什么。<br>
+    <br>
+    Twitter用户typcn报告称，“支付宝安卓版每隔X分钟（服务器指定）会在后台开启摄像头拍照，录音X秒，然后上传到服务器上。”<br>
+    <br>
+    分析指：支付宝的 so 文件其实是假的 so，根本就是一个完整的 APK，里面五脏俱全，也就是说支付宝是直接动态加载 APK。<br>
+    <br>
+    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602230037021.png" width="500"></div>（twitter截图）<br>
+    <br>
+    作者进一步指出，支付宝的偷拍是“开启相机预览，设置相机预览回调，然后从相机预览的画面里面拿一帧，这样不会调用 takePhoto ，在部分强制开启拍照声音的手机上，也不会出现声音，因为是在预览缓冲中拿的图像。”<br>
+    <br>
+    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602230029411.png" width="500"></div>（去年11月，支付宝曾被Google Play下架处理，原因是后台下载APK。支付宝资金则辩称说下架是因为Google规定app不能自带升级功能）<br>
+    <br>
+    大陆社交网站“知乎”上呈现了一些相关讨论，名为“东仙队长”的网友表示：“我的 Nexus 5x 被我修改了内核，然后出了一点 Bug，只要调起摄像头无论拍照与否都可能出现系统严重卡死必须重启才能解决的问题，但一直没找到出问题的代码，就一直没修。但用了一段时间后出现了即使不启动相机相关的应用有时候用着用着也可能出现卡死。一开始还很纳闷，然而后来卸载了支付宝就一切正常了。。。看了这个隐私门的事情，我觉得完全解释了这一现象发生的原因。”<br>
+    <br>
+    另有网友指出：“支付宝占用的存储会越来越大。2、阿里的用户画像越来越精准，什么职业，家住哪里，收入、配偶等信息。人在做，阿里在看啊。3、Android会越来越卡，用户担心自己的隐私，而转投ios阵营。导致大批Android中级程序员失业。”<br>
+    <br>
+    还有网友评论，这些大公司爱怎么来怎么来，不怕用户抱怨，就怕股东抱怨不赚钱。吐槽的评论则说：女生再也不敢躺在床上用支付宝了。<br>
+    <br>
+    目前为止尚未看到支付宝官方的回应。<br>
+    <br>
+    有twitter网友指出：事实上大陆的移动应用生态环境是非常糟糕的，相对数量的app会在安装时要求本身应用并不需要使用的权限，而国外产品这方面的情况好很多。拒绝国产应用（app）和国行手机永远是正确的。<br>
+    <br>
+    更多的网友不禁发问：在苹果公司努力与政府对峙以保护用户隐私的同时，中国手机用户的个人隐私底线在哪里？
+ [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602230037022.png http://upload.bx.tl/news/temp14/201602230037021.png http://upload.bx.tl/news/temp14/201602230029411.png--> 541542       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602230114.shtml" target="boxun-mirror">专访遇罗克胞弟遇罗文：爆发革命已不可避免/视频</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -872,46 +913,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602101134.shtml" target="boxun-mirror">新罕布什尔州初选跟进：特朗普、桑德斯逆转胜</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>新罕布什尔州初选跟进：特朗普、桑德斯逆转胜<br><font color="#000fC0">(<small>博讯北京时间2016年2月10日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201602101134" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      新罕布什尔州初选跟进：特朗普、桑德斯逆转胜　前进南卡莱罗纳州<br>
-    <br>
-     【博闻社】总统初选第2战─新罕布什尔州今于大雪纷飞中登场，结果于稍早出炉，于爱荷华州败北的共和党地产大亨特朗普终扳回一城，确立党内不败地位，民主党的参议员桑德斯亦以18%差距大胜前国务卿希拉里。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    共和党选情方面，特朗普于爱荷华州初选败给参议员克鲁兹而居次，惟此次特朗普获34%支持率，俄亥俄州长凯西克（John Kasich）居次，克鲁兹反落居第4。<br>
-    <br>
-    民主党亦呈现选情逆转，希拉里于爱荷华州初选以不到1%的极小差距略胜参议员桑德斯，桑德斯此次则获58%支持率，希拉里则获得40 %支持率，显见两人差距。希拉里于败选感言中仍向新罕布什尔州民感谢，并吁支持者勿失望，承诺将一举拿下南卡莱罗纳州。<br>
-    <br>
-    桑德斯虽赢得新罕布什尔州初选，惟希拉里已获多名「超级党代表」<br>
-    （Superdelegate）支持，并大举拿下385张党代表票，桑德斯仅获29张。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201602101134" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3641134       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
 </p>
 <table>
     <tr>
