@@ -60,6 +60,41 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/02/201602231633.shtml" target="boxun-mirror">大陆拆封闭小区：流于形式的开放和根深蒂固的封闭请看博讯热点：强行拆迁</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>大陆拆封闭小区：流于形式的开放和根深蒂固的封闭<br><font color="blue" size="2">请看博讯热点：<a href="/hot/chaiqian.shtml">强行拆迁
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月23日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2016/02/201602231633china1.jpg" alt="大陆拆封闭小区：流于形式的开放和根深蒂固的封闭"><p>（图片来源：google）<br>
+    <br>
+    【博闻社】周日（2月21日），国务院发布有关城市规划建设管理的意见，其中要求，新建住宅要推广街区制，原则上不再建设封闭住宅小区。已建成的住宅小区和单位大院要逐步打开，实现内部道路公共化。国务院指，此举旨在“解决交通路网布局问题，促进土地节约利用”。<br>
+    <br>
+    消息在网上引发热议。观察显示，大多数网民不支持这种做法。<br>
+    <br>
+    有网民基于业主利益认为，购房时很多小区道路都算公摊交了钱的，算是业主所有。强行拆除小区围墙，将道路充公，会不会违背现行《物权法》呢？「小区里的老人可以在小区里的道路悠闲的散步，孩子在小区草坪上快乐的玩耍。封闭性的小区对大多数业主来说都是有利的。开放后，可以预见的就是，大量的社会车辆跟电瓶车，会为了避开小区外的一个红绿灯而抄近路通过小区，到时候小区的道路将一片繁忙。想必到时候大家想散个步是不太可能了，更别说那些不长眼又骑的飞快的电瓶车对小孩及老人的威胁了。」<br>
+    <br>
+    有中国法学专家也认为，这一政策是长期混淆公私领域，对私有财产保护不力的惯性。<br>
+    <br>
+    对于国务院给出的「解决交通问题」这一理由，网友以海外为例加以反驳。比如新加坡，其目前仅有60多万辆私家车，1998年就开始实施拥堵费，而购车成本高昂，同时大力建设地铁、轻轨，一半以上是单行线，开车还不如坐地铁。但是，更重要的还是城市规划做得好，住宅区与工业区、金融区是相匹配的，大部分的上班族都用不着坐很久的车，大部分学校距离住宅区不会超过500米，且不用穿过主干道，根本用不着车子接送。这样井然有序的城市，首先不会有重大的拥堵问题，其次也不会有随之而来的让小区通道充公这样的拍脑袋决策。<br>
+    <br>
+    不过也有政治学者认为，此举为一直形式上的「开放」，实质的大一统和深入性监管。<br>
+    <br>
+    中国大院体制的全面固定是70年代初期，围墙从此成为中国城市社区的标志，也是中国政治最接近极权主义化的阶段，贯穿1970到80年代，形成中国特色的封建化城市格局。如果称其为农耕或许准确，但是意义是一样。中国在49年后的工业化也是一个封建工业化的进程。直到今天，拆除围墙的决定主要还是规划学者研议多年、李克强城镇化推行不力而以此为突破。算是决心很大，朝向「开放社会」进了一步，可惜仍旧流于形式，社会真正的开放是结社、出版、言论的自由，这方面中共政府是没可能做到的。<br>
+    <br>
+    另方面，这种形式上的开放也为统一监管制造了便利。推特网友分析指出，拆除小区围墙是精心算计的社区重构，摧毁业主共同体。虽然现在党已经做到无缝不入，但这些年房地产经济的一个客观结果是达成了社区权利的物理分割，业委会的法律地位阻碍了街道居委会对居民生活的全面干预。打掉围墙就是肢解社区共同体，将民众彻底原子化，这样洪水来临民众没有任何组织能力，则反之愈加仰赖政权稳定。<br>
+    <br>
+    （博闻社原文链接：<a href="http://bowenpress.com/news/bowen_69564.html" style="color:red;">《分析人士谈中国拆除封闭小区：流于形式的“开放”和根深蒂固的封闭》</a>
+ [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602230129421.jpg--> 4111633       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602230114.shtml" target="boxun-mirror">专访遇罗克胞弟遇罗文：爆发革命已不可避免/视频</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -895,24 +930,6 @@
 <b></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/02/201602111119.shtml" target="boxun-mirror">视频：中共民警武警捆猪一样把藏民拽一堆毒打请看博讯热点：西藏问题</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：中共民警武警捆猪一样把藏民拽一堆毒打<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tibet.shtml">西藏问题
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602111119" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <iframe width="600" height="360" src="https://www.youtube.com/embed/-5ae0aWFEfQ" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    民警武警捆猪一样把藏民拽一堆毒打 藏民发誓民族解放
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201602111119" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 691119       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
