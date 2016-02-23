@@ -58,7 +58,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602231908.shtml" target="boxun-mirror">纽时记者爆万达文件照再证中国首富与中共勾结请看博讯热点：深度报道</a>
 </h2>
@@ -116,7 +116,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602231633.shtml" target="boxun-mirror">大陆拆封闭小区：流于形式的开放和根深蒂固的封闭请看博讯热点：强行拆迁</a>
 </h2>
@@ -151,7 +151,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602230114.shtml" target="boxun-mirror">专访遇罗克胞弟遇罗文：爆发革命已不可避免/视频</a>
 </h2>
@@ -163,7 +163,7 @@
     <br>
     中共太子党习近平上台后，俨以「根正苗红接班人」自居，党媒喉舌不时炫耀习的父亲、中共改革派元老习仲勋，大有吹捧习近平出身名门、「老子英雄儿好汉」之寓意，当年被遇罗克怒批的「血统论」再度漾溢于表，文革遗味甚盛，令外界无不</td></tr></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602221608.shtml" target="boxun-mirror">官媒发文抨击任志强反党措辞尖厉被指大字报</a>
 </h2>
