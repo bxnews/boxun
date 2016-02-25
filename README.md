@@ -19,6 +19,38 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/02/201602251601.shtml" target="boxun-mirror">张海涛涉煽颠等罪一审判处有期徒刑19年提上诉请看博讯热点：白色恐怖</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>张海涛涉煽颠等罪一审判处有期徒刑19年 提上诉<br><font color="blue" size="2">请看博讯热点：<a href="/hot/national_terror.shtml">白色恐怖
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602251601" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      按：新疆维权人士张海涛案的律师刘正清在上周会面张海涛后，给博讯发来了见面后了解到的情况。<br>
+    <br>
+    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602250057451.png" width="500"></div>（张海涛照片。由他家人提供）<br>
+    <br>
+    我于2016年2月18日（星期四）上午在乌鲁木齐市新疆维吾尔自治区看守所会见了张海涛。<br>
+    <br>
+    张海涛表现得很坚强，他对我说：“看守所的警察劝认罪，争取轻判。”但他认为自己无罪，他说“我是无罪的，我始终会为自己做无罪辩护”。<br>
+    <br>
+    会面之间他要我转告：对一段时间来外面朋友们表达的关注、关心和给予的帮助，表示感谢！<br>
+    <br>
+    判处张海涛一审结果如下：<br><br><b>煽动颠覆国家政权罪有期徒刑15年，剥夺政治权利5年，并处没收个人财产10万元；为境外刺探、非法提供情报员罪有期徒刑5年，剥夺政治权利1年，并处没收个人财产2万元。数罪并罚有期徒刑19年，剥夺政治权利5年，并处没收个人财产12万元。判后，张海涛提出了上诉。</b><br>
+    <br>
+    我当天下午即到乌鲁木齐市中级法院与经办法官交涉此案的相关意见及递交相关法律手续。在家属的陪伴下约见了一审经办法官王某。王某称当天（2016年2月18日）下午会向高院移交卷宗，律师阅卷要到高院才能阅，并告诉我阅卷时事先应与高院取得联系。                                   <br>
+    <br>
+    刘正清 2016-2-23<br>
+    <br>
+    （博讯去年八月曾发过张海涛被捕的消息，相关链接：<a href="http://www.boxun.com/news/gb/china/2015/08/201508011101.shtml#.Vs6xx86kl3p" style="color:blue;">《新疆维权人士张海涛被以寻衅滋事罪正式逮捕》</a>）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201602251601" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602250057451.png--> 611601       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 8小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602240940.shtml" target="boxun-mirror">王毅华盛顿难逃访民追堵现大使馆正侧门已被访民堵住请看博讯热点：习近平访美</a>
 </h2>
 <p><tr>
@@ -969,18 +1001,6 @@
 <b></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2016/02/201602130942.shtml" target="boxun-mirror">定性旺角事件“分离组织策动”为出动解放军做铺垫</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>定性旺角事件“分离组织策动” 为出动解放军做铺垫<br><font color="#000fC0">(<small>博讯北京时间2016年2月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201602130942" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      北京定性香港旺角事件为“分离组织策动” 学者指或为出动解放军“严打”做铺垫<br>
-    <br>
-     【博闻社独家】香港旺角因无牌小贩被执法人员驱赶引发警民暴力冲突、最后发展成为暴乱事件，中国外交部首度开腔指事件为“暴乱”，并指是由“个别本土激进分离组织为主策动”，为北京当局首次用“分离组织”形容事件。本社获悉，外交部的口径实为中共港澳工作协小组所定，中共高层专门开会研究事件，冠之以“分离组织”帽子，旨在防止香港问题新疆西藏化。当局要求特区政府务必依法严治肇事的一小撮人士，并采取有效措施，制止和预防香港出现不可控制的动乱局面。有香港学者认为，北京此举有可能为日后出动驻港解放军做</td></tr></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
