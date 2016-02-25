@@ -49,7 +49,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602240940.shtml" target="boxun-mirror">王毅华盛顿难逃访民追堵现大使馆正侧门已被访民堵住请看博讯热点：习近平访美</a>
 </h2>
