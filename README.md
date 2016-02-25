@@ -84,6 +84,42 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602252346.shtml" target="boxun-mirror">快讯：访民成功拦截外交部长王毅的车队请看博讯热点：“麻雀行动”</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>快讯：访民成功拦截外交部长王毅的车队<br><font color="blue" size="2">请看博讯热点：<a href="/hot/UN_Petition.shtml">“麻雀行动”
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201602252346" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     赵岩从华盛顿截车现场报道：美东时间上午约10点半，访民在华盛顿成功拦截外交部长王毅的车，致使其停了近一分钟。<br>
+    <br>
+     截车地点在CSIS（国际战略研究中心），北京访民郭红和湖南访民张冲在前面拦车。参与拍摄的博讯记者Abula被一名黑人保安打破鼻子，她还骂：Prick, shit等。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    细节和视频稍后补充。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201602252346" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 242346       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602240940.shtml" target="boxun-mirror">王毅华盛顿难逃访民追堵现大使馆正侧门已被访民堵住请看博讯热点：习近平访美</a>
 </h2>
 <p><tr>
@@ -953,36 +989,6 @@
 <b></p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/02/201602152209.shtml" target="boxun-mirror">知名中国作家《叫魂》作者孔飞力去世</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>知名中国作家 《叫魂》作者孔飞力去世<br><font color="#000fC0">(<small>博讯北京时间2016年2月15日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602152209" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2016/02/201602152209china1.jpg" alt="知名中国作家 《叫魂》作者孔飞力去世"><p>（孔飞力。资料图片）<br>
-    <br>
-    【博闻社】荷兰莱顿大学魏希德教授（Hilde De Weerdt）今天（15号）发布Twitter悼念美国著名中国学家、哈佛大学希根森历史讲座教授、东亚文明与语言系主任孔飞力（Philip Alden Kuhn）教授逝世。去年陆媒《经济观察报》书评栏目曾刊登了罗四鸽的《寻找孔飞力》一文，在这篇文章就已经透露了孔飞力教授健康状况不佳的信息。<br>
-    <br>
-    孔飞力1933年9月9日出生于英国伦敦。父亲是《纽约时报》在伦敦办事处的主任，后来在《华盛顿邮报》工作。母亲是位作家。1950年，孔飞力毕业于美国华盛顿特区的威尔逊（Woodrow Wilson）高级中学，并考入哈佛大学，师从人类学家克拉克洪教授(Clyde Kluckhohn）教授学习人类学。并受到社会学家诺曼包拔（Norman Birnbaums）、政治学家塞缪尔•比尔（Samuel Beer）的影响，使用社会学研究历史。1954年，孔飞力在英国伦敦大学东方与非洲学院学习日语与日本历史，毕业后在美国服兵役，在此期间，他在加利福尼亚州的军队语言学校学习中国语言文字。1958年，孔飞力在乔治城大学攻读研究生，获硕士学位。1959年，孔飞力考入哈佛大学，师从费正清（John Fairbank）和史华慈（Benjamin Schwartz）学习中国历史，并且在1964年获得哈佛大学历史与远东语言的博士学位。<br>
-    <br>
-    1963-1978年，孔飞力任教于芝加哥大学历史学系。1978年，孔飞力回到哈佛大学，接替他的导师费正清教授担任希根森(Francis Lee Higginson )历史讲座教授至今。这期间还在1980-1986年担任哈佛费正清中国研究中心主任。<br>
-    <br>
-    孔飞力著作不是很多，每一本书之间出版的间隔都很长，但每一本著作问世都引起轰动。他的学术著作主要有：《中华帝国晚期的叛乱及其敌人：1796-1864年的军事化与社会结构》、《叫魂：1768年中国妖术大恐慌》、《现代中国的起源》，《故乡：海外华人历史的思考》。他还参加过费正清《剑桥中国晚清史》和《剑桥中华民国史》若干章节的编撰。<br>
-    <br>
-    在《中华帝国晚期的叛乱及其敌人：1796-1864年的军事化与社会结构》一书中孔飞力利用社会学与人类学的研究成果和方法，把1796―1864年间中国社会的军事化的过程、组织结构进行了深入细致的分析。清朝衰落，民不聊生，太平天国运动试图为解决中国社会的问题寻找新的出路，当它危及现存的社会结构、政治制度和正统文化意识时，清朝的统治政权无论是军事力量还是行政能力都无以应付社会大动荡的局面，危难之际，传统士大夫阶层纷纷利用他们的社会资源，组建武装，与清军合力镇压太平军。<br>
-    <br>
-    而孔飞力另一本非常出名的著作就是《叫魂》。该书讲述在中国的千年帝制时代，清高宗弘历可谓是空前绝后的一人，然而在乾隆盛世达到登峰造极的时候，整个大清的政治与社会生活却被一股名为“叫魂”的妖术搅得天昏地暗。在1768年从春天到秋天的那几个月里，这股妖风冲击到了半个中国，百姓为之人心惶惶，官员为之疲于奔命，皇帝为之寝食不宁。在讲述叫魂故事的过程中，《叫魂:1768年中国妖术大恐慌》重在讨论这背后的历史意蕴。叫魂故事可以帮助我们理解传统中国政治和中国社会的一些基本问题。<br>
-    <br>
-    从20世纪60年代起，孔飞力开始致力于中国近代史的研究，以其新颖的视角、精当的方法、独到的见解，在美国中国学界奠定了学术地位。他关于太平天国时期的社会史研究，关于“叫魂”案的社会心理学、人类学、政治学研究，关于现代中国政治体制的观念形态研究，都成为美国大学中国近代史专业研究人才的必读书。被公认为是费正清之后，引领美国近代中国史研究前沿走向的重要学者。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201602152209" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602150709021.jpg--> 2602209       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
