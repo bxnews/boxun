@@ -19,6 +19,16 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/02/201602262300.shtml" target="boxun-mirror">紫禁城来鸿：“任大炮”跟习近平“叫板”的背后</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>紫禁城来鸿：“任大炮”跟习近平“叫板”的背后<br><font color="#000fC0"><small>(博讯北京时间2016年2月26日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602262300" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->  <br><b> 【博闻社独家】本文为博闻社特约北京评论员所撰，从另一角度思考“任大炮”任志强因言被中共党媒围攻的事件。据本社了解，任大炮事件未了，背后可能正在蕴酿一场重大动作，或者是中共党内一场政治风暴的预兆。</b><br><br><b>我们拭目以待。</b><br>    <br>    <img src="http://www.boxun.com/news/images/2016/02/201602262300china1.jpg" alt="紫禁城来鸿：“任大炮”跟习近平“叫板”的背后"><br>      （任志强“叫板”习近平，背后大有</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602252141.shtml" target="boxun-mirror">中共当局继续抹黑律师张凯被监视居住半年命运未卜请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -942,53 +952,6 @@
     中南海知情者指，其实李克强和在座的人都明白，地方和部门之所以出现“怠工”情况，与当下中纪委雷厉风行的反贪腐不无关系，“现在的官场，充斥‘不做不错、少做少错、多做多错’，消极怠工十分普遍，连中纪委书记王岐山都叹道</td></tr></p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/taiwan/2016/02/201602160612.shtml" target="boxun-mirror">李波成“犯罪主谋”策划被指“敲诈”面临判刑</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>李波成“犯罪主谋”策划 被指“敲诈”面临判刑<br><font color="#000fC0">(<small>博讯北京时间2016年2月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=taiwan201602160612" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】香港铜锣湾书店五股东员工被内地当局诱捕和跨境拘捕事件有新进展。本社从接近内地有关部门的消息人士获悉，其中曾点燃事件导火索的股东之一李波，初步确定要被追究刑事责任，罪名或涉以出版涉内地人物负面书籍为由，对当事人实施敲诈。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    消息人士对博闻社指，内地有关当局原本把铜锣湾五子视为同案处理，但没想到李波「自愿回内地配合调查」爆光后引起轩然大波，给内地当局造成巨大的负面影响，惊动到中南海，中共政治局委员兼中央政法委书记孟建柱亲自过问事件。当局因此决定将李波案先行独立处理，以「回应」外界质疑。<br>
-    <br>
-    消息透露，所谓「敲诈」指称是指以出书「爆光负面」为由，对内地一些政商界名人进行要挟，令对方付高价收购「买断」有关书籍。本社无法核实「敲诈」是否真的是李波策划和实施。<br>
-    <br>
-    消息人士形容，香港出版界一些人借助「出版自由」，利用上述手段变相「敲诈勒索」在行内常有传闻，但因当事人忌讳爆光等原因不愿举报，极少被揭发。但如果为给李波定罪，专案组找到了部份「受害者」和当事人，由他们「挺身指证」李波等人，并非难事。<br>
-    <br>
-    消息透露，当局初定以涉「敲诈罪」对李波兴讼，追究其刑事责任。 「铜锣湾书店事件被搞得那么大，内地有关当局背那么大的黑锅，李波想轻轻松松回去已不可能。他必须要面临一定的刑期，这样才能平熄外界质疑，同时也好对上面交待。」消息人士说道。<br>
-    <br>
-    消息人士还指，由于李波属「自愿回内地」配合调查，没有用英国护照入境，故内地当局可以拒绝承认其英国国籍，而视其为香港居民，可以按照中国公民身份对其绳之以法。此前已经有多宗类似案件，如《新维月刊》出版人王健民、知名华侨胡炜升等，虽有美国护照，但入境中国时用回乡证，他们的美国籍都不被承认，美国驻中国使馆无法介入。<br>
-    <br>
-    根据《中华人民共和国刑法》第二百七十四条「敲诈勒索公私财物罪」，数额较大或者多次敲诈勒索的，处三年以下有期徒刑、拘役或者管制，并处或者单处罚金；数额巨大或者有其他严重情节的，处三年以上十年以下有期徒刑；数额特别巨大或者有其他特别严重情节的，处十年以上有期徒刑，并处罚金。<br>
-    <br>
-    博闻社独家报道：<a href="http://bowenpress.com/news/bowen_67588.html">独家：李波成“犯罪主谋”策划 被指“敲诈”面临判刑</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=taiwan201602160612" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3990612       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
