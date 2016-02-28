@@ -19,6 +19,36 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/pubvp/2016/02/201602280853.shtml" target="boxun-mirror">所谓“人民拥护”的神话，正在迅速终结/熊文</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>所谓“人民拥护”的神话，正在迅速终结/熊文<br><font color="#000fC0">(<small>博讯北京时间2016年2月28日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     短短三年，一个所谓得到普遍拥护的神话，正在迅速终结： 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       1、当他们夫妇成为年画时，当他被一群红领巾像当年围绕毛一样围在中间时，当网上不时有大大麻麻的新歌流出时，当他被喊出万岁之时，看似到了被崇拜的高峰，实际他已经使更多的民众心惊了。经历了文革的人民会悄悄地问，这是干嘛？毛又回来了吗？<br>
+    2、当众多贪官被下狱，但却不见一个红色血统派贪官被惩治时，当反腐的成果并未惠及民生，两级分化依旧，强拆依旧，城管横行依旧，访民被抓依旧并祸及律师之时，很多普通民众慢慢会明白，他是来救</td></tr></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602262300.shtml" target="boxun-mirror">紫禁城来鸿：“任大炮”跟习近平“叫板”的背后</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -912,44 +942,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/finance/2016/02/201602170709.shtml" target="boxun-mirror">猴年国务院首次常务会李克强检讨三会改组势加快请看博讯热点：股市危机</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>猴年国务院首次常务会 李克强检讨 三会改组势加快<br><font color="blue" size="2">请看博讯热点：<a href="/hot/gushi2005.shtml">股市危机
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201602170709" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      紫禁城来鸿：猴年国务院首次常务会 李克强检讨股市 “三会”改组势加快<br>
-    <br>
-     【博闻社独家】猴年假期结束第一个开工日，中国国务院召开内阁会议，总理李克强首次公开在会上为股市承担责任，但要求各部委“共同检讨不足”；李再次为中国经济拍胸口派定心丸，称有巨额储蓄率、有13亿人，可以“抡起金箍棒应对挑战！”据透露，会议决定中国金融三会(证监会、银监会和保监会)改组加快进行。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    2月15日是春节长假后首个交易日，中国A股虽然仍属“开门黑”，但先挫后稳，总算未再现元旦后首个交易日“熔段”险情，避免了与全球股市腥风血雨的局面。中国股市的上述表现，与猴年召开的首次国务院常务会议不无关系。前一天，李克强主持召开国务院常务会议，专论及股市、经济问题。<br>
-    <br>
-    中南海消息人士透露，这是自中国股市2015年崩盘及2016年开年遭遇多次大跌以来，李克强首次公开且重点谈及股市：“我明确讲，去年针对股市、汇市异常波动，采取稳住市场的方针政策是正确的，符合国际惯例，而且在一段时间内拆掉了一些‘炸弹’，避免了系统性金融风险的发生。”<br>
-    <br>
-    李克强坦承，中国股市确实存在诸多“炸弹”，尽管已经“拆掉了一些”，但是自从崩盘以来，他本人的“神经绷得更紧、注意力更加集中了”；“回过头看，(拆弹措施)还存在适时有效应对的问题、在技术层面主动作为不够的问题、甚至还有内部管理的问题。”<br>
-    <br>
-    据知情者透露，李克强在会上就股市问题委婉地表示，要为中国股市和中国经济向下负责，但同时又要辖下各部门共同承担：“该你分管的领域，哪些大指标出现了问题，出的政策落实怎么样，都要负责任！既要让自己紧张起来，也要督促下面的地方部门动起来。”<br>
-    <br>
-    李怒斥各地方、各部门对经济发展主观上不够重视。“不少项目批了、钱也拨了，却迟迟开不了工”，并点名批评了几个工作拖拉的部门。“各部门的工作今后决不能再拖拖拉拉！”<br>
-    <br>
-    中南海知情者指，其实李克强和在座的人都明白，地方和部门之所以出现“怠工”情况，与当下中纪委雷厉风行的反贪腐不无关系，“现在的官场，充斥‘不做不错、少做少错、多做多错’，消极怠工十分普遍，连中纪委书记王岐山都叹道</td></tr></p>
 <p>
 	<small> ============== 11天前</small>
 </p>
