@@ -49,6 +49,67 @@
 <p>
 	<small> ============== 4小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602281148.shtml" target="boxun-mirror">中国特色G20：闭门八议题不谈中国谈世界</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中国特色G20：闭门八议题 不谈中国谈世界<br><font color="#000fC0">(<small>博讯北京时间2016年2月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201602281148" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <br>
+    【博闻社】特约记者上海特别报导，2016年G20财长和央行行长会议于当地时间26日晚7点正式开幕，与会各国贵宾正在进行工作晚宴，并进入会议官方议题的第一环节，对全球经济进行正式磋商。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       博闻社此前独家报导中国国家主席习近平对本次会议已经定下基调：一定不能让中国问题摆上桌面；而为了平衡和安怃与会各方对中国经济的关切，除会议官方议题外，首次作为主席国的中国，只得特别安排「闭门会议」。<br>
+    <br>
+    千呼万唤始出来。当本次会议的官方议题正式公布时，还是让与会嘉宾和各国媒体大吃一惊，这八大议题的中译版如下：<br>
+    <br>
+    1、全球经济<br>
+    <br>
+    2、强健平衡可持续发展框架<br>
+    <br>
+    3、投资基础设施建设<br>
+    <br>
+    4、国际金融架构<br>
+    <br>
+    5、金融领域改革<br>
+    <br>
+    6、国际税收<br>
+    <br>
+    7、反恐融资<br>
+    <br>
+    8、绿色金融<br>
+    <br>
+    作为全球最高级别的经济会议，G20“双长会”的以上议题本无可厚非；但博闻社特约记者从现场获悉，让与会嘉宾和各国媒体“丈二和尚摸不着头脑”的是，中国一直强调与世界密不可分，而且本次会议又明显带有中国特色，却不谈中国而大谈世界。<br>
+    <br>
+    博闻社特约记者了解到，按会议官方议程安排，本次“双长会”今晚才正式开幕，但是今天白天的重头戏却是所谓“结构性改革研讨会”和中国央行行长周小川记者会。<br>
+    <br>
+    其实这两场会议与G20“双长会”并无直接关系，而是中方为防止在G20会议上成为众矢之的，而预先特别安排中国财政部和中国人民银行主办的地地道道的「中国特色」会议。<br>
+    <br>
+    中国财政部长楼继伟和中国央行行长周小川的会场表现，表面上振振有词和滔滔不绝，却通篇几乎都是不痛不痒式的老调重弹，并未明确释放任何有关人民币汇改的「积极措施」；即使是在长达2小时的记者会上，周小川也是「顾左右而言他」。<br>
+    <br>
+    作为首次在中国的经济中心上海举行的G20「双长会」，正式会议时间只有明天短短的数小时，却要「大谈特谈」以上八大议题，着实让全世界都为「中国特色」的主席国「捏一把汗」？ ！<br>
+    <br>
+    博闻社独家详细报道全文：<a href="http://bowenpress.com/news/bowen_category/exclusive">中国特色G20：闭门八议题 不谈中国谈世界</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201602281148" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4801148       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602262300.shtml" target="boxun-mirror">紫禁城来鸿：“任大炮”跟习近平“叫板”的背后</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -888,57 +949,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201602170521" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602161419501.jpg http://upload.bx.tl/news/temp14/201602161419502.jpg http://bnn.co/news/images/2016/02/201602080544china1.jpg http://bnn.co/news/images/2016/02/201602080544china3.jpg--> 340521       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602171813.shtml" target="boxun-mirror">中国在永兴岛部署导弹引起全球高度关注请看博讯热点：南沙、西沙争端</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中国在永兴岛部署导弹引起全球高度关注<br><font color="blue" size="2">请看博讯热点：<a href="/hot/south_china_sea.shtml">南沙、西沙争端
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月17日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      美国福克斯新闻网称其从早些时候获得的民用卫星图像发现，中国已经将一个先进的地对空导弹系统安置在其中一个南海岛礁上。台湾国防部罗绍和少将2月17日对路透社证实了这一消息。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/02/201602171813intl1.jpg" alt="中国在永兴岛部署导弹引起全球高度关注"><p>（资料图片）<br>
-    <br>
-     消息一出引起一片哗然，美国太平洋舰队司令哈里斯今天（2月17号）在东京对记者说，中国在南海西沙群岛部署导弹的作法，违背了中方表明不将该区域军事化的承诺。哈里斯说，习近平没有兑现他之前做出的“绝不会让南中国海军事化”的承诺。<br>
-    <br>
-    日本防卫相中谷元今日下午在日本防卫省接受记者采访时，针对此事做出回应：“（我们对此事给予）重大关注，正在努力收集和分析信息。将注视中国在南海的动向。”<br>
-    <br>
-    中谷元表示，中国正在与越南存在领土主权争端的永兴岛扩建机场跑道。他还说道：“虽然中国宣布没有军事化的意图，但希望中国作出符合自身发言的更具透明性的解释”。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/02/201602171813intl2.jpg" alt="中国在永兴岛部署导弹引起全球高度关注"></p>
-<p>（图片来源：福克斯新闻）<br>
-    <br>
-    美国之音报道，中国在南海有争议岛屿部署导弹的消息传来之际，美国总统奥巴马正在加利福尼亚州主持美国-东盟峰会，奥巴马对此呼吁采取切实可行的步骤，缓解南中国海领土争端导致的紧张局势。<br><br><b>中国大陆官方对此消息则采取了一贯的回避和反唇相讥的态度。外交部长王毅在被问及有关南海永兴岛部署地对空导弹的报道时回应称：“这恐怕是西方个别媒体想制造新闻的做法。”</b><br>
-    <br>
-    王毅表示希望各方媒体更多关注中国在驻守岛礁上建设的灯塔，即将建设的气象预报设施和渔船避风、救险、应急等设施。<br>
-    <br>
-    中国外交部发言人洪磊今天在例行的记者会上回应有关提问时称并不了解具体情况，但中国在南海岛礁上部署必要的防卫设施，是行使国际法赋予的权利，强调此举是用于国防需要，而不是军事化。<br>
-    <br>
-    澳大利亚外长毕晓普今天在与王毅的联合记者会上呼吁该地区相关各方保持克制，呼吁和平解决争议。她周一在访问日本时就已经表示，澳大利亚在南海主权争执中不会偏向任何一方。<br>
-    <br>
-    美国《大众新闻网》根据“图像卫星国际公司”（ImageSat International）提供的卫星照片分析指出，中国于2月14日前后在永兴岛（Woody Island）部署的是红旗9号防空飞弹系统，五角大楼官员则证实了卫星照片的真实性。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/02/201602171813intl3.jpg" alt="中国在永兴岛部署导弹引起全球高度关注"></p>
-<p>（红旗9号防空飞弹系统。资料图片）<br>
-    <br>
-    历史上，中国对南中国海的绝大多数岛礁声称拥有主权，而文莱、马来西亚、菲律宾、越南和台湾也同时对南中国海部分岛礁声称拥有主权。<br>
-    <br>
-    1950年至1970年间，中国与越南因为西沙群岛爆发过多次冲突。1974年中国击败越南后控制了整个西沙群岛。永兴岛目前是中国海南三沙市政府驻地，为西沙群岛、中沙群岛和南沙群岛的行政中心。<br>
-    <br>
-    台湾亦宣称对永兴岛拥有主权，并将永兴岛划归为高雄市旗津区。越南则称永兴岛隶属于岘港市黄沙岛县。<br>
-    <br>
-    </p>
-<div align="center"><img src="http://upload.bx.tl/news/temp14/201602170310001.png" width="500"></div>（资料图片）<br>
-    <br>
-    针对今天发生的事件，路透社援引美国五角大楼发言人比尔・厄本的话说：“我们不能对与情报有关的事件发表评论，但我们会密切关注有关事件”。
- [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602170307001.jpg http://upload.bx.tl/news/temp14/201602170303331.png http://upload.bx.tl/news/temp14/201602170311471.jpg http://upload.bx.tl/news/temp14/201602170310001.png--> 4881813       
 <hr>
 <table width="620"><tr><td>
 <b></p>
