@@ -19,6 +19,71 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603010742.shtml" target="boxun-mirror">得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”<br><font color="#000fC0">(<small>博讯北京时间2016年3月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201603010742" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     今年的好莱坞奥斯卡金像奖奖依旧像往年一样，整条星光大道充满着节日的气氛，人们早早挤在星光大道两侧期盼一睹明星们的风采，但是在大道的一偶，有一场特殊的奥斯卡奖也在同步举行。这场特殊的奥斯卡奖并没有像好莱坞的奥斯卡金像奖那么风光，而是因奖项的得主们全部都在中国的监狱中而显得格外悲壮，这就是已经连续举办了三届的奥斯卡中国人权奖。<br>
+    <br>
+    来自洛杉矶、旧金山湾区和纽约四十多位民运人士参加了这场特殊的颁奖典礼。<br>
+    <br>
+    此次得奖的四位得主分别是身陷中共铁狱的刘远东，张海涛，王宇和唐荆陵，中国民主党全委会主席王军涛博士、六四伤残英雄方政先生、美国人权活动家莱斯丽女士、中国民主党后援会主席陈立群女士，分别为他们颁奖。民主女神基金会CEO张健先生主持了颁奖典礼。此次奥斯卡人权奖的铜像由著名雕塑家陈维明先生设计制作。<br>
+    <br>
+    刘远东1978年3月30日出生，广东省五华县人，因积极参与南方街头运动与2015年11月27日被判处有期徒刑3年。<br>
+    <br>
+    张海涛1971年出生，长期从事民主运动，因为积极关注新疆民族问题和民生事务，于2016年1月15日被乌鲁木齐中院以煽动颠覆国家政权罪，为境外提供情报罪重判19年，并没收个人财产人民币12万。<br>
+    <br>
+    王宇1971年5月1日出生，内蒙古乌兰浩特人，女性维权律师，曾代理过重大人权案件，2016年1月8日以颠覆国家政权罪遭逮捕，拘禁至今，其子被禁止出境。<br>
+    <br>
+    唐荆陵1971年12月出生，湖北荆州市人，律师，中国维权运动的主要人物之一，公民不合作运动的首倡者和主要推动者。 2014年6月21日被拘捕，2016年1月29日被广州中院以颠覆国家政权罪判处有期徒刑五年。<br>
+    <br>
+    陈维明表示，于这个时间给国内的人权勇士颁发奖项，一是表达我们海外朋友对他们的敬意，二是希望引起国际社会进一步关注中国越来越恶化的人权状况，共同谴责中共的暴行。<br>
+    <br>
+    王军涛博士说：「我们要让在中国监狱里的良心犯知道，他们并不孤单，那些在黑暗中奋战的人能够听见我们在这里向他们表达敬意。”<br>
+    <br>
+    “奥斯卡自由人权奖”2014年设立，每年在奥斯卡金像奖颁奖的同一天，在好莱坞星光大道上举行颁奖典礼，今年是第三届。第一和第二届的获奖者是：王炳章、朱虞夫、南方街头运动、新公民运动，和伊力哈木、中国维权律师群体、香港学民思潮发起人黄之锋、于世文。<br>
+    <br>
+    夏风 洛杉矶报道<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl1.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"><p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl2.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl3.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl4.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl5.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl6.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl7.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl8.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl9.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603010742intl10.jpg" alt="得主们全在中国监狱：悲壮的“奥斯卡自由人权奖”"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201603010742" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602291640371.jpg http://upload.bx.tl/news/temp14/201602291640372.jpg http://upload.bx.tl/news/temp14/201602291640373.jpg http://upload.bx.tl/news/temp14/201602291640374.jpg http://upload.bx.tl/news/temp14/201602291640375.jpg http://upload.bx.tl/news/temp14/201602291640376.jpg http://upload.bx.tl/news/temp14/201602291640377.jpg http://upload.bx.tl/news/temp14/201602291640378.jpg http://upload.bx.tl/news/temp14/201602291640379.jpg http://upload.bx.tl/news/temp14/2016022916403710.jpg--> 20742       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/02/201602281830.shtml" target="boxun-mirror">紫禁城来鸿：上海G20无果而终背后可数“10宗罪”请看博讯热点：金融问题</a>
 </h2>
 <p><tr>
@@ -822,115 +887,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2016/02/201602172301.shtml" target="boxun-mirror">新年观察：习氏语录铺天盖地中国再回造神时代请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>新年观察：习氏语录铺天盖地 中国再回造神时代<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201602172301" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart--> <center><font size="4"><b>    原题：中国穿越毛时代</b></font></center>
-<br>
-    <br>
-              李方<br>
-    <br><br><b>“习近平语录”诞生，仿佛回到毛时代</b><br>
-    <br>
-    习近平执政进入第三年后，逐渐坐大，除了在全国上下推出“习核心”概念，现在已然长期占据各大媒体头条，没什么事也占着。仿佛流行歌曲排行榜，不管好不好听，老子就占着第一名，并且没有第二名、第三名，玩儿的是独唱。媒体都成了习家马桶，上面坐着同一个人，他只能是习近平。<br>
-    <br>
-    经历过毛泽东时代的人，一定对当年比手纸还普及的《毛主席语录》印象深刻。那个年代，毛语录就是法律，可以救命也可以杀人。<br>
-    <br>
-    前段时间，海外媒体还在预测，习近平会不会仿毛，进一步搞出“语录”这玩意儿。从2016年2月开始，“习近平语录”果真不是玩儿的，铺天盖地而来。今天，人民日报社的“人民网”，已经发布习氏语录到第六期了。人民网是大陆媒体的班长，领头发布，其他媒体必须拷贝跟随。<br>
-    <br><br><b>密集鼓吹“这三年”，火力赶超江泽民的“十三年”</b><br>
-    <br>
-    最新密集推出的习近平宣传排炮，命名为“这三年”。主要是回顾习近平三年来的“耀眼”政绩，以及在各个领域的讲话，形成语录，供各级党员干部学习、背诵。各大主要媒体均可见名为“这三年”的文章包，打开后，就是中宣部组织写作的吹牛文章。究竟有没有成绩，没有关系，文章说有就有。这令人想起了2002年，中宣部为江泽民组织的“十三年来”系列宣传排炮。那批排炮，是为江泽民献礼、送行的，习近平这次不同，目的显然是为了进一步巩固和神话个人地位。江泽民花了十三年才敢搞这样的个人宣传，习近平三年就开始铺天盖地了。<br>
-    <br>
-    “这三年”的系列吹牛文章里，经济方面政绩倒是很有自知之明，一笔带过，没有着墨很多。大家都清楚，习近平政权三年来经济搞得一塌糊涂，没办法说。外交方面是这批排炮里的重点，仿佛这三年习近平的工作重点就是外交，干着外交部长。外交方面的政绩，使用了天文级的数字：“三年多来，国家主席习近平出访20次，累计138天，行程近40万公里，相当于绕地球飞行近10圈，足迹遍布各大洲。”不知这样巨大的数字，是在作弄习近平，还是夸赞习近平，显得这位领导人很不务实，整天外面玩去了。但是遭全球诟病的大撒币天文数字，却隐藏起来了，可能是故意为尊者讳。<br>
-    <br><br><b>个人垄断媒体头条，超过毛泽东</b><br>
-    <br>
-    这里随意浏览全国各大媒体网站，几乎每一家头条都是习近平。对习近平的个人宣传密度与强度，远远超过毛泽东之后的几代中共领导人。甚至，这也超过了文革时期对毛泽东报道的密度和强度。文革期间的《人民日报》等主要媒体，毛泽东有事或有会议，才会在头版头条报道，不会一直让他的名字把守头版头条。不过，头版右上角，每天都会刊出毛泽东语录。<br>
-    习近平的过度包装与宣传，就是中国当代新的造神运动。<br>
-    <br>
-    作为目前国内媒体头版头条的专职守门员，吹捧文章连篇累牍，炮声二十四小时轰鸣。那架势简直就是，不信我这个神，烦都烦死你。<br>
-    <br><br><b>先天不足的造神，可能空忙一场</b><br>
-    <br>
-    历史上成功造神的独裁者，必须满足两个条件，一是个人拥有巨大的文治武功业绩，二是帝制世袭。靠战争、政变、叛乱夺权，开辟新政权者，很容易被神化，历代的开国者就是如此。执政过程中，为国家建立了巨大功业，开疆拓土、经济振兴等，也能够导致成功造神，例如彼得大帝、亚历山大大帝、希特勒、斯大林、李光耀、邓小平、朴正熙、蒋经国等。世袭造神也不难，他老子是帝王，已经是神，神的儿子自然也是神。金正恩、巴沙尔这种人，天然就是神，三岁讲的话也是学习语录。<br>
-    <br>
-    习近平二者都不是，他不是开国立业者，没有显著的文治武功，也不是王权世袭者。所以，习近平的造神运动，很可能只是吹风机式的一厢情愿的宣传，无法在党徒和国民内心得到认同。泡沫式造神，一旦“神”下台，后果可能会很糟糕。被人扒开锦衣玉皮，里面都是泥胎、草粪。<br>
-    <br><br><b>习近平真要封神，只有两条路</b><br>
-    <br>
-    萨达姆当年缺乏文治武功，为了造神，发动战争，打伊朗、占科威特、对抗美国。虽然后来很惨，但在他执政期间，依靠战争还是成功充当了伊拉克的神圣。习近平如今要当神，还很缺乏业绩支撑，概念非常苍白。恐怕他得学习他的前辈邓小平，发动一场战争，或者让国家经济快速振兴，追上发达国家。但是习近平三年来用力做经济课题，还是不及格，数据一路往下跌。也许他缺乏经济天赋，不可勉强，那么寻找战争道路，应当是他当神的后一条路子。<br>
-    <br>
-    中东伊斯兰国闹得正凶，这是造神的一个机会。如果习大帝发威，派去几个师，扫平恐怖王国，肯定可以很快在国内国际成功造神。金三胖也闹得让国际社会很讨厌，元旦玩核爆，给中南海拜阳历年，春节玩射星，给中南海拜农历年。解放军又不是没实力，又不是打不过他，如果习主席一发威，灭了金家神经病政权，主席绝对立即成神，成为威震全球的东方之神。我一个海外流亡的反对者，都会年年给主席烧香。<br>
-    <br>
-    习近平造神其实还有另一个途径。那就是真打虎。武松景阳冈打了一匹真老虎，在江湖上很快成神。习近平三年反腐，其实并没有打掉中国贪腐的真正大老虎。最大一个才只是退休的上届第九政治局常委，打的是“小九九”，一个老虎尾巴而已。如果武松当年拎着一条老虎尾巴下山，或者扛着一只狐狸下山，他想江湖成神，谁买他的账？谁都知道，中国真正的贪腐大老虎，是前代领袖级的江泽民、李鹏、温家宝、吴邦国、曾庆红家族，以及叶剑英、邓小平、王震等红色家族。这些真老虎还在后山树林里忽隐忽现，习近平敢自称武松？不过是个打猫书记而已。<br>
-    <br>
-    如果习近平真的拿出魄力，把江泽民、李鹏级别的真老虎拿下，必然会在全世界树立极高威望，成为国际上最有建树的国家领导人。此时不造神，也会成神。武松是中宣部宣传出来的吗？这个功业，比在国际上撒一万亿美元，作用都显著得多。<br>
-    <br>
-    希望中南海里帮习近平造神的神汉巫婆们，认真考虑以上各条光明神路，不要在你们的黑暗下水道里闭门造神。那样要么造出一个笑神，让全世界笑掉大牙，要么造出一个魔鬼，连神汉巫婆也吃了。<br>
-    <br><br><b>请参观今日国内各大媒体网站，习氏头条已成常态。</b><br>
-        人民网<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170733411.png" width="500"></div>
-<br>
-        解放军报<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170733412.png" width="500"></div>
-<br>
-        光明日报<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170733413.png" width="500"></div>
-<br>
-        中国青年报<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170733414.png" width="500"></div>
-<br>
-        大河报网<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170737441.png" width="500"></div>
-<br>
-        澎湃新闻网<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170750361.png" width="500"></div>
-<br>
-        南方网<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170752251.png" width="500"></div>
-<br>
-        新浪专题<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170748261.png" width="500"></div>
-<br>
-        搜狐网<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170756201.png" width="500"></div>
-<br>
-        网易新闻<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170756202.png" width="500"></div>
-<br>
-        学习小组<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170748262.png" width="500"></div>
-<br>
-    <br><br><b>再请参观今日搜狐和人民网刊出的最新语录。</b><br>
-    <br>
-        搜狐网刊载语录<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170758081.png" width="500"></div>
-<br>
-        人民网刊载语录1<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170758082.png" width="500"></div>
-<br>
-        人民网刊载语录2<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170758083.png" width="500"></div>
-<br>
-        人民网刊载语录3<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170758084.png" width="500"></div>
-<br>
-        人民网刊载语录4<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170759331.png" width="500"></div>
-<br>
-        人民网刊载语录5<br>
-    <div align="center"><img src="http://upload.bx.tl/news/temp14/201602170759332.png" width="500"></div>
-<br>
-     
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201602172301" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
-<!-- http://upload.bx.tl/news/temp14/201602170733411.png http://upload.bx.tl/news/temp14/201602170733412.png http://upload.bx.tl/news/temp14/201602170733413.png http://upload.bx.tl/news/temp14/201602170733414.png http://upload.bx.tl/news/temp14/201602170737441.png http://upload.bx.tl/news/temp14/201602170750361.png http://upload.bx.tl/news/temp14/201602170752251.png http://upload.bx.tl/news/temp14/201602170748261.png http://upload.bx.tl/news/temp14/201602170756201.png http://upload.bx.tl/news/temp14/201602170756202.png http://upload.bx.tl/news/temp14/201602170748262.png http://upload.bx.tl/news/temp14/201602170758081.png http://upload.bx.tl/news/temp14/201602170758082.png http://upload.bx.tl/news/temp14/201602170758083.png http://upload.bx.tl/news/temp14/201602170758084.png http://upload.bx.tl/news/temp14/201602170759331.png http://upload.bx.tl/news/temp14/201602170759332.png--> 662301       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
 </p>
 <table>
     <tr>
