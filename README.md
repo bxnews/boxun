@@ -54,7 +54,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603031628.shtml" target="boxun-mirror">中共军队或又见大老虎范长龙廖锡龙吐赃款豁免追究请看博讯热点：军队高层</a>
 </h2>
@@ -65,7 +65,7 @@
 </center>
                 <!--bodystart-->      【博闻社独家】中共军队改革大局已定，但反贪打虎未了。香港出版最新一期《博讯》月刊透露，现任军委副主席范长龙、已退役的前中央军委委员兼总后勤部长廖锡龙，分</td></tr></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603031636.shtml" target="boxun-mirror">中共军队又现大老虎身影范长龙廖锡龙吐赃款免追究请看博讯热点：军队高层</a>
 </h2>
@@ -76,7 +76,7 @@
 </center>
                 <!--bodystart-->      【博闻社独家】中共军队改革大局已定，但反贪打虎未了。香港出版最新一期《博讯》月刊透露，现任军委副主席范长龙、已退役的前中央军委委员兼总后勤部长廖锡龙，分</td></tr></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/03/201603020933.shtml" target="boxun-mirror">中共五毛对海外民运新玩法：出书泼粪、定点斩首请看博讯热点：白色恐怖</a>
 </h2>
