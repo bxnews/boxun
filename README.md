@@ -56,6 +56,17 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603031628.shtml" target="boxun-mirror">中共军队或又见大老虎范长龙廖锡龙吐赃款豁免追究请看博讯热点：军队高层</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共军队或又见大老虎 范长龙廖锡龙吐赃款豁免追究<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603031628" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】中共军队改革大局已定，但反贪打虎未了。香港出版最新一期《博讯》月刊透露，现任军委副主席范长龙、已退役的前中央军委委员兼总后勤部长廖锡龙，分</td></tr></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/03/201603020933.shtml" target="boxun-mirror">中共五毛对海外民运新玩法：出书泼粪、定点斩首请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -781,36 +792,6 @@
     中共太子党习近平上台后，俨以「根正苗红接班人」自居，党媒喉舌不时炫耀习的父亲、中共改革派元老习仲勋，大有吹捧习近平出身名门、「老子英雄儿好汉」之寓意，当年被遇罗克怒批的「血统论」再度漾溢于表，文革遗味甚盛，令外界无不</td></tr></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/02/201602221608.shtml" target="boxun-mirror">官媒发文抨击任志强反党措辞尖厉被指大字报</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>官媒发文抨击任志强反党 措辞尖厉被指大字报<br><font color="#000fC0">(<small>博讯北京时间2016年2月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602221608" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2016/02/201602221608china1.jpg" alt="官媒发文抨击任志强反党 措辞尖厉被指大字报"><p>（任志强。资料图片）<br>
-    <br>
-    【博闻社】官媒北京日报旗下的《千龙网》今日（2月22号）发表了一篇火药味十足的批判文章，题为《谁给了任志强反党的底气》，文章针对任志强对“党媒姓党”一说的反驳言论发起攻击，以任志强本人是共产党员为由，指其“党性沦丧”。观察人士指，此文措辞颇有文革时期大字报的风格。<br>
-    <br>
-    习近平周五（2月19日）走访了三家党喉，并在中共新闻舆论工作座谈会上强调：“媒体更好地向世界报道中国，加强国际影响力”、“要加强国际传播能力建设，增强国际话语权，集中讲好中国故事，同时优化战略布局，着力打造具有较强国际影响的外宣旗舰媒体”，还当场连线了央视华盛顿北美分台。此后央视现场打出“党媒姓党”字样引发舆论热议，任志强就是在此事中跟进的评论。<br>
-    <br>
-    党管媒体是中共几十年一贯的“传统”，但召开新闻舆论工作座谈会、直接点名要求媒体“姓党”，还是首次。<br>
-    <br>
-    千龙网的文字以坚定的口吻声明“党媒要有党性原则”，还说“舆论阵地的战斗，意识形态领域的硝烟，是时时刻刻的拼刺刀，面对没有一日不拱卒的公知推墙党，我们必须要用党性原则，扎紧篱笆修好围栏”。措辞具有较广泛的指涉。<br>
-    <br>
-    分析人士认为，此文由于出自官方背景网络媒体，其撰文主旨或有官方授意。任志强在大陆的生意更多依靠政府的支持，但网络舆论方面，他似乎一直在走所谓的建设性批评路线，也就是评论界称之为骑墙的姿态。在去年，习近平强调统战网络大V后，很多微博名人疑似被收编、或以待收编姿态出现，他们的言论对中共的政权稳定不具危害性，中共当局允许甚至鼓励他们的存在，被观察界认为是极权的进化特征。<br>
-    <br>
-    但此次官媒的大批判姿态似乎透露对任志强的“信任程度”还不够外界所认为的那般高，当然也不排除指桑骂槐敲打所有微博名人，比如针对习近平主张的“不得妄议”说，同时也透露出习近平政府对媒体管制的重视程度高于其前任。<br>
-    <br>
-    博闻社原文链接：<a href="http://bowenpress.com/news/bowen_69264.html" style="color:blue;">官媒发文抨击任志强、强调“党媒必须姓党” 被指大字报</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201602221608" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602220101521.jpg--> 151608       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
