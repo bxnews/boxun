@@ -19,6 +19,43 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603030103.shtml" target="boxun-mirror">独家：中纪委对辽宁杀回马枪矛头直指前省长陈政高请看博讯热点：反腐打老虎</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：中纪委对辽宁杀回马枪 矛头直指前省长陈政高<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603030103" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2016/03/201603030103china1.jpg" alt="独家：中纪委对辽宁杀回马枪 矛头直指前省长陈政高"><p>（陈政高在此轮巡视中是否能保不倒受到关注。资料图片）<br>
+    <br>
+    【博闻社独家】上月23日，中纪委公布2016年首轮巡视32家机构名单，同时宣布对辽宁、安徽、山东、湖南4省进“回头看”。据博闻社独家信报，中纪委对4个省“杀回马枪”是有针对性的。其中问题最多的辽宁省，官场已然大乱，多名高官被拿下。中纪委的矛头直接指向的则是这些落马高官的后台，前辽宁省长、现城乡住建部部长陈政高。<br>
+    <br>
+    辽宁政界人士对博闻社透露，中纪委对辽宁省杀回马枪，目的是要彻底揭开辽宁官场腐败盖子。巡视组长周六(27日)在辽宁召开动员会，辽宁党政高官会部与会听训视。巡视组长叶青纯指，此轮巡视是政治巡视，不是业务巡视。巡的是党组织和党员领导干部，发现问题，挖出根源，形成震慑。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603030103china2.jpg" alt="独家：中纪委对辽宁杀回马枪 矛头直指前省长陈政高"></p>
+<p>（巡视组日前在辽宁开动员会。）<br>
+    <br>
+    叶青纯指，巡视组将加强对政治纪律和政治规矩执行情况的监督检查，对没有发现的问题再发现，对尚未深入了解的问题再了解，确保问题见底；加强对上一轮巡视整改情况的监督检查，在“件件有着落”上较真，强化整改主体责任，对整改不力、敷衍整改的，抓住典型，严肃追责。<br>
+    <br>
+    据知情者向博闻社透露，中纪委上轮对辽宁省巡视虽拿下了一批贪官，但并未从根本上触动辽宁问题的质实，这个实质实际上指的是辽宁官场前任领导人遗留下来的“党内搞派、团团伙伙、结党营私”问题。尤其是前任省长陈政高在位时，拉帮结派形成的“辽宁帮”，没有被彻底摧垮，动筋未动骨，余毒还在。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603030103china3.jpg" alt="独家：中纪委对辽宁杀回马枪 矛头直指前省长陈政高"></p>
+<p>（陈政高心腹杨亚洲率先落马。）<br>
+    <br>
+    中纪委此番回马枪抵达辽宁后第三天即对外宣布，沈阳市副市长杨亚洲正接受组织审查。53岁的杨亚洲毕业于大连工学院水利系，长期在沈阳为政，是陈政高主政沈阳时一手提拔起来的。据知情人士的消息指，陈政高的几个金刚之一，原辽宁鞍山市委书记谷春利在被罢免人大代表后，也已于近日被批捕。习近平以前曾告诫的“辽宁干部要讲纪律，讲规矩、诚信”，实则指的就是陈政高的这个“辽宁帮”。<br>
+    <br>
+    据悉，中央巡视组将在辽宁展开工作2个月。主要受理反映辽宁省级领导班子及其成员、下一级党组织领导班子主要负责人和重要岗位领导干部问题的来信来电来访内容，重点关注违反政治纪律、组织纪律、廉洁纪律、群众纪律、工作纪律、生活纪律等方面的举报和反映。辽宁官场高官、尤其是陈政高“辽宁帮”的干部成员，几已处于朝不保夕的状态中。<br>
+    <br>
+    （博闻社原文报道链接：<a href="http://bowenpress.com/news/bowen_71695.html" style="color:red;">《中纪委对辽宁“杀回马枪” 矛头直指前省长陈政高》</a>）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603030103" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201603020959441.jpg http://upload.bx.tl/news/temp14/201603020959442.jpg http://upload.bx.tl/news/temp14/201603020959443.jpg--> 170103       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/03/201603020933.shtml" target="boxun-mirror">中共五毛对海外民运新玩法：出书泼粪、定点斩首请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -772,35 +809,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/02/201602220528.shtml" target="boxun-mirror">习近平亲选刘仕余接肖钢，黄奇帆何去何从？</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平亲选刘仕余接肖钢，黄奇帆何去何从？<br><font color="#000fC0">(<small>博讯北京时间2016年2月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602220528" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      博闻社中南海报道，备受瞩目的证监会手术终于动刀，并不为亿万股民熟悉的刘仕余，接任广为人知又人人喊打的肖钢，成为新一任中国证券业掌门人；而呼声更高的金融市长黄奇帆，或将另有任用。<br>
-    <br>
-     业界人士向博闻社表示，面对中国股市的怨声载道，肖钢做替罪羊下课并无悬念。国务院在物色新任证监会主席时，慎之又慎，曾经有多名合适人选，经权衡再三，黄奇帆入围最后两位最佳人选；在最终上报中国国家主席习近平时，他用红笔圈下了刘仕余的名字。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    博闻社此前曾多次独家报道伤痕累累的中国股市，尤其是中国总理李克强在猴年春节假期后的首次国务院常务会议上，更是罕见地效仿其前任温家宝，严厉批评了有关部门。博闻社从中南海高层又独家获悉，免职肖钢，只是对中国证监会动手术的第一刀，中国证监会乃至中国金融业改组的步伐，将进一步提速。<br>
-    <br>
-    博闻社早就独家披露，作为不倒翁的重庆市长黄奇帆，最终能否进京，年龄问题是关键因素。中南海高层进一步向博闻社确认，习近平新年伊始，首选重庆进行考察，其实是实地对黄奇帆的期末大考；选择刘仕余接替肖钢，表明习近平对黄奇帆的考试成绩很满意，或将对其另降大任。外界已经传出黄奇帆会取代</td></tr></p>
 <p>
 	<small> ============== 10天前</small>
 </p>
