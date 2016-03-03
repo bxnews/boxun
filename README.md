@@ -67,6 +67,17 @@
 <p>
 	<small> ============== 9小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603031636.shtml" target="boxun-mirror">中共军队又现大老虎身影范长龙廖锡龙吐赃款免追究请看博讯热点：军队高层</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共军队又现大老虎身影 范长龙廖锡龙吐赃款免追究<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603031636" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】中共军队改革大局已定，但反贪打虎未了。香港出版最新一期《博讯》月刊透露，现任军委副主席范长龙、已退役的前中央军委委员兼总后勤部长廖锡龙，分</td></tr></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/03/201603020933.shtml" target="boxun-mirror">中共五毛对海外民运新玩法：出书泼粪、定点斩首请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -778,18 +789,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/02/201602230114.shtml" target="boxun-mirror">专访遇罗克胞弟遇罗文：爆发革命已不可避免/视频</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>专访遇罗克胞弟遇罗文：爆发革命已不可避免/视频<br><font color="#000fC0">(<small>博讯北京时间2016年2月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201602230114" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【博闻社独家】下月5日是中国人权先驱遇罗克遇害46周年。定居北美的遇罗克胞弟遇罗文近日接受博闻社专访，就中共时局发表看法，认为目前形势下中国发生和平转型、走向民主化可能几乎没有了，发生革命已不可避免。他坚信即便共产党倒台，中国也不会大乱，因为人民的道德良知已超过了对暴政的忍耐。<br>
-    <br>
-    中共太子党习近平上台后，俨以「根正苗红接班人」自居，党媒喉舌不时炫耀习的父亲、中共改革派元老习仲勋，大有吹捧习近平出身名门、「老子英雄儿好汉」之寓意，当年被遇罗克怒批的「血统论」再度漾溢于表，文革遗味甚盛，令外界无不</td></tr></p>
 <p>
 	<small> ============== 9天前</small>
 </p>
