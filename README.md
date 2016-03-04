@@ -429,7 +429,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603011724.shtml" target="boxun-mirror">中国两会可能宣布大幅增加2016年国防预算</a>
 </h2>
