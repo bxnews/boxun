@@ -19,6 +19,39 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/pubvp/2016/03/201603051116.shtml" target="boxun-mirror">姚诚:给安徽国保的公开信-骚扰家人和朋友太下作</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>姚诚:给安徽国保的公开信-骚扰家人和朋友太下作<br><font color="#000fC0">(<small>博讯北京时间2016年3月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201603051116" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    最近，安徽国保不断的打电话问我的家人，或通过其他渠道询问我赴美后的情况及今后的打算，这里，就相关问题我一并作个答复。<br>
+     1、关于回国的问题。可以告诉你们，回去是肯定的，但不是现在，具体的日期我也定不下来。但可以说个大概：那就是当中国大陆民主进程到了一定的时候。我想这个日子也不会太远了。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       2、我们之间是敌我矛盾，不存在相互信任的问题。责备我出国没和你们打招呼，想想都可笑，告诉你们我还能出的去呀。你们要做什么难道会告诉我吗？<br>
+    3、说不回国就要采取措施，很好，我等着你们的“措施”。其实我也有自己的“措施”。安妮事件你们抓了、判了那么多的人，今天我出来了，自然要为受到你们迫害的朋友们伸冤，你们会秋后算帐，我们也会。我会向联合国、海牙国际法庭及相关机构控告你们。<br>
+    4、我没偷没抢，没杀人没放火，却因政治原因坐了两次牢。我帮助被拐儿童寻亲，做好事，做善事，你们不让；我在网上写点转点东西，你们恐哧；我和朋友吃个饭你们说是“饭醉”，一到你们认为的敏感日子就被旅游、被喝茶，住酒店你们骚扰，来个朋友说是传销，想抓就抓，毫无人性。我操，这还是人过的日子吗？（对不起，我爆粗口了）今天我好不容易跑了出来，怎么可能还会自投罗网？<br>
+        5、来到美国后，我享受了自由，我不再担心因言而获罪了，不会再有警察敲门跟踪了，更不会无缘无故的进拘留所、看守所了。<br>
+    最后，也奉劝你们几句：你们其实都是工具，捧着这碗饭，但完全可以将枪口抬高一寸，给自己留条后路，要知道中国的民主进程是任何人也阻挡不了的。我的行为只代表我自己，与家人和朋友无关。在此，也希望你们搞清眼前的状况，我现在并不在你们的战区，有种就</td></tr></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603041714.shtml" target="boxun-mirror">两会公布中国军费预算将增长7%-8%疑有心无力</a>
 </h2>
 <p><tr>
@@ -669,42 +702,6 @@
     <br>
     （博讯去年八月曾发过张海涛被捕的消息，相关链接：<a href="http://www.boxun.com/news/gb/china/2015/08/201508011101.shtml#.Vs6xx86kl3p" style="color:blue;">《新疆维权人士张海涛被以寻衅滋事罪正式逮捕》</a>）
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201602251601" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201602250057451.png--> 611601       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/02/201602252346.shtml" target="boxun-mirror">快讯：访民成功拦截外交部长王毅的车队请看博讯热点：“麻雀行动”</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>快讯：访民成功拦截外交部长王毅的车队<br><font color="blue" size="2">请看博讯热点：<a href="/hot/UN_Petition.shtml">“麻雀行动”
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年2月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201602252346" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     赵岩从华盛顿截车现场报道：美东时间上午约10点半，访民在华盛顿成功拦截外交部长王毅的车，致使其停了近一分钟。<br>
-    <br>
-     截车地点在CSIS（国际战略研究中心），北京访民郭红和湖南访民张冲在前面拦车。参与拍摄的博讯记者Abula被一名黑人保安打破鼻子，她还骂：Prick, shit等。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    细节和视频稍后补充。
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201602252346" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 242346       
 <hr>
 <table width="620"><tr><td>
 <b></p>
