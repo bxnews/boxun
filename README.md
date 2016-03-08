@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603072132.shtml" target="boxun-mirror">两会期间：王珉在会场被带走两会“打虎”有戏看请看博讯热点：反腐打老虎</a>
 </h2>
