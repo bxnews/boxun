@@ -91,6 +91,25 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603091436.shtml" target="boxun-mirror">视频：两会期间，云南普洱西盟佤族自治县开枪镇压村民请看博讯热点：警察、官员恶行</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：两会期间，云南普洱西盟佤族自治县开枪镇压村民<br><font color="blue" size="2">请看博讯热点：<a href="/hot/jingcha.shtml">警察、官员恶行
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603091436" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     博讯据网上信息，3月7日发生在云南省普洱市西盟佤族自治县翁嘎科乡班岳村坡永寨子发生特警向村民开枪事件。视频中可以看到村民和警察混战，警察后来频繁向村民开枪。当地人称，是政府连合外地人打百姓。据悉，村民因为对土地被偷卖不满而酿冲突。枪击造成村民死伤后，警察继续抓人。<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/o9k_LpKx4x0" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    事件细节了解中。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603091436" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1571436       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603081914.shtml" target="boxun-mirror">中国2月出口创81个月最大降幅经济疲软状况得印证</a>
 </h2>
 <p><tr>
@@ -701,17 +720,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603020755.shtml" target="boxun-mirror">房峰辉参谋长不带“总”其实是被架空靠边站请看博讯热点：军队高层</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>房峰辉参谋长不带“总” 其实是被架空靠边站<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603020755" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】由习近平亲自操刀的军队改革似乎大局已定。原来的军头大部份各得其所。但香港出版的最新一期《博讯》月刊透露，中共军改目前只是</td></tr></p>
 <p>
 	<small> ============== 7天前</small>
 </p>
