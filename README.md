@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603111856.shtml" target="boxun-mirror">达赖喇嘛赴日内瓦会议中国匆忙催促各国抵制请看博讯热点：西藏问题</a>
 </h2>
@@ -105,7 +105,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603090012.shtml" target="boxun-mirror">讽刺与怜悯：叙利亚难民潮中的世界与中国</a>
 </h2>
