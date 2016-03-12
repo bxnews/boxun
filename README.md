@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 25分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603111917.shtml" target="boxun-mirror">联合国12成员国谴责中国镇压异议人士中国反驳请看博讯热点：白色恐怖</a>
 </h2>
