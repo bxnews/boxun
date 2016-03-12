@@ -19,6 +19,54 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603120124.shtml" target="boxun-mirror">省长吹牛被打脸黑龙江数千煤矿工人游行示威请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>省长吹牛被打脸黑龙江数千煤矿工人游行示威<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603120124" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      黑龙江省双鸭山市双鸭山矿业集团旗下多个矿区的数千煤矿工人及家属，周五（3月11）发起游行示威，抗议集团拖欠工资，4名工人被抓捕。<br>
+    <br>
+    注册员工6万余人的双鸭山矿业集团，从2014开始拖欠工人工资，至今已累计拖欠工资近半年，如今工人每月只能领到800元左右的生活费。3月6日，黑龙江省省长陆昊在两会上称“不欠工人一分钱”，引发工人不满，于本月9日开始陆续发起示威。<br>
+    <br>
+    工人“郑岩___Zy”发帖说：陆昊省长吹牛逼，不欠龙煤工人一分钱工资，请问陆省长我们龙煤工人三个月都没开工资为什么呢？这钱又进了谁的腰包呢？2015年又有哪几个矿是百分之百开工资的，40%-50%开工资，剩下那50%-60%钱到底又去向何方？现在各矿为何都旷工？<br>
+    <br>
+    周五上午，双鸭山矿业集团旗下的东荣小区、东荣一矿、东荣二矿、东荣三矿、 四方台矿、七星矿等多个矿区的数千工人及家属走上街头，手持“我们要活着，我们要吃饭”、“陆昊睁眼说瞎话”等横幅，在市区多处游行示威。有四名工人遭到警察抓捕。<br>
+    <br>
+    网友“宇宙宇宙大脑”发帖说：黑龙江省龙煤集团双鸭山分公司职工在公司门前，打出横幅：陆昊睁眼说瞎话。 起因是：黑龙江省长陆昊在两会上，向媒体公开讲，矿工的工资全开了，不欠一分钱，而实际托欠工资，而下岗职工更苦，五个月不开一分钱，没人管。<br>
+    <br>
+    网友“LIELABGREN”说：看着工人们真的好可怜，因为上访无门，政府不办事，警察抓人，不知工人做错什么了。<br>
+    <br>
+    网友表示，次日将会有更多人加入维权行动。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603120124china1.jpg" alt=" 省长吹牛被打脸黑龙江数千煤矿工人游行示威"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603120124china2.jpg" alt=" 省长吹牛被打脸黑龙江数千煤矿工人游行示威"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603120124china3.jpg" alt=" 省长吹牛被打脸黑龙江数千煤矿工人游行示威"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603120124china4.jpg" alt=" 省长吹牛被打脸黑龙江数千煤矿工人游行示威"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603120124china5.jpg" alt=" 省长吹牛被打脸黑龙江数千煤矿工人游行示威"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603120124china6.jpg" alt=" 省长吹牛被打脸黑龙江数千煤矿工人游行示威"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603120124china7.jpg" alt=" 省长吹牛被打脸黑龙江数千煤矿工人游行示威"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603120124china8.jpg" alt=" 省长吹牛被打脸黑龙江数千煤矿工人游行示威"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603120124china9.jpg" alt=" 省长吹牛被打脸黑龙江数千煤矿工人游行示威"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603120124" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201603111011181.jpg http://upload.bx.tl/news/temp14/201603111011182.jpg http://upload.bx.tl/news/temp14/201603111011183.jpg http://upload.bx.tl/news/temp14/201603111011184.jpg http://upload.bx.tl/news/temp14/201603111012131.jpg http://upload.bx.tl/news/temp14/201603111012132.jpg http://upload.bx.tl/news/temp14/201603111012133.jpg http://upload.bx.tl/news/temp14/201603111012134.jpg http://upload.bx.tl/news/temp14/201603111011401.jpg--> 3330124       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603111917.shtml" target="boxun-mirror">联合国12成员国谴责中国镇压异议人士中国反驳请看博讯热点：白色恐怖</a>
 </h2>
 <p><tr>
@@ -710,17 +758,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603031628.shtml" target="boxun-mirror">中共军队或又见大老虎范长龙廖锡龙吐赃款豁免追究请看博讯热点：军队高层</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中共军队或又见大老虎 范长龙廖锡龙吐赃款豁免追究<br><font color="blue" size="2">请看博讯热点：<a href="/hot/armytiger.shtml">军队高层
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603031628" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】中共军队改革大局已定，但反贪打虎未了。香港出版最新一期《博讯》月刊透露，现任军委副主席范长龙、已退役的前中央军委委员兼总后勤部长廖锡龙，分</td></tr></p>
 <p>
 	<small> ============== 9天前</small>
 </p>
