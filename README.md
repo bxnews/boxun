@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603121359.shtml" target="boxun-mirror">胡锡进周方等"阵前倒戈"：顺应民意抑或另有图谋？</a>
 </h2>
@@ -581,7 +581,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603051625.shtml" target="boxun-mirror">李克强作政府工作报告中国设今年经济增长低于7</a>
 </h2>
