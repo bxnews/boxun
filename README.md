@@ -19,6 +19,74 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603130327.shtml" target="boxun-mirror">黑龙江煤矿工人示威升级数万人上街促共产党还钱请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>黑龙江煤矿工人示威升级数万人上街促共产党还钱<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603130327" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      黑龙江省双鸭山市双鸭山矿业集团煤矿工人的示威行动持续升级，数万工人及家属周六（3月12日）走上街头，高呼“共产党还我们钱”、“打倒贪腐犯”等口号，要求政府补齐拖欠的工资，数千警察到场镇压维权工人，大量工人被殴打和抓捕。<br>
+    <br>
+     注册员工6万余人的双鸭山矿业集团，从2014开始拖欠工人工资，至今已累计拖欠工人工资近半年，如今，工人每月只能领到800元左右的生活费。3月6日，黑龙江省省长陆昊在两会上称“不欠工人一分钱”，引发工人不满，于本月9日开始陆续发起示威，在11日的示威中，有4名工人遭到警察抓捕。<br>
+    <br>
+    12日上午，工人的维权行动升级，双鸭山矿业集团旗下的东荣小区、东荣一矿、东荣二矿等八大矿区的数万工人及其家属走上街头，在全城多处游行、集会，双鸭山矿业集团的总部被工人团团包围，铁路线亦被工人阻断。<br>
+    <br>
+    网友“-花边”发帖说：双鸭山通往北京的火车已被百姓无奈堵截两天没有发出，国家可曾了解事态严重性，现在除了快手，各大网站的视频消息均被删除。<br>
+    <br>
+    当地政府从周边调集数千警察到市内，四处镇压维权工人，大量工人被殴打抓捕。<br>
+    <br>
+    工人“用户5668464321”发帖说：黑龙江省双鸭山市，看到今天有矿工兄弟被抓了，我们要工资是合理合法的，拖欠工资无人理会，养不起老人，供不起孩子上学，政府发生更大的冲突，他们抓工人的理由是闹事，要自己辛苦的血汗钱有错吗井下工人用生命挣来的钱，不给开，还要抓工人？ <br>
+    <br>
+    大量现场图片以及视频显示，大批的工人聚集在双鸭山市区多处，手持“共产党还我们钱”、“我们要活着，我们要吃饭”、“陆昊睁眼说瞎话”等横幅游行、集会，高喊“打倒贪污犯”等口号，大批警察四处拦截维权工人，双方发生多次冲突。<br>
+    <br>
+    截止当天下午，示威还在持续中。同时，工人以及网友上传到网络的信息遭到大量删除。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china1.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china2.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china3.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china4.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china5.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china6.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china7.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china8.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china9.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china10.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china11.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china12.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china13.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china14.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china15.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china16.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603130327china17.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
+<p><br>
+    <br>
+        
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603130327" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201603121124541.jpg http://upload.bx.tl/news/temp14/201603121124542.jpg http://upload.bx.tl/news/temp14/201603121124543.jpg http://upload.bx.tl/news/temp14/201603121124544.jpg http://upload.bx.tl/news/temp14/201603121125491.jpg http://upload.bx.tl/news/temp14/201603121125492.jpg http://upload.bx.tl/news/temp14/201603121125493.jpg http://upload.bx.tl/news/temp14/201603121125494.jpg http://upload.bx.tl/news/temp14/201603121125321.jpg http://upload.bx.tl/news/temp14/201603121125322.jpg http://upload.bx.tl/news/temp14/201603121125323.jpg http://upload.bx.tl/news/temp14/201603121125324.jpg http://upload.bx.tl/news/temp14/201603121125521.jpg http://upload.bx.tl/news/temp14/201603121125522.jpg http://upload.bx.tl/news/temp14/201603121125523.jpg http://upload.bx.tl/news/temp14/201603121125524.jpg http://upload.bx.tl/news/temp14/201603121125571.jpg--> 350327       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603120124.shtml" target="boxun-mirror">省长吹牛被打脸黑龙江数千煤矿工人游行示威请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -700,43 +768,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603030103.shtml" target="boxun-mirror">独家：中纪委对辽宁杀回马枪矛头直指前省长陈政高请看博讯热点：反腐打老虎</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：中纪委对辽宁杀回马枪 矛头直指前省长陈政高<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603030103" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2016/03/201603030103china1.jpg" alt="独家：中纪委对辽宁杀回马枪 矛头直指前省长陈政高"><p>（陈政高在此轮巡视中是否能保不倒受到关注。资料图片）<br>
-    <br>
-    【博闻社独家】上月23日，中纪委公布2016年首轮巡视32家机构名单，同时宣布对辽宁、安徽、山东、湖南4省进“回头看”。据博闻社独家信报，中纪委对4个省“杀回马枪”是有针对性的。其中问题最多的辽宁省，官场已然大乱，多名高官被拿下。中纪委的矛头直接指向的则是这些落马高官的后台，前辽宁省长、现城乡住建部部长陈政高。<br>
-    <br>
-    辽宁政界人士对博闻社透露，中纪委对辽宁省杀回马枪，目的是要彻底揭开辽宁官场腐败盖子。巡视组长周六(27日)在辽宁召开动员会，辽宁党政高官会部与会听训视。巡视组长叶青纯指，此轮巡视是政治巡视，不是业务巡视。巡的是党组织和党员领导干部，发现问题，挖出根源，形成震慑。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603030103china2.jpg" alt="独家：中纪委对辽宁杀回马枪 矛头直指前省长陈政高"></p>
-<p>（巡视组日前在辽宁开动员会。）<br>
-    <br>
-    叶青纯指，巡视组将加强对政治纪律和政治规矩执行情况的监督检查，对没有发现的问题再发现，对尚未深入了解的问题再了解，确保问题见底；加强对上一轮巡视整改情况的监督检查，在“件件有着落”上较真，强化整改主体责任，对整改不力、敷衍整改的，抓住典型，严肃追责。<br>
-    <br>
-    据知情者向博闻社透露，中纪委上轮对辽宁省巡视虽拿下了一批贪官，但并未从根本上触动辽宁问题的质实，这个实质实际上指的是辽宁官场前任领导人遗留下来的“党内搞派、团团伙伙、结党营私”问题。尤其是前任省长陈政高在位时，拉帮结派形成的“辽宁帮”，没有被彻底摧垮，动筋未动骨，余毒还在。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603030103china3.jpg" alt="独家：中纪委对辽宁杀回马枪 矛头直指前省长陈政高"></p>
-<p>（陈政高心腹杨亚洲率先落马。）<br>
-    <br>
-    中纪委此番回马枪抵达辽宁后第三天即对外宣布，沈阳市副市长杨亚洲正接受组织审查。53岁的杨亚洲毕业于大连工学院水利系，长期在沈阳为政，是陈政高主政沈阳时一手提拔起来的。据知情人士的消息指，陈政高的几个金刚之一，原辽宁鞍山市委书记谷春利在被罢免人大代表后，也已于近日被批捕。习近平以前曾告诫的“辽宁干部要讲纪律，讲规矩、诚信”，实则指的就是陈政高的这个“辽宁帮”。<br>
-    <br>
-    据悉，中央巡视组将在辽宁展开工作2个月。主要受理反映辽宁省级领导班子及其成员、下一级党组织领导班子主要负责人和重要岗位领导干部问题的来信来电来访内容，重点关注违反政治纪律、组织纪律、廉洁纪律、群众纪律、工作纪律、生活纪律等方面的举报和反映。辽宁官场高官、尤其是陈政高“辽宁帮”的干部成员，几已处于朝不保夕的状态中。<br>
-    <br>
-    （博闻社原文报道链接：<a href="http://bowenpress.com/news/bowen_71695.html" style="color:red;">《中纪委对辽宁“杀回马枪” 矛头直指前省长陈政高》</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603030103" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201603020959441.jpg http://upload.bx.tl/news/temp14/201603020959442.jpg http://upload.bx.tl/news/temp14/201603020959443.jpg--> 170103       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
