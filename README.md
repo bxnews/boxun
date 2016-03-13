@@ -85,7 +85,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 27分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603120124.shtml" target="boxun-mirror">省长吹牛被打脸黑龙江数千煤矿工人游行示威请看博讯热点：突发事件</a>
 </h2>
