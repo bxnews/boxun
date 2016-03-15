@@ -64,7 +64,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603150548.shtml" target="boxun-mirror">无界新闻网转刊“倒习公开信”内幕或永远成疑</a>
 </h2>
@@ -113,7 +113,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603142104.shtml" target="boxun-mirror">中共“电视认罪”出台内幕蒋建国提议中宣部主导请看博讯热点：白色恐怖</a>
 </h2>
