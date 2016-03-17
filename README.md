@@ -19,6 +19,22 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603172329.shtml" target="boxun-mirror">独家报道：习近平夫人彭丽媛今年2月险遭暗杀请看博讯热点：习近平观察</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家报道：习近平夫人彭丽媛今年2月险遭暗杀<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月17日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603172329" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2016/03/201603172329china1.jpg" alt="独家报道：习近平夫人彭丽媛今年2月险遭暗杀"><p>（消息指习近平夫人彭丽媛险遭暗杀。）<br>
+    <br>
+    【博闻社独家】北京消息人士告诉博闻社，中共总书记习近平的妻子彭丽媛，上个月险遭人暗害，欲加害她者是一个武警，已被当局拿下。目前未知其目的和动机，以及是个人行为还是有人策划。<br>
+    <br>
+    消息人士透露，事发今年2月春节过后不久。中央警</p>
+</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603160119.shtml" target="boxun-mirror">北京施压美国本月答应遣返令完成被指虚张声势请看博讯热点：令计划</a>
 </h2>
 <p><tr>
@@ -715,16 +731,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603090022b.shtml" target="boxun-mirror">独家：习近平亲自叫停针对任志强的”大批判运动“</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：习近平亲自叫停针对任志强的”大批判运动“<br><font color="#000fC0"><small>(博讯北京时间2016年3月09日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603090022" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       <div align="center"><img src="http://upload.bx.tl/news/temp14/201603080917381.png" width="600"></div>（两会上王岐山追尾扯习近平衫尾似"有事商量"。资料图片）<br>    <br>    【博闻社独家】自称与中纪委书记王岐山有「师生之谊」的内地公知任志强「任大炮」因公开质疑习近平的「媒体姓党」说，遭党媒集体声讨面临党纪处分之时，有关声讨行动在全国两会前突然停止。博闻社从北京消息人士获悉，是习近平亲自叫停了文革式的对任志强的「大批判运动」，与中纪委王岐山无关。消息指，北京市西城区委也洞悉风向，主动停下了对党员任志强的党纪处分讨论。<br>    <br>    「叫停对任志强的处理决定是由习近平批示，跟中纪委网站转载《中国纪检监察报》的文章无关，更扯不上是王岐山下令还击甚么部门。中办发的文，只发给中宣部和北京市委。」北京消息人士对博闻社透露，中办的办文件通知理由很简单，就是「为免干扰全国两会举行」。<br>    <br>    「不过，有传说习近平对这个事很生气，认为有关部门在两会前夕掀起这场『任志强的大批判』是『愚蠢透顶』的行为。」消息人士引习近平身边的人指，中共意识形态主管部门沿用几十年前的模式来处理任志强事件，那不是维护习近平，而是给老大「</td></tr></p>
 <p>
 	<small> ============== 9天前</small>
 </p>
