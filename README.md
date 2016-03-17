@@ -362,7 +362,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603131411.shtml" target="boxun-mirror">中宣部年内“大换班”刘奇葆下黄坤明接棒</a>
 </h2>
