@@ -33,7 +33,7 @@
     消息人士透露，事发今年2月春节过后不久。中央警</p>
 </td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603160119.shtml" target="boxun-mirror">北京施压美国本月答应遣返令完成被指虚张声势请看博讯热点：令计划</a>
 </h2>
@@ -85,7 +85,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603162304.shtml" target="boxun-mirror">发习近平是“中国最后领导人”新华社起轩然大波请看博讯热点：习近平观察</a>
 </h2>
@@ -116,7 +116,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603150551.shtml" target="boxun-mirror">中共倒习势力放风推王岐山上位欲挑起「习、王斗」请看博讯热点：习近平观察</a>
 </h2>
@@ -163,7 +163,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603150548.shtml" target="boxun-mirror">无界新闻网转刊“倒习公开信”内幕或永远成疑</a>
 </h2>
@@ -212,7 +212,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603142104.shtml" target="boxun-mirror">中共“电视认罪”出台内幕蒋建国提议中宣部主导请看博讯热点：白色恐怖</a>
 </h2>
@@ -268,7 +268,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603140234.shtml" target="boxun-mirror">中宣超级黑？新华社报道“中国最后领导人习近平”请看博讯热点：习近平观察</a>
 </h2>
@@ -289,7 +289,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603142211.shtml" target="boxun-mirror">习近平核心崇拜玩不下去京城戏称“十日文革”</a>
 </h2>
@@ -299,7 +299,7 @@
 </center>
             <!--bodystart-->      <img src="http://www.boxun.com/news/images/2016/03/201603142211china1.jpg" alt="习近平核心崇拜玩不下去 京城戏称“十日文革”"><br>（3月14日，习近平在政协会议闭幕式上。REUTERS）<br>    <br>    据香港明镜和邮报报道，北京一位接近中共高层的人士透露，中共总书记习近平对中共宣传系统肉麻吹捧他的做法，对“姓党”的媒体刻意塑造他的形象很不满意，明确要求：不要叫我“习大大”。<br>    <br>    报道说，习近平自接任中共中央总书记以来，数年间，对习近平的吹捧逐年升温。中共官方媒体和官方掌控的网站，全力塑造一个向毛泽东 看齐的习近平形象，大量运用民间名义、网络手段和现代社交媒体、视频等方式，肆无忌惮、花样翻新地神化习近平。习近平的形象与他上任之初发表“接地气”演讲留下的形象截然相反，引起外界错愕和忧虑。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/03/201603142211china2.jpg" alt="习近平核心崇拜玩不下去 京城戏称“十日文革”"><br>（习近平2月初在江西神山村做节日慰问。Getty Images）<br>    <br>    纽约时报曾报道在习近平春节慰问农村时，在国家电视台上播出的乡村场景中，习近平被刻画成一个父亲式的领袖，循着毛泽东的脚步，来到这个孕育了质朴美德的地方，当初正是这种美德让这片中国东南部山区成为中国共产党农村革命的发祥地。<br>    <br>    <b>但影像画面和实际的现实是有冲突的。过不几天，这个有250人的贫困山村就变得空空荡荡。</b><br>    <br>    中共政情评论员孔捷生在苹果日报撰文指出，最近政坛及传媒掀起的一股习近平个人崇拜潮，由于违反党禁止个人崇拜的决定，并引起党内其他同僚的恐慌和</td></tr></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603140802.shtml" target="boxun-mirror">中宣部副部长蒋建国仕途危彭丽媛被「高级黑」请看博讯热点：习近平观察</a>
 </h2>
@@ -310,7 +310,7 @@
 </center>
                 <!--bodystart-->      【博闻社独家】北京接近中南海的消息人士对本社透露，在习近平此波「清洗中宣部」行动中，除部长刘奇葆要下外，副部长蒋建国亦危在旦夕。这不仅因他是令计划的余党，还因他主管央视无作为，猴年春节晚会还酿出个「彭丽媛妹妹当监制」假新闻，让习近平莫名其妙「</td></tr></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603130327.shtml" target="boxun-mirror">黑龙江煤矿工人示威升级数万人上街促共产党还钱请看博讯热点：突发事件</a>
 </h2>
@@ -388,7 +388,7 @@
 </center>
                 <!--bodystart-->      【博闻社独家】北京接近中南海的消息人士告诉博闻社，中宣部长刘奇葆已确定年内下马，由习近平心腹爱将黄坤明接任。中宣系统整个架构要调整。这是习近平要重掌中共意识形态、为明年十九大人事安排</td></tr></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603120124.shtml" target="boxun-mirror">省长吹牛被打脸黑龙江数千煤矿工人游行示威请看博讯热点：突发事件</a>
 </h2>
@@ -451,7 +451,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603121359.shtml" target="boxun-mirror">胡锡进周方等"阵前倒戈"：顺应民意抑或另有图谋？</a>
 </h2>
@@ -500,7 +500,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603111917.shtml" target="boxun-mirror">联合国12成员国谴责中国镇压异议人士中国反驳请看博讯热点：白色恐怖</a>
 </h2>
@@ -548,7 +548,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603111856.shtml" target="boxun-mirror">达赖喇嘛赴日内瓦会议中国匆忙催促各国抵制请看博讯热点：西藏问题</a>
 </h2>
@@ -588,7 +588,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603112313.shtml" target="boxun-mirror">新华社记者周方实名公开信控告中共网络主管部门</a>
 </h2>
@@ -603,7 +603,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603090012.shtml" target="boxun-mirror">讽刺与怜悯：叙利亚难民潮中的世界与中国</a>
 </h2>
@@ -648,7 +648,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603092317.shtml" target="boxun-mirror">张春贤“反习”第一枪？无界新闻转“倒习公开信”被查请看博讯热点：深度报道</a>
 </h2>
@@ -677,7 +677,7 @@
     博闻社和海外媒体早已披露，张春贤是周永康主掌中央政法委时，获周提名于乌鲁木齐七.五事件后，从湖南省委书记任上“临危受命”调任新疆书记的，而张春贤与周永康搭上关系，则是张的妻子、中央电视台《新闻联播》前著名主持人李修平通过周永康的填房</p>
 </td></tr></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603091753.shtml" target="boxun-mirror">加速军事部署中国向实际控制南海更进一步请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -732,7 +732,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
