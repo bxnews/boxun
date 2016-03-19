@@ -34,7 +34,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603190744.shtml" target="boxun-mirror">两会习李矛盾公开化李克强再萌退意</a>
 </h2>
@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4小时前</small>
+	<small> ============== 5小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603172329.shtml" target="boxun-mirror">独家报道：习近平夫人彭丽媛今年2月险遭暗杀请看博讯热点：习近平观察</a>
 </h2>
