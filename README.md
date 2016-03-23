@@ -19,6 +19,16 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603231103.shtml" target="boxun-mirror">董文标高调现身博鳌论坛溜须拍“马”玩变脸惹质疑</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>董文标高调现身博鳌论坛  溜须拍“马”玩变脸惹质疑<br><font color="#000fC0">(<small>博讯北京时间2016年3月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603231103" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社海南博</td></tr></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603230203.shtml" target="boxun-mirror">控告郑州庭长不履行责任致于世文律师无限期关押请看博讯热点：暴力执法</a>
 </h2>
 <p><tr>
@@ -65,6 +75,62 @@
     控告人：马连顺，河南予瑞律师事务所律师<br>
     2016年3月21日
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603230203" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1600203       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603231100.shtml" target="boxun-mirror">胡春华心腹被调离架空「中共第六代接班人」仕途再现阴影请看博讯热点：十九大布局</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>胡春华心腹被调离架空 「中共第六代接班人」仕途再现阴影<br><font color="blue" size="2">请看博讯热点：<a href="/hot/19da.shtml">十九大布局
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603231100" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+     【博闻社独家】中共政治局委员兼广东省委书记胡春华的心腹、原任广东省委办公厅主任刘可为，近日公开现身宁夏回族自治区，以自治区政府领导身份现身媒体，具体职务未知，但显然未能进入宁夏党委常委。刘长期服侍胡春华，跟胡南下广东任大内总管。只差半步未能升入广东省委常委，此番异地为官，名升实坐冷板凳。此人事变动引外界对胡春华仕途的关注。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       据宁夏卫视3月19日播出《宁夏新闻联播》画面显示，原任广东省委办公厅主任刘可为，近日以宁夏回族自治区政府领导身份，出席自治区政府常务会议，并在宁夏自治区副主席马力右侧就座。但诡异的是，官方未公布刘的新职。宁夏官网所列自治区党委和政府领导，并无刘可为的名字。<br>
+    <br>
+    刘可为是今年3月初卸下中共广东省委办公厅主任，北上宁夏回族自治区履新的，时传要出任宁夏回族自治区政府副主席一职。他2013年1月从河北衡水市委书记位上南下出任广东省委副秘书长，显然是获胡春华钦点。当时外界一直认为，按中共官场规矩，刘可为将会很快出任省委秘书长，由此官升副省级。<br>
+    <br>
+    但两年未见动静。此番调动显示，刘不但不能在胡春华手下升官，还要离开胡赴宁夏异地做官。<br>
+    <br>
+    刘可为被视为胡春华的左膀右臂，长期在团中央工作，曾任学校部处长、宣传部部长等职务。在胡春华担任团中央第一书记时，刘可为就是其大秘。后来胡春华调任河北省长时，刘可为出任省长助理、省政府研究室主任，之后空降河北衡水市委书记。<br>
+    <br>
+    2012年底中共十八大后，胡春华以政治局委员身份兼任广东省委书记，2013年1 月便将刘可为召到广东，出任省委副秘书长一职，兼任办公厅主任。胡春华与刘可为之间有着长达20年的主仆关系。刘不仅充当胡的文胆，也是大内总管，是胡身边须臾不可离的重要人物。<br>
+    <br>
+    自年初广东省委秘书长林木声转任省政协副主席后，秘书长一职由谁接替颇受关注。外界以为刘可为将顺理成章，升任副部级的省委常委兼秘书长。但本月初中组部公布相关人事安排时，邹铭接任广东省委秘书长，刘可为北调宁夏，令外界大感意外。<br>
+    <br>
+    接任广东省委秘书长的邹铭是民政部官员，与胡春华毫无交集，由他担任省委秘书长，对胡春华绝非刘可为可以相提并论。由此可见，这项人事安排并非由胡春华促成，而是由北京主导。胡春华连身边人的安排都无法如愿，这个政治信号实在耐人寻味。<br>
+    <br>
+    刘可为被发配到大西北宁夏，而且没有进入常委序列，其实是明升暗降，不仅被打入政治冷宫，且与老上级胡春华天各一方，无论对刘本人还是胡春华，都绝非好事。<br>
+    <br>
+    博闻社曾披露，自从令计划倒台后，中共官场所谓的共青团派全面崩盘，被习近平抛之如撇履，与令关系亲密的团派中人被定点清除，在这样的大背景下，曾被视为中共二十大接班人胡春华，能否如愿接班成疑。<br>
+    <br>
+    本社曾指出，<br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_76942.html">博闻社报道全文</a><br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603231100" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3291100       
 <hr>
 <table width="620"><tr><td>
 <b></p>
@@ -715,85 +781,6 @@
             <!--bodystart-->      <img src="http://www.boxun.com/news/images/2016/03/201603142211china1.jpg" alt="习近平核心崇拜玩不下去 京城戏称“十日文革”"><br>（3月14日，习近平在政协会议闭幕式上。REUTERS）<br>    <br>    据香港明镜和邮报报道，北京一位接近中共高层的人士透露，中共总书记习近平对中共宣传系统肉麻吹捧他的做法，对“姓党”的媒体刻意塑造他的形象很不满意，明确要求：不要叫我“习大大”。<br>    <br>    报道说，习近平自接任中共中央总书记以来，数年间，对习近平的吹捧逐年升温。中共官方媒体和官方掌控的网站，全力塑造一个向毛泽东 看齐的习近平形象，大量运用民间名义、网络手段和现代社交媒体、视频等方式，肆无忌惮、花样翻新地神化习近平。习近平的形象与他上任之初发表“接地气”演讲留下的形象截然相反，引起外界错愕和忧虑。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/03/201603142211china2.jpg" alt="习近平核心崇拜玩不下去 京城戏称“十日文革”"><br>（习近平2月初在江西神山村做节日慰问。Getty Images）<br>    <br>    纽约时报曾报道在习近平春节慰问农村时，在国家电视台上播出的乡村场景中，习近平被刻画成一个父亲式的领袖，循着毛泽东的脚步，来到这个孕育了质朴美德的地方，当初正是这种美德让这片中国东南部山区成为中国共产党农村革命的发祥地。<br>    <br>    <b>但影像画面和实际的现实是有冲突的。过不几天，这个有250人的贫困山村就变得空空荡荡。</b><br>    <br>    中共政情评论员孔捷生在苹果日报撰文指出，最近政坛及传媒掀起的一股习近平个人崇拜潮，由于违反党禁止个人崇拜的决定，并引起党内其他同僚的恐慌和</td></tr></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603140802.shtml" target="boxun-mirror">中宣部副部长蒋建国仕途危彭丽媛被「高级黑」请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中宣部副部长蒋建国仕途危 彭丽媛被「高级黑」<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603140802" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】北京接近中南海的消息人士对本社透露，在习近平此波「清洗中宣部」行动中，除部长刘奇葆要下外，副部长蒋建国亦危在旦夕。这不仅因他是令计划的余党，还因他主管央视无作为，猴年春节晚会还酿出个「彭丽媛妹妹当监制」假新闻，让习近平莫名其妙「</td></tr></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603130327.shtml" target="boxun-mirror">黑龙江煤矿工人示威升级数万人上街促共产党还钱请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>黑龙江煤矿工人示威升级数万人上街促共产党还钱<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603130327" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      黑龙江省双鸭山市双鸭山矿业集团煤矿工人的示威行动持续升级，数万工人及家属周六（3月12日）走上街头，高呼“共产党还我们钱”、“打倒贪腐犯”等口号，要求政府补齐拖欠的工资，数千警察到场镇压维权工人，大量工人被殴打和抓捕。<br>
-    <br>
-     注册员工6万余人的双鸭山矿业集团，从2014开始拖欠工人工资，至今已累计拖欠工人工资近半年，如今，工人每月只能领到800元左右的生活费。3月6日，黑龙江省省长陆昊在两会上称“不欠工人一分钱”，引发工人不满，于本月9日开始陆续发起示威，在11日的示威中，有4名工人遭到警察抓捕。<br>
-    <br>
-    12日上午，工人的维权行动升级，双鸭山矿业集团旗下的东荣小区、东荣一矿、东荣二矿等八大矿区的数万工人及其家属走上街头，在全城多处游行、集会，双鸭山矿业集团的总部被工人团团包围，铁路线亦被工人阻断。<br>
-    <br>
-    网友“-花边”发帖说：双鸭山通往北京的火车已被百姓无奈堵截两天没有发出，国家可曾了解事态严重性，现在除了快手，各大网站的视频消息均被删除。<br>
-    <br>
-    当地政府从周边调集数千警察到市内，四处镇压维权工人，大量工人被殴打抓捕。<br>
-    <br>
-    工人“用户5668464321”发帖说：黑龙江省双鸭山市，看到今天有矿工兄弟被抓了，我们要工资是合理合法的，拖欠工资无人理会，养不起老人，供不起孩子上学，政府发生更大的冲突，他们抓工人的理由是闹事，要自己辛苦的血汗钱有错吗井下工人用生命挣来的钱，不给开，还要抓工人？ <br>
-    <br>
-    大量现场图片以及视频显示，大批的工人聚集在双鸭山市区多处，手持“共产党还我们钱”、“我们要活着，我们要吃饭”、“陆昊睁眼说瞎话”等横幅游行、集会，高喊“打倒贪污犯”等口号，大批警察四处拦截维权工人，双方发生多次冲突。<br>
-    <br>
-    截止当天下午，示威还在持续中。同时，工人以及网友上传到网络的信息遭到大量删除。<br>
-    <br>
-    （网络图片）<br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china1.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"><p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china2.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china3.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china4.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china5.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china6.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china7.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china8.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china9.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china10.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china11.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china12.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china13.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china14.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china15.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china16.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603130327china17.jpg" alt=" 黑龙江煤矿工人示威升级数万人上街促共产党还钱"></p>
-<p><br>
-    <br>
-        
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603130327" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201603121124541.jpg http://upload.bx.tl/news/temp14/201603121124542.jpg http://upload.bx.tl/news/temp14/201603121124543.jpg http://upload.bx.tl/news/temp14/201603121124544.jpg http://upload.bx.tl/news/temp14/201603121125491.jpg http://upload.bx.tl/news/temp14/201603121125492.jpg http://upload.bx.tl/news/temp14/201603121125493.jpg http://upload.bx.tl/news/temp14/201603121125494.jpg http://upload.bx.tl/news/temp14/201603121125321.jpg http://upload.bx.tl/news/temp14/201603121125322.jpg http://upload.bx.tl/news/temp14/201603121125323.jpg http://upload.bx.tl/news/temp14/201603121125324.jpg http://upload.bx.tl/news/temp14/201603121125521.jpg http://upload.bx.tl/news/temp14/201603121125522.jpg http://upload.bx.tl/news/temp14/201603121125523.jpg http://upload.bx.tl/news/temp14/201603121125524.jpg http://upload.bx.tl/news/temp14/201603121125571.jpg--> 350327       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
