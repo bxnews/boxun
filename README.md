@@ -19,6 +19,58 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/03/201603230203.shtml" target="boxun-mirror">控告郑州庭长不履行责任致于世文律师无限期关押请看博讯热点：暴力执法</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>控告郑州庭长不履行责任 致于世文律师无限期关押<br><font color="blue" size="2">请看博讯热点：<a href="/hot/abuse.shtml">暴力执法
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603230203" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart--> <br><b> 控 告 书</b><br>
+    <br>
+     控告人：马连顺，河南予瑞律师事务所律师 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    被控告人：任凯，郑州市管城回族区法院刑庭庭长，于世文案件审判长;<br>
+    被控告人：陈志强，郑州市管城回族区法院刑庭副庭长，于世文案件现办案人;<br>
+    被控告人：周勇增，郑州市管城回族区法院刑庭副庭长，于世文案件前办案人：<br>
+    被控告人：刘庆录，郑州市管城回族区法院刑庭陪审员。<br><br><b>控告要求：</b><br>
+    <br>
+    要求追究以上各被控告人的刑事责任。<br><br><b>事实和理由：</b><br>
+    <br>
+    2014年农历初三，于世文根据民俗传统和自己良心驱使，在黄河大坝内，祭奠胡耀邦、赵紫阳，为追念死者并安抚其在天之灵而举行仪式祭奠行为，法律没有规定可以祭奠谁、不可以祭奠谁，况且胡耀邦、赵紫阳都是党和国家的前重要领导人，为中国的改革开放事业做出了巨大贡献，赵紫阳死后在八宝山火化。作为临县老乡的于世文，就不能祭奠吗？就是寻衅滋事犯罪行为？<br>
+    <br>
+    再说被传播到网上的事，既不是于世文所为，也不是传播谣言，不管是依照刑法或者有关的两个司法解释，均不构成犯罪。<br>
+    <br>
+    于世文于2014年5月26日被抓，至今已快两年，案件于2015年2月11日被非法起诉到管城法院，已经13个月零10天， 2016年3月18日通知控告人第三次经最高院批准延期。而对案件不审不判不问，却三次跑着到最高人民法院办理违法的延期手续。各被控告人不独立行使审判权，不履行法官法要求应当履行的严格遵守宪法和法律，审判案件必须以事实为根据，以法律为准绳，秉公办案，不得徇私枉法的规定，拒不行使审判职权，明知于先生无罪而使其遭受近二年的刑事追究，拒绝及时履行司法监督公诉权和侦查权的法定职责，依据刑法第399条之规定已经构成犯罪。要求追究被控告人以及他们背后的那些促使他们不能依法履行审判职责的人的刑事责任。<br>
+    <br>
+    此致 河南省人民检察院<br>
+    <br>
+    控告人：马连顺，河南予瑞律师事务所律师<br>
+    2016年3月21日
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603230203" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1600203       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603220045.shtml" target="boxun-mirror">中国持续压制网络空间人民日报再谈新媒体导向请看博讯热点：网络封锁和压制</a>
 </h2>
 <p><tr>
@@ -740,16 +792,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603131411.shtml" target="boxun-mirror">中宣部年内“大换班”刘奇葆下黄坤明接棒</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中宣部年内“大换班” 刘奇葆下黄坤明接棒<br><font color="#000fC0">(<small>博讯北京时间2016年3月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603131411" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】北京接近中南海的消息人士告诉博闻社，中宣部长刘奇葆已确定年内下马，由习近平心腹爱将黄坤明接任。中宣系统整个架构要调整。这是习近平要重掌中共意识形态、为明年十九大人事安排</td></tr></p>
 <p>
 	<small> ============== 10天前</small>
 </p>
