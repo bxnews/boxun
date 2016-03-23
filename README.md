@@ -27,7 +27,7 @@
 </center>
                 <!--bodystart-->      【博闻社海南博</td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603230203.shtml" target="boxun-mirror">控告郑州庭长不履行责任致于世文律师无限期关押请看博讯热点：暴力执法</a>
 </h2>
@@ -79,7 +79,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603231100.shtml" target="boxun-mirror">胡春华心腹被调离架空「中共第六代接班人」仕途再现阴影请看博讯热点：十九大布局</a>
 </h2>
@@ -135,7 +135,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603220045.shtml" target="boxun-mirror">中国持续压制网络空间人民日报再谈新媒体导向请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -183,7 +183,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603222211.shtml" target="boxun-mirror">问题疫苗：最高检挂牌督办九家企业被通报遭调查</a>
 </h2>
@@ -198,7 +198,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603212158.shtml" target="boxun-mirror">山东省公布波及24省问题疫苗安全问题非始于今请看博讯热点：医药、医疗事故</a>
 </h2>
@@ -245,7 +245,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/03/201603210150.shtml" target="boxun-mirror">任志强大器晚成：党媒姓党举国哗然/冯崇义</a>
 </h2>
@@ -285,7 +285,7 @@
     本来，支撑现代正常国家与社会的自由主义价值，以及现代社会成功运作了几百年的市场经济、宪政民主政治、文化多元等制度安排，在现代世界早就是常识。但是，党化教育的长期熏陶、洗脑、欺骗和遮蔽，对国人心智造成严重损害，使得现代社会常识以至于基本思维逻辑的确立也格外艰难。任志强克服障碍而向现代价值和知识敞开心灵，主要不是通过书斋中的苦思冥索，而是通过实战商海、受尽无法化解现实生活与党国意识形态相互脱节的折磨，才逐步领悟现代文明的真谛。当然，认真读书仍然是任志强能够修成正果、实现思想飞跃的重要一环。任志强具有可贵的自学和独立思考能力，网络大V的地位使他有机会与网民广泛相互启蒙和砥砺，并促使他为了追寻答案而博览群书，从而使他的现代信念、思想和知识不断突进、深化与升华。他与网友的交流显示，2014年退休之后他有机会系统研读了哈耶克、波普、米塞斯等人的大部头自由主义经典，终于彻底厘清现代自由开放的社会中权利与权力、个体与群体、私人与公共、法制与法治、公民与国家之间应有的正确关系，重构个人的信仰与知识谱系而脱胎换骨。<br>
     任志强在2015年有两篇博文特别引人注目。一篇与习近平提倡共产主义理念的讲话针锋相对，批评党国“培养共产主义接班人”的欺骗性，指出“我们不仅要有远大的理想，更要活在现实之中。先脚踏实地的解决好眼前面临的制度建设问题，先要让中国人对这个能让人民</p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603201928.shtml" target="boxun-mirror">贾葭被失踪引国际关注最新消息指无界亦有人失踪请看博讯热点：白色恐怖</a>
 </h2>
@@ -309,7 +309,7 @@
     今年3月4日北京举行全国两会之际，“无界新闻”刊登了这封要求习近平辞职的公</p>
 </td></tr></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603202332.shtml" target="boxun-mirror">观察：“中国发展高层论坛”为何闭门自演拒绝外媒请看博讯热点：深度报道</a>
 </h2>
@@ -344,7 +344,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603191652.shtml" target="boxun-mirror">多力坤艾沙荣获“杜鲁门-里根自由勋章”/伊利夏提请看博讯热点：新疆问题</a>
 </h2>
@@ -446,7 +446,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603190747.shtml" target="boxun-mirror">中国发展论坛在京举行习近平派张高丽撑台</a>
 </h2>
@@ -463,7 +463,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603190744.shtml" target="boxun-mirror">两会习李矛盾公开化李克强再萌退意</a>
 </h2>
@@ -498,7 +498,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603172329.shtml" target="boxun-mirror">独家报道：习近平夫人彭丽媛今年2月险遭暗杀请看博讯热点：习近平观察</a>
 </h2>
@@ -514,7 +514,7 @@
     消息人士透露，事发今年2月春节过后不久。中央警</p>
 </td></tr></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603160119.shtml" target="boxun-mirror">北京施压美国本月答应遣返令完成被指虚张声势请看博讯热点：令计划</a>
 </h2>
@@ -566,7 +566,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603162304.shtml" target="boxun-mirror">发习近平是“中国最后领导人”新华社起轩然大波请看博讯热点：习近平观察</a>
 </h2>
@@ -597,7 +597,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603150551.shtml" target="boxun-mirror">中共倒习势力放风推王岐山上位欲挑起「习、王斗」请看博讯热点：习近平观察</a>
 </h2>
@@ -644,7 +644,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603150548.shtml" target="boxun-mirror">无界新闻网转刊“倒习公开信”内幕或永远成疑</a>
 </h2>
@@ -693,7 +693,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603142104.shtml" target="boxun-mirror">中共“电视认罪”出台内幕蒋建国提议中宣部主导请看博讯热点：白色恐怖</a>
 </h2>
@@ -749,7 +749,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603140234.shtml" target="boxun-mirror">中宣超级黑？新华社报道“中国最后领导人习近平”请看博讯热点：习近平观察</a>
 </h2>
@@ -770,7 +770,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603142211.shtml" target="boxun-mirror">习近平核心崇拜玩不下去京城戏称“十日文革”</a>
 </h2>
@@ -780,7 +780,7 @@
 </center>
             <!--bodystart-->      <img src="http://www.boxun.com/news/images/2016/03/201603142211china1.jpg" alt="习近平核心崇拜玩不下去 京城戏称“十日文革”"><br>（3月14日，习近平在政协会议闭幕式上。REUTERS）<br>    <br>    据香港明镜和邮报报道，北京一位接近中共高层的人士透露，中共总书记习近平对中共宣传系统肉麻吹捧他的做法，对“姓党”的媒体刻意塑造他的形象很不满意，明确要求：不要叫我“习大大”。<br>    <br>    报道说，习近平自接任中共中央总书记以来，数年间，对习近平的吹捧逐年升温。中共官方媒体和官方掌控的网站，全力塑造一个向毛泽东 看齐的习近平形象，大量运用民间名义、网络手段和现代社交媒体、视频等方式，肆无忌惮、花样翻新地神化习近平。习近平的形象与他上任之初发表“接地气”演讲留下的形象截然相反，引起外界错愕和忧虑。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/03/201603142211china2.jpg" alt="习近平核心崇拜玩不下去 京城戏称“十日文革”"><br>（习近平2月初在江西神山村做节日慰问。Getty Images）<br>    <br>    纽约时报曾报道在习近平春节慰问农村时，在国家电视台上播出的乡村场景中，习近平被刻画成一个父亲式的领袖，循着毛泽东的脚步，来到这个孕育了质朴美德的地方，当初正是这种美德让这片中国东南部山区成为中国共产党农村革命的发祥地。<br>    <br>    <b>但影像画面和实际的现实是有冲突的。过不几天，这个有250人的贫困山村就变得空空荡荡。</b><br>    <br>    中共政情评论员孔捷生在苹果日报撰文指出，最近政坛及传媒掀起的一股习近平个人崇拜潮，由于违反党禁止个人崇拜的决定，并引起党内其他同僚的恐慌和</td></tr></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
