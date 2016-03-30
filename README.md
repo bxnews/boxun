@@ -54,7 +54,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603290720.shtml" target="boxun-mirror">“媒体姓党”惹反抗南都余少镭离职称“无法跟着你们姓”</a>
 </h2>
@@ -69,7 +69,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603290731.shtml" target="boxun-mirror">中南海先遣队抵华盛顿为习近平出席核安峰会打前站</a>
 </h2>
@@ -79,7 +79,7 @@
 </center>
             <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/03/201603290731china1.jpg" alt="中南海先遣队抵华盛顿 为习近平出席核安峰会打前站"><br>（中方严防去年习访美遭国内访民越洋拦截事件重演。）<br>    <br>  【博闻社特约记美国华盛顿报道】中国国家主席习近平今天已抵达捷克首都布拉格，开展其对这个中东欧国家国事访问，也是中捷建交67年来，中国最高领导人首次对捷克的国事访问。与此同时，一支由200人组成的先遣队亦已抵达美国首都华盛顿，为习近平访捷之后转赴华盛顿出席第四届世界核安全峰会铺路，该先遣队由外交、安全和官方媒体人员组成。<br>    <br>  习近平将于3月31日至4月1日出席在华盛顿举行的第四届核安全峰会。博闻社特约记者在华盛顿获悉，中方先遣部队主要包括负责安全的特勤、外交和媒体相关部门；人数多达200人，共分3批先后从北京抵达华盛顿。<br>    <br>  由于去年9月习近平访美时遇到中国访民的拦车喊冤，加上这次中共当局调查无界新闻网「倒习公开信」，抓捕了一些流亡海外的异见人士国内家人，当局防范他们利用这次习访美「肇事」对习不利，故这次先遣队中的安全特勤部门，专门有一个分队，负责这项工作。<br>    <br>  博闻社特约记者</td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603280320.shtml" target="boxun-mirror">博鳌观察：博鳌论坛贵如油，如此面子谁埋单？</a>
 </h2>
@@ -116,7 +116,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603280327.shtml" target="boxun-mirror">中共统战部前副部长朱维群涉卖「活佛」指标敛财被查</a>
 </h2>
@@ -126,7 +126,7 @@
 </center>
             <!--bodystart-->      <div align="center"><img src="http://upload.bx.tl/news/temp14/201603270228551.png" width="600"></div>（朱维群到各地寺庙视察和尚们都要奉若神明。大公报）<br>    <br>    【博闻社独家】北京消息人士告䜣博闻社，中共中央统战部前副部长朱维群，因利用「活佛」指标</td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603250054.shtml" target="boxun-mirror">追踪疫苗案：公安部副局长称大部分问题疫苗都已使用</a>
 </h2>
@@ -142,7 +142,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603252303.shtml" target="boxun-mirror">知名媒体人贾葭已获释签售活动将推迟请看博讯热点：白色恐怖</a>
 </h2>
@@ -179,7 +179,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603251139.shtml" target="boxun-mirror">紫禁城来鸿：习近平为“核”访美到底能否带回“核弹”</a>
 </h2>
@@ -220,7 +220,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603232059.shtml" target="boxun-mirror">刊“倒习公开信”惹祸无界网被关停昨日开“清算大会”</a>
 </h2>
@@ -254,7 +254,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603231103.shtml" target="boxun-mirror">董文标高调现身博鳌论坛溜须拍“马”玩变脸惹质疑</a>
 </h2>
@@ -264,7 +264,7 @@
 </center>
                 <!--bodystart-->      【博闻社海南博</td></tr></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603230203.shtml" target="boxun-mirror">控告郑州庭长不履行责任致于世文律师无限期关押请看博讯热点：暴力执法</a>
 </h2>
@@ -316,7 +316,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603231100.shtml" target="boxun-mirror">胡春华心腹被调离架空「中共第六代接班人」仕途再现阴影请看博讯热点：十九大布局</a>
 </h2>
@@ -372,7 +372,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603220045.shtml" target="boxun-mirror">中国持续压制网络空间人民日报再谈新媒体导向请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -420,7 +420,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603222211.shtml" target="boxun-mirror">问题疫苗：最高检挂牌督办九家企业被通报遭调查</a>
 </h2>
@@ -435,7 +435,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603212158.shtml" target="boxun-mirror">山东省公布波及24省问题疫苗安全问题非始于今请看博讯热点：医药、医疗事故</a>
 </h2>
@@ -482,7 +482,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/03/201603210150.shtml" target="boxun-mirror">任志强大器晚成：党媒姓党举国哗然/冯崇义</a>
 </h2>
@@ -522,7 +522,7 @@
     本来，支撑现代正常国家与社会的自由主义价值，以及现代社会成功运作了几百年的市场经济、宪政民主政治、文化多元等制度安排，在现代世界早就是常识。但是，党化教育的长期熏陶、洗脑、欺骗和遮蔽，对国人心智造成严重损害，使得现代社会常识以至于基本思维逻辑的确立也格外艰难。任志强克服障碍而向现代价值和知识敞开心灵，主要不是通过书斋中的苦思冥索，而是通过实战商海、受尽无法化解现实生活与党国意识形态相互脱节的折磨，才逐步领悟现代文明的真谛。当然，认真读书仍然是任志强能够修成正果、实现思想飞跃的重要一环。任志强具有可贵的自学和独立思考能力，网络大V的地位使他有机会与网民广泛相互启蒙和砥砺，并促使他为了追寻答案而博览群书，从而使他的现代信念、思想和知识不断突进、深化与升华。他与网友的交流显示，2014年退休之后他有机会系统研读了哈耶克、波普、米塞斯等人的大部头自由主义经典，终于彻底厘清现代自由开放的社会中权利与权力、个体与群体、私人与公共、法制与法治、公民与国家之间应有的正确关系，重构个人的信仰与知识谱系而脱胎换骨。<br>
     任志强在2015年有两篇博文特别引人注目。一篇与习近平提倡共产主义理念的讲话针锋相对，批评党国“培养共产主义接班人”的欺骗性，指出“我们不仅要有远大的理想，更要活在现实之中。先脚踏实地的解决好眼前面临的制度建设问题，先要让中国人对这个能让人民</p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603201928.shtml" target="boxun-mirror">贾葭被失踪引国际关注最新消息指无界亦有人失踪请看博讯热点：白色恐怖</a>
 </h2>
@@ -546,7 +546,7 @@
     今年3月4日北京举行全国两会之际，“无界新闻”刊登了这封要求习近平辞职的公</p>
 </td></tr></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603202332.shtml" target="boxun-mirror">观察：“中国发展高层论坛”为何闭门自演拒绝外媒请看博讯热点：深度报道</a>
 </h2>
@@ -581,7 +581,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603191652.shtml" target="boxun-mirror">多力坤艾沙荣获“杜鲁门-里根自由勋章”/伊利夏提请看博讯热点：新疆问题</a>
 </h2>
@@ -683,7 +683,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11天前</small>
+	<small> ============== 12天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603190747.shtml" target="boxun-mirror">中国发展论坛在京举行习近平派张高丽撑台</a>
 </h2>
@@ -700,7 +700,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11天前</small>
+	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
