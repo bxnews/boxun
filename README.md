@@ -19,6 +19,43 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/yuanqing/2016/03/201603300141.shtml" target="boxun-mirror">现场报道：国会山庄一声枪响为习近平安保再敲警钟请看博讯热点：抗议示威</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>现场报道：国会山庄一声枪响 为习近平安保再敲警钟<br><font color="blue" size="2">请看博讯热点：<a href="/hot/protest.shtml">抗议示威
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=yuanqing201603300141" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603300141yuanqing1.jpg" alt="现场报道：国会山庄一声枪响 为习近平安保再敲警钟"><p>（图片来源：博闻社）<br>
+    <br>
+    【博闻社特约记美国华盛顿报道】华盛顿国会山庄突如其来的一声枪响，打破了仍然沉浸在复活节气氛中的美国首都华盛顿，也为即将抵达华府的中国国家主席习近平的安保问题，再敲警钟。<br>
+    <br>
+    博闻社特约记者独家获悉，枪击案发生后，先期抵达华盛顿的中国代表团便立即召开紧急会议，“兵分多路”向美方了解详情，美方也已向中方通报了相关情况。<br>
+    <br>
+    博闻社特约记者进一步了解到，来自田纳西州的男性嫌犯Larry Russel Dawson，今天在国会山庄游客中心进行安检时，触发金属探测门报警，便掏出手枪试图袭警，现场警察当即开枪将其制伏，并且严密监控下将其送院就治。<br>
+    <br>
+    事发后的第一时间，国会山庄临时设立了庇护中心，白宫和国会山庄均被立即封锁，周围布满荷枪实弹的巡警和特勤人员。<br>
+    <br>
+    博闻社特约记者还获悉，因为刚刚发生布鲁塞尔恐怖袭击，加上美国本土“独狼”行动时有发生，美国警方面对此次“意外”，不敢有任何疏忽大意。据警方对Larry的初步审讯，事件应为单独个案；至于其详细的持枪动机，以及是否还有其他行动或者同伙，警方仍在继续审理中。<br>
+    <br>
+    博闻社特约记者在此前的报道中，已经独家透露，习近平的安保问题成为此次访美的重中之重和头等大事；今天国会山庄的这声枪向，又让中国“先遣部队”全部人马的神经紧崩，迎接他们的将是又一个不眠之夜。<br>
+    <br>
+    美国首都华盛顿正值樱花盛开，国会山庄的这声枪响，为即将举行的第四届核安全峰会也蒙上了厚厚的阴影，甚至浓浓的雾霾。<br>
+    <br>
+    有关习近平访美和第四届核安全峰会的详情，敬请持续关注博闻社特约记者从华盛顿发回的独家现场特别报道！<br>
+    <br>
+    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_78540.html" style="color:red;">点此链接</a>）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=yuanqing201603300141" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)</p>
+<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
+<!-- http://upload.bx.tl/news/temp14/201603290044091.jpg--> 290141       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 3分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603290720.shtml" target="boxun-mirror">“媒体姓党”惹反抗南都余少镭离职称“无法跟着你们姓”</a>
 </h2>
 <p><tr>
@@ -659,41 +696,6 @@
     <br>
     博闻社报道全文：<a href="http://bowenpress.com/news/bowen_75820.html">点击这里</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603190747" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3620747       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603190744.shtml" target="boxun-mirror">两会习李矛盾公开化李克强再萌退意</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>两会习李矛盾公开化  李克强再萌退意<br><font color="#000fC0">(<small>博讯北京时间2016年3月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603190744" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】全国人大、全国政协两会终于落幕，但绝非中共惯说的是「团结的大会、胜利的大会」，恰恰相反，这场大会曝光了中共高层内部矛盾，总书记习近平与总理李克强的矛盾，更近乎公开化，李克强再萌退意。由新疆无界新闻网转发「倒习公开信」，诱发了中共高层权力大角逐，这场角逐不但没有随两会落幕结束，相反会日趋激烈。<br>
-    <br>
-     有参与中共两会的消息人士对博闻社透露，本届两会期间异象百出，尤其是张春贤手下的无界新闻网转发海外所谓的「忠诚共产党员的要求习近平辞去中共总书记、国家主席」的公开信，更搅动中南海的混水，中办指令有关部门成立专案调查，其调查的方向和目的已不是信的本身和如何被转贴到无界网，而是调查背后有没有政治阴谋和企图。调查的方向亦不仅是所谓网站工作人员、黑客之类，而是直指中共现任高层、各派系和利益集团代表等。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    博闻社全文报道：<a href="http://bowenpress.com/news/bowen_75364.html">点击这里</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603190744" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1570744       
 <hr>
 <table width="620"><tr><td>
 <b></p>
