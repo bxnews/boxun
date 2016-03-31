@@ -19,6 +19,73 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603311427.shtml" target="boxun-mirror">世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”请看博讯热点：新疆问题</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xinjiang.shtml">新疆问题
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月31日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201603311427" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart--> <br><b>这回习近平挨了一巴掌</b><br><br><b>――记世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”/伊利夏提</b><br>
+    <br>
+    今天中午12点钟，在华盛顿特区国会山的议院俱乐部会议厅，在共产主义受害者基金会主持下，在近一百多名各界知名人士参与下，举行了世维会执委会主席多力坤∙艾沙接受“杜鲁门-里根自由勋章”颁奖仪式。<br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/j8FLz8zeUzw" frameborder="0" allowfullscreen></iframe>	<br>
+    <br>
+    前来参加颁奖仪式的有共产主义受害者基金会秘书长、主席，美国民主基金会副主席及其他工作人员，公民力量负责人杨建立博士，知名民主斗士魏京生先生，前北大经济学教授、流亡学者夏业良，以及其他来自各地的人士。<br>
+    <br>
+    当然，大华盛顿特区周围居住的维吾尔人作为维吾尔独立运动支持者，多力坤∙艾沙支持者，也有很多人出席了颁奖仪式。<br>
+    <br>
+    颁奖仪式由共产主义受害者基金会秘书长致开幕词来开序幕，他在回顾共产主义受害者基金会成立过程，走过路之后，提到了突厥斯坦作为被占领土，还在继续承受共产主义中国之剥削、掠夺，突厥斯坦人民还在继续在共产主义铁蹄下呻吟。<br>
+    <br>
+    同时，秘书长在讲话中也提到了中共如何通过美国政府，向共产主义受害者基金会施加压力，企图影响他们颁奖；他说：“我们才不理他们呢，给谁颁奖，是我们的事，我们不需要任何人告诉我们该干什么！”<br>
+    <br>
+    然后是公民力量负责人杨建立博士讲话致词。杨建立博士在其讲话中回顾了海外维汉对话是如何在一开始的怀疑、不信任当中艰难开始，发展到如今的大家一起开展活动，相互支持、相互交流，他特别强调了多力坤∙艾沙在这种相互间信任建立过程中的作用。<br>
+    最后，杨建立博士以：“祝贺你我的兄弟！我为你骄傲！”结束其讲话。<br>
+    <br>
+    接着是共产主义受害者基金会主席致词，他在讲话中强调了共产主义思想对人类造成的危害；主席在其讲话中赞美自由斗士多力坤∙艾沙，他特别强调了多力坤艾沙自学生时代开始的反抗独裁斗争事业，及多力坤∙艾沙不屈不挠的斗争精神！<br>
+    <br>
+    然后是，受奖者、世维会执委会主席多力坤艾沙致词。多力坤∙艾沙首先感谢共产主义受害者基金会，感谢各位在场朋友们始终一贯对他、对维吾尔人斗争事业的支持；多力坤∙艾沙并特别强调：杜鲁门-里根自由勋章授予他，实际上是对维吾尔人反抗独裁专制斗争的肯定。<br>
+    <br>
+    多力坤∙艾沙在讲话中，也回顾了自己在反抗共产主义独裁统治过程中所走的过漫长、艰难的斗争之路，回顾了他几次的历险经历。<br>
+    <br>
+    多力坤∙艾沙讲话结束之后，在全体与会者热烈的掌声中共产主义受害者基金会主席将“杜鲁门-里根自由勋章”授予了多力坤∙艾沙。多力坤∙艾沙和其夫人一块儿接受了勋章证书。<br>
+    <br>
+    可以说，在共产党中国党主席、国家主席习近平，到达华盛顿特区参加世界核峰会的同一天，在美国首都华盛顿的国会山议院俱乐部，授予中共一直以恐怖分子指控的世维会执委会主席多力坤艾沙“杜鲁门-里根自由勋章”，意义不同反响！<br>
+    <br>
+    这是欧巴马政府给予习近平的一份见面礼，更是美国扇向独裁者习近平的一巴掌！<br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl1.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl2.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl3.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl4.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl5.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl6.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl7.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl8.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl9.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl10.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl11.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/03/201603311427intl12.jpg" alt="世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201603311427" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201603301455411.jpg http://upload.bx.tl/news/temp14/201603301455412.jpg http://upload.bx.tl/news/temp14/201603301455413.jpg http://upload.bx.tl/news/temp14/201603301455414.jpg http://upload.bx.tl/news/temp14/201603301458311.jpg http://upload.bx.tl/news/temp14/201603301458312.jpg http://upload.bx.tl/news/temp14/201603301458313.jpg http://upload.bx.tl/news/temp14/201603301458314.jpg http://upload.bx.tl/news/temp14/201603301457281.jpg http://upload.bx.tl/news/temp14/201603301457282.jpg http://upload.bx.tl/news/temp14/201603301457283.jpg http://upload.bx.tl/news/temp14/201603301457284.jpg--> 4411427       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310527.shtml" target="boxun-mirror">权贵云集股权盘根错节安邦保险的隐秘财富帝国请看博讯热点：中共太子党</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -47,7 +114,7 @@
     <br>
     “</p>
 <p>
-	<small> ============== 7分钟前</small>
+	<small> ============== 12分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310746.shtml" target="boxun-mirror">迎习到访美使领馆总动员全美甄选欢迎队伍聚华府请看博讯热点：习近平观察</a>
 </h2>
@@ -81,7 +148,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8分钟前</small>
+	<small> ============== 13分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310603.shtml" target="boxun-mirror">五大战区将举行联合作战演练以证“改革取得圆满成功”</a>
 </h2>
@@ -99,7 +166,7 @@
     军方消息指，这次演练重点检验战区指挥中心联合指挥的能力和效率，涉及各军兵种，其中东部、南部战区将以保</p>
 </td></tr></p>
 <p>
-	<small> ============== 8分钟前</small>
+	<small> ============== 13分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/yuanqing/2016/03/201603300141.shtml" target="boxun-mirror">现场报道：国会山庄一声枪响为习近平安保再敲警钟请看博讯热点：抗议示威</a>
 </h2>
@@ -605,30 +672,6 @@
     任志强在2015年有两篇博文特别引人注目。一篇与习近平提倡共产主义理念的讲话针锋相对，批评党国“培养共产主义接班人”的欺骗性，指出“我们不仅要有远大的理想，更要活在现实之中。先脚踏实地的解决好眼前面临的制度建设问题，先要让中国人对这个能让人民</p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603201928.shtml" target="boxun-mirror">贾葭被失踪引国际关注最新消息指无界亦有人失踪请看博讯热点：白色恐怖</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>贾葭被失踪引国际关注 最新消息指无界亦有人失踪<br><font color="blue" size="2">请看博讯热点：<a href="/hot/national_terror.shtml">白色恐怖
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月20日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2016/03/201603201928china1.jpg" alt="贾葭被失踪引国际关注 最新消息指无界亦有人失踪"><p><br>
-    <br>
-    据燕薪律师今天（2016年3月20日）下午从北京市公安局首都机场分局获知：因涉及一起案件，北京市公安局3月15日从机场航站楼将贾佳（贾葭实名）带走，机场分局刑警参与协助。<br>
-    <br>
-    另据香港媒体引述维权人士消息指称，疑因涉及早前大陆网媒刊出《要求习近平同志辞去党和国家领导职务》公开信而被失踪人士，除了前香港网媒端传媒的主编贾葭之外，至少还有其他4人。<br>
-    <br>
-    报道指，公开信事件至少导致5人失踪，包括35岁的贾葭、“无界”执行总裁欧阳洪亮、执行主编黄志杰，以及“无界”两名负责电脑安全技术的员工。各人的微信朋友圈自上周一开始已没有更新，但未有进一步透露消息来源。<br>
-    <br>
-    居住香港的内地知名媒体人贾葭，上周二下午从北京机场准备飞赴香港期间神秘失踪，至今仍无任何消息。苹果日报引述维权人士指，公开信事件除了贾葭之外，目前还至少有4人被失踪，他们都属于“无界新闻”的员工。<br>
-    <br>
-    世界之声报道称，香港立法会议员“长毛”梁国雄以及香港社民连成员等10多人，19日下午由西区警署游行到中联办，要求当局交代贾葭的下落。社民连主席吴文远认为，自习近平上台后公民权利空间严重收窄，过去被中共容许在“鸟笼空间”形式的民间运动和快闪运动等，现时都受到了压制。示威人士抵中联办门外后焚烧公开信并将贴标语，其后散去。<br>
-    <br>
-    今年3月4日北京举行全国两会之际，“无界新闻”刊登了这封要求习近平辞职的公</p>
-</td></tr></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
