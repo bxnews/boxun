@@ -114,7 +114,7 @@
     <br>
     “</p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310746.shtml" target="boxun-mirror">迎习到访美使领馆总动员全美甄选欢迎队伍聚华府请看博讯热点：习近平观察</a>
 </h2>
@@ -148,7 +148,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310603.shtml" target="boxun-mirror">五大战区将举行联合作战演练以证“改革取得圆满成功”</a>
 </h2>
@@ -166,7 +166,7 @@
     军方消息指，这次演练重点检验战区指挥中心联合指挥的能力和效率，涉及各军兵种，其中东部、南部战区将以保</p>
 </td></tr></p>
 <p>
-	<small> ============== 2小时前</small>
+	<small> ============== 3小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/yuanqing/2016/03/201603300141.shtml" target="boxun-mirror">现场报道：国会山庄一声枪响为习近平安保再敲警钟请看博讯热点：抗议示威</a>
 </h2>
