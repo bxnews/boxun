@@ -84,7 +84,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603311748.shtml" target="boxun-mirror">习奥会晤问题多美国及盟友就在关键问题上向北京施压</a>
 </h2>
