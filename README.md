@@ -71,7 +71,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603311427.shtml" target="boxun-mirror">世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”请看博讯热点：新疆问题</a>
 </h2>
