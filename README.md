@@ -19,6 +19,25 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604022256.shtml" target="boxun-mirror">目击者：令计划公子车祸死时着衣“车震”之说不实请看博讯热点：令计划</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>目击者：令计划公子车祸死时着衣  “车震”之说不实<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604022256" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604022256china1.jpg" alt="目击者：令计划公子车祸死时着衣  “车震”之说不实"><p>（2012年3月15日,令计划在两会闭幕式上,三天后其公子出事。AP）<br>
+    <br>
+    【博闻社】以下这篇文章来自微信公号“满姨儿”，作者身份不详，但从着笔看，应是北京从事法医、殡葬界或者相关的人士。<br>
+    <br>
+    文章以证人目击者身份，讲述2012年3月18凌晨，发生在北京海淀区保福寺桥那场勘称改变了中共历史的法拉利车祸当事人，时任中共大内总管令计划的公子令谷陈尸现场的情况，<br>
+    <br>
+    这也是迄今为止首有文字公开提到目击令计划公子死相的报道，透露令谷车祸死时，并非外界后来所传正与两名女大学生“赤身</p>
+</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/yuanqing/2016/04/201604011645.shtml" target="boxun-mirror">博闻特写：中国访民白宫外再度拦截习近平座驾纪实请看博讯热点：习近平访美</a>
 </h2>
 <p><tr>
@@ -652,16 +671,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603231103.shtml" target="boxun-mirror">董文标高调现身博鳌论坛溜须拍“马”玩变脸惹质疑</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>董文标高调现身博鳌论坛  溜须拍“马”玩变脸惹质疑<br><font color="#000fC0">(<small>博讯北京时间2016年3月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603231103" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社海南博</td></tr></p>
 <p>
 	<small> ============== 11天前</small>
 </p>
