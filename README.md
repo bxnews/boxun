@@ -19,6 +19,98 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604041246.shtml" target="boxun-mirror">习近平参加核峰会：欢迎和抗议、拦车视频大全请看博讯热点：抗议示威</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平参加核峰会：欢迎和抗议、拦车视频大全<br><font color="blue" size="2">请看博讯热点：<a href="/hot/protest.shtml">抗议示威
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201604041246" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     中共总书记习近平3月30日-4月1日在华盛顿参加核峰会期间，领馆动员近万人打着巨大的标语，欢迎习近平。而访民等抗议群体则穿插其中，一些访民仍和<a href="/news/gb/intl/2015/09/201509260704.shtml">2015年9月</a>一样，寻机拦车喊冤。但这次车队经过路线不断调整，领馆雇佣保安也用出各种手段跟踪、甚至叫警察非法拘禁访民。<br>
+    <br>
+    欢迎队伍：<br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl1.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"><p><br>
+    <br>
+    博讯陆续收到特约记者和访民拍摄的视频，内容非常丰富，特别整理如下供各界观看（本文图片为来自上海的艾福荣所拍）：<br>
+    <br>
+    视频1：习近平到华盛顿参加核峰会，欢迎和抗议群体（点击到youtube观看） <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/hkTM-0mc93I" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    视频2：习近平车队被近距离拍到<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/NXIY7JyVYlo" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    视频3：男子抢夺访民喇叭被警察武力制服 <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/0-cq8Ir0lhE" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl2.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
+<p><br>
+    <br>
+    李焕君拦车被捕：<br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl3.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
+<p><br>
+    <br>
+    李焕君拦车现场视频（不同人士、角度拍摄）：<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/0Bm9NgvZnIs" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/g23p4AFEb6c" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/yrpgwxzkpEk" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/iATgPyJzcfY" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    艾福荣被这两名警察背铐，限制人身自由超1小时，叶宁律师表示：艾福荣只是在人群中走动，并没拦车，限制自由是非法的。<br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl4.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
+<p><br>
+    <br>
+    欢迎队伍的标语：财力雄厚<br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl5.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
+<p><br>
+    <br></p>
+<center><font size="4"><b>欢迎、抗议视频：</b></font></center>
+<br>
+    <br>
+    习近平到华盛顿参加核峰会，欢迎和抗议群体 <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/hkTM-0mc93I" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    习近平参加核峰会：华盛顿一片红海洋 <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/TaLqayoKMzo" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    习近平参加核峰会：民主党、访民抗议 <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/Uh1rHtp_1VU" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    习近平参加核峰会：访民围住中方人员 <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/DSxzLd6X5Pk" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    习近平参加核峰会：访民高呼“习近平见访民” <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/yDtWlo0OkNI" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    习近平参加核峰会：谴责男子、喊口号、媒体采访 <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/9CEcYVIYg3c" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    习近平参加核峰会：民主党抗议 <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/lo9_B-dmlhg" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    核峰会红马甲欢迎队伍气焰张狂 大喇叭覆盖抗议呼声 <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/dfGryDgM0-s" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    核峰会欢迎 抗议 请愿队伍力争发声 恍然文革时代再现 <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/00bIzJOfbjg" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    下三图为中方安全人员：<br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl6.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl7.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl8.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201604041246" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604032127111.jpg http://upload.bx.tl/news/temp14/201604032127112.jpg http://upload.bx.tl/news/temp14/201604032127117.jpg http://upload.bx.tl/news/temp14/201604032127118.jpg http://upload.bx.tl/news/temp14/201604032127113.jpg http://upload.bx.tl/news/temp14/201604032127114.jpg http://upload.bx.tl/news/temp14/201604032127115.jpg http://upload.bx.tl/news/temp14/201604032127116.jpg--> 4761246       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604040823.shtml" target="boxun-mirror">百年恩怨何时了？博闻社记者亚美尼亚与土耳其见闻录</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -631,47 +723,6 @@
     （博闻社报道：<a href="http://bowenpress.com/news/bowen_77809.html" style="color:red;">点此链接</a>）
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603252303" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201603250700471.jpg--> 3092303       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603251139.shtml" target="boxun-mirror">紫禁城来鸿：习近平为“核”访美到底能否带回“核弹”</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁城来鸿：习近平为“核”访美 到底能否带回“核弹”<br><font color="#000fC0">(<small>博讯北京时间2016年3月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603251139" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】时隔半年，中国国家主席习近平将再次访美；中共官方对外宣称，习近平将应美国总统奥巴马邀请，将于3月31日前往华盛顿，出席第四届世界核安全峰会。<br>
-    <br>
-     博闻社获悉，习近平此访的目的，确实都与“核”有关；而另一项对习近平尤为重要的任务，是无需摆在核安全峰会桌面上的。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    中南海高层向博闻社独家透露，一向被外界视为中共政坛“核”弹的令完成，因其兄中共前“大内总管”令计划案，而一直藏匿美国，也一直令习近平深感头疼。此次访美，既然为“核”峰会而去，习近平将在官方议程之余，将与奥巴马再次单独“私聊”，以寻求令完成遣返的最终可能性。<br>
-    <br>
-    博闻社此前曾多次独家披露，习近平已经多次委派特使与美方“洽谈”令完成一案的“妥善”解决，而且在去年访美和巴黎联合国气候大会期间，习近平本人更是单独向奥巴马强烈要求尽快“放人”，但迄今未果。<br>
-    <br>
-    中南海高层向博闻社进一步暗示，这一次，习近平访美目的明确，就是为“核”而去。各国首脑在最后一次核安全峰会上，能否达成一致，最终签署诸如“华盛顿宣言”或“华盛顿协议”之类法律文本，固然全球瞩目；但对中国国家主席习近平而言，能否安全带回令完成“这颗核弹”，从而“完成”这一旷日持久，又似乎没有尽头的不可能完成的任务，才是当务之急！<br>
-    <br>
-    有关在美国首都华盛顿举行的本次核安全峰会，博闻社也将全程跟踪报道。敬请关注！
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603251139" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 631139       
 <hr>
 <table width="620"><tr><td>
 <b></p>
