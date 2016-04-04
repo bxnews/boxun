@@ -109,7 +109,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604040823.shtml" target="boxun-mirror">百年恩怨何时了？博闻社记者亚美尼亚与土耳其见闻录</a>
 </h2>
@@ -378,7 +378,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603311748.shtml" target="boxun-mirror">习奥会晤问题多美国及盟友就在关键问题上向北京施压</a>
 </h2>
