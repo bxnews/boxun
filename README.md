@@ -19,6 +19,44 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604040823.shtml" target="boxun-mirror">百年恩怨何时了？博闻社记者亚美尼亚与土耳其见闻录</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>百年恩怨何时了？博闻社记者亚美尼亚与土耳其见闻录<br><font color="#000fC0">(<small>博讯北京时间2016年4月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201604040823" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社亚美尼亚报导】初春时分，博闻社记者有机会到访位于欧亚之间高加索地区的小国家亚美尼亚，这是在苏联解体之后最早从共产体制独立出了的共和国之一，西与土耳其接壤，东邻亚塞拜疆，首都为埃里温。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    抵达埃里温已是午夜时分，沿路所见的后苏联风格的陈旧建筑，于月光余晖下更显萧瑟。<br>
+    <br>
+    记者曾于2012年到过波罗底海国家，对曾经同处前苏联共产铁幕统治之下爱沙尼亚、拉脱维亚及立陶宛三国，有些许了解。因地缘位置距欧洲近而较易摆脱苏维埃帝国阴影，这几个国家在建筑、氛围及路人互动，皆让人有仿至欧洲之感。<br>
+    <br>
+    亚美尼亚的命运则截然不同，通讯及能源等国家命脉产业迄仍为俄国所垄断，俄国亦对亚美尼亚与伊朗的能源合作上处处制肘，加以与邻国土耳其及亚塞拜疆的关系仍陷政治死局，边境紧张久不见缓解，人口不足400万的亚美尼亚除委身于俄国军事保护伞下，实无他途。<br>
+    <br>
+    “当然希望可以将俄国势力逐出（pushed out），但我不认为是我这个世代能办到的事情。”陪同记者的亚美尼亚导游Yesayan 说。而女大生Gizhlaryan则认为亚美尼亚尚不具自行解决边疆争议的实力，“我不认为有把俄国逐出的必要，我们现在需要他们。”<br>
+    <br>
+    简单两语，立场纵然不一，却道尽夹于俄、土两强的小国苍凉。<br>
+    <br>
+    Gizhlaryan曾于年前赴莫斯科，她告诉记者，入俄国海关时，出入境警察翻查她的护照后，竟然神态不屑地跟她说：“</td></tr></p>
+<p>
+	<small> ============== 29分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604022256.shtml" target="boxun-mirror">目击者：令计划公子车祸死时着衣“车震”之说不实请看博讯热点：令计划</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -639,40 +677,6 @@
 <b></p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603232059.shtml" target="boxun-mirror">刊“倒习公开信”惹祸无界网被关停昨日开“清算大会”</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>刊“倒习公开信”惹祸无界网被关停 昨日开“清算大会”<br><font color="#000fC0">(<small>博讯北京时间2016年3月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603232059" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2016/03/201603232059china1.jpg" alt="刊“倒习公开信”惹祸无界网被关停 昨日开“清算大会”"><p>（无界传媒落地巴基斯坦,一度号称做一带一路信息唯一发布平台。）<br>
-    <br>
-    【博闻社独家】今日内地网络消息透露，涉刊发“要求习近平辞职公开信”的新疆网络新媒体“无界传媒”被有关部门下令关闭，集团内部昨日有召开清算大会，决定关停。不过至截稿时，无界传媒的网站尚可正常访问。无界传去年3月创办，迄今刚满一年。<br>
-    <br>
-    无界新闻是无界传媒旗下正牌中共党宣新媒体。去年4月，《财经》杂志母公司财讯集团联手新疆维吾尔自治区和阿里巴巴，三方联合组建新媒体机构“无界传媒”，首期投资为亿元级别。总部在北京。<br>
-    <br>
-    去年，曾参与无界传媒创始初期相关活动的上海交通大学媒体与设计学院讲师魏武挥透露：成立无界传媒的初衷，是“对新疆的宣传”。<br>
-    <br>
-    为“无界传媒”出面的资方是新疆宣传部，当属网信办系统。众所周知，网信办对新媒体的操控和利用一向持高度重视态度，“宣传新疆”、“促进新疆发展”或许只是广告的模板，应对棘手的新疆问题做专职舆论引导、建立强化当局在中亚的语话权，是为其实质性目的。<br>
-    <br>
-    3月5日，无界传媒刊出文章“要求习近平辞职公开信”，后有传闻称，网站两位主要负责人和两位技术工作人员被警方传唤，但也有知情人士称，其中一位负责人主编欧阳洪亮在传唤后已回家。但上述四人至今没有在网络露面。同被牵涉的知名媒体人贾葭已确认在警方控制下，但至今不知所在何处。<br>
-    <br>
-    暂时不了解昨日无界传媒召开的清算大会具体敲定了什么内容，但外界无不担忧，庞大的员工团队解散后的安置问题。内部人士称，主要负责人近期都在配合警方调查，网站一直处于半停工状态。无界传媒号称主导“一带一路”宣传，若确定关闭将成笑话。<br>
-    <br>
-    据消息人士称，《无界》网站在本月中开始，原创的内容已全部暂停刊登，只许转载新华社和《人民日报》的稿件。同时据说阿里巴巴并未真的投入资金，而北京一 家传媒机构原打算接收阿里巴巴的股份，但双方尚在磋商阶段，就发生了“公开信”事件，因而交易的洽商工作亦告暂停。事发后，高层已向员 工打招呼，不要对外再提与《无界》合作的事情。<br>
-    <br>
-    更多细节尚在确认中。<br>
-    <br>
-    （博闻社原文详细报道链接：<a href="http://bowenpress.com/news/bowen_77145.html" style="color:blue;">《刊“倒习公开信”惹祸 无界传媒网被关停 昨日召开“清算大会”》</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603232059" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201603230452041.jpg--> 2562059       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
