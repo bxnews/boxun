@@ -109,7 +109,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604040823.shtml" target="boxun-mirror">百年恩怨何时了？博闻社记者亚美尼亚与土耳其见闻录</a>
 </h2>
