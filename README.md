@@ -19,6 +19,54 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604050028.shtml" target="boxun-mirror">四川数千工人连日罢工遭千警镇压近百人被抓捕请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>四川数千工人连日罢工遭千警镇压近百人被抓捕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月05日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604050028" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      四川省遂宁市射洪县沱牌舍得集团有限公司的数千工人，周一（4月4日）在维权时遭到上千警察镇压，多名工人被打伤，近百人被抓捕。<br>
+    <br>
+    近日，天洋集团接手沱牌后，就员工安置问题发布了一份“沱牌职工安置方案实施意见（草案）”公告，立即引发工人不满，认为该草案存在经济补偿金参照标准不明确、未提及正式工身份补偿等问题。数千工人于3月30发起罢工，持续至今。<br>
+    <br>
+    4日上午，当地政府调集上千警察进入沱牌舍得集团的所在地沱牌镇，对正在维权的工人进行暴力驱逐。网友发布到网络的大量视频以及图片显示，多名工人遭到警察持警棍暴打，包括妇女、老人在内的工人被警察强行押走，在地上拖行。<br>
+    <br>
+    网友“用户5892673788”发帖说：我是沱牌职工子女，今天中午在沱牌北大门特警暴力驱散职工，十几个所谓特警殴打一名外号叫猴子的的职工，然后连同其老婆一起抓走，到现在不知到人在哪。还打破一名老人的头，鲜血长流，也被迅速带走。<br>
+    <br>
+    另一名网友“文家小妹儿”说：我认识的就抓了好多，不认识的就更别提了。没有100也有7、80。<br>
+    <br>
+    据网友透露，当天下午，工人一度到镇上要求放人，但未果。同时沱牌舍得集团还放话威胁工人，要求工人必须在5日复工，否则将被辞退。<br>
+    <br>
+    资料显示，位于射洪县沱牌镇的沱牌舍得集团有限公司，系一家占地5.6平方公里，年产能30万吨的大型国有白酒制造企业，有员工7000多人。2015年11月，天洋集团与射洪县政府签署股权转让及增资扩股协议，取得沱牌舍得集团70%的股权，天洋集团总裁周政取代射洪县政府成为沱牌舍得集团的实际控制人。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604050028china1.jpg" alt=" 四川数千工人连日罢工遭千警镇压近百人被抓捕"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604050028china2.jpg" alt=" 四川数千工人连日罢工遭千警镇压近百人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604050028china3.jpg" alt=" 四川数千工人连日罢工遭千警镇压近百人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604050028china4.jpg" alt=" 四川数千工人连日罢工遭千警镇压近百人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604050028china5.jpg" alt=" 四川数千工人连日罢工遭千警镇压近百人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604050028china6.jpg" alt=" 四川数千工人连日罢工遭千警镇压近百人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604050028china7.jpg" alt=" 四川数千工人连日罢工遭千警镇压近百人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604050028china8.jpg" alt=" 四川数千工人连日罢工遭千警镇压近百人被抓捕"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604050028china9.jpg" alt=" 四川数千工人连日罢工遭千警镇压近百人被抓捕"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604050028" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604040924261.jpg http://upload.bx.tl/news/temp14/201604040924262.jpg http://upload.bx.tl/news/temp14/201604040924263.jpg http://upload.bx.tl/news/temp14/201604040924264.jpg http://upload.bx.tl/news/temp14/201604040924421.jpg http://upload.bx.tl/news/temp14/201604040924422.jpg http://upload.bx.tl/news/temp14/201604040924423.jpg http://upload.bx.tl/news/temp14/201604040924424.jpg http://upload.bx.tl/news/temp14/201604040924471.jpg--> 1300028       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604050322.shtml" target="boxun-mirror">视频：习近平车被拦后，纽约领馆禁止访民递交材料请看博讯热点：“麻雀行动”</a>
 </h2>
 <p><tr>
@@ -49,7 +97,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2分钟前</small>
+	<small> ============== 7分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604041246.shtml" target="boxun-mirror">习近平参加核峰会：欢迎和抗议、拦车视频大全请看博讯热点：抗议示威</a>
 </h2>
@@ -738,16 +786,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603280327.shtml" target="boxun-mirror">中共统战部前副部长朱维群涉卖「活佛」指标敛财被查</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中共统战部前副部长朱维群涉卖「活佛」指标敛财被查<br><font color="#000fC0"><small>(博讯北京时间2016年3月28日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603280327" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->      <div align="center"><img src="http://upload.bx.tl/news/temp14/201603270228551.png" width="600"></div>（朱维群到各地寺庙视察和尚们都要奉若神明。大公报）<br>    <br>    【博闻社独家】北京消息人士告䜣博闻社，中共中央统战部前副部长朱维群，因利用「活佛」指标</td></tr></p>
 <p>
 	<small> ============== 8天前</small>
 </p>
