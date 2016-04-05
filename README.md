@@ -97,7 +97,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604050845.shtml" target="boxun-mirror">紫禁来鸿：巴拿马文件炸开锅中南海紧急开会忙灭火请看博讯热点：习近平观察</a>
 </h2>
@@ -155,7 +155,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3小时前</small>
+	<small> ============== 4小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604041246.shtml" target="boxun-mirror">习近平参加核峰会：欢迎和抗议、拦车视频大全请看博讯热点：抗议示威</a>
 </h2>
