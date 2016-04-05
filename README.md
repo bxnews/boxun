@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 25分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604050322.shtml" target="boxun-mirror">视频：习近平车被拦后，纽约领馆禁止访民递交材料请看博讯热点：“麻雀行动”</a>
 </h2>
