@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 0分钟前</small>
+	<small> ============== 5分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604050322.shtml" target="boxun-mirror">视频：习近平车被拦后，纽约领馆禁止访民递交材料请看博讯热点：“麻雀行动”</a>
 </h2>
@@ -97,7 +97,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7分钟前</small>
+	<small> ============== 12分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604041246.shtml" target="boxun-mirror">习近平参加核峰会：欢迎和抗议、拦车视频大全请看博讯热点：抗议示威</a>
 </h2>
