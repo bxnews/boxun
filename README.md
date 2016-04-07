@@ -53,7 +53,7 @@
     <br>
     </td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604050028.shtml" target="boxun-mirror">四川数千工人连日罢工遭千警镇压近百人被抓捕请看博讯热点：突发事件</a>
 </h2>
@@ -133,7 +133,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604051950.shtml" target="boxun-mirror">郭伯雄受贿八千万移送起诉开除军籍剥夺上将军衔请看博讯热点：反腐打老虎</a>
 </h2>
@@ -180,7 +180,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604050845.shtml" target="boxun-mirror">紫禁来鸿：巴拿马文件炸开锅中南海紧急开会忙灭火请看博讯热点：习近平观察</a>
 </h2>
@@ -238,7 +238,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604041246.shtml" target="boxun-mirror">习近平参加核峰会：欢迎和抗议、拦车视频大全请看博讯热点：抗议示威</a>
 </h2>
@@ -373,7 +373,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604040823.shtml" target="boxun-mirror">百年恩怨何时了？博闻社记者亚美尼亚与土耳其见闻录</a>
 </h2>
@@ -411,7 +411,7 @@
     <br>
     Gizhlaryan曾于年前赴莫斯科，她告诉记者，入俄国海关时，出入境警察翻查她的护照后，竟然神态不屑地跟她说：“</td></tr></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604022256.shtml" target="boxun-mirror">目击者：令计划公子车祸死时着衣“车震”之说不实请看博讯热点：令计划</a>
 </h2>
@@ -430,7 +430,7 @@
     这也是迄今为止首有文字公开提到目击令计划公子死相的报道，透露令谷车祸死时，并非外界后来所传正与两名女大学生“赤身</p>
 </td></tr></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/yuanqing/2016/04/201604011645.shtml" target="boxun-mirror">博闻特写：中国访民白宫外再度拦截习近平座驾纪实请看博讯热点：习近平访美</a>
 </h2>
@@ -484,7 +484,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604012202.shtml" target="boxun-mirror">独家：华盛顿“习奥会”10大内幕细节曝光请看博讯热点：习近平访美</a>
 </h2>
@@ -556,7 +556,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603311427.shtml" target="boxun-mirror">世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”请看博讯热点：新疆问题</a>
 </h2>
@@ -657,7 +657,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310527.shtml" target="boxun-mirror">权贵云集股权盘根错节安邦保险的隐秘财富帝国请看博讯热点：中共太子党</a>
 </h2>
@@ -687,7 +687,7 @@
     <br>
     “</p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310746.shtml" target="boxun-mirror">迎习到访美使领馆总动员全美甄选欢迎队伍聚华府请看博讯热点：习近平观察</a>
 </h2>
@@ -721,7 +721,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603311810.shtml" target="boxun-mirror">政坛暗涌倒习潮习近平出访前政治局常委集体表忠心请看博讯热点：习近平观察</a>
 </h2>
@@ -736,7 +736,7 @@
     【博闻社独家】本社从接近中南海消息人士处获悉，应对目前党内出现的「倒习逆流」，中共总书记习近平上周末在出访捷克及赴美国出席第四届世界核安全峰会前，专门召集政治局常委</p>
 </td></tr></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310603.shtml" target="boxun-mirror">五大战区将举行联合作战演练以证“改革取得圆满成功”</a>
 </h2>
@@ -754,7 +754,7 @@
     军方消息指，这次演练重点检验战区指挥中心联合指挥的能力和效率，涉及各军兵种，其中东部、南部战区将以保</p>
 </td></tr></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603312152.shtml" target="boxun-mirror">电话专访北风弟弟温先生：未遭绑架失踪和恐吓虐待请看博讯热点：打压媒体和记者</a>
 </h2>
@@ -829,7 +829,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/yuanqing/2016/03/201603300141.shtml" target="boxun-mirror">现场报道：国会山庄一声枪响为习近平安保再敲警钟请看博讯热点：抗议示威</a>
 </h2>
@@ -866,7 +866,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p>
 <table>
     <tr>
