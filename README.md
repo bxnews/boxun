@@ -53,7 +53,7 @@
     <br>
     </td></tr></p>
 <p>
-	<small> ============== 19分钟前</small>
+	<small> ============== 24分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604050028.shtml" target="boxun-mirror">四川数千工人连日罢工遭千警镇压近百人被抓捕请看博讯热点：突发事件</a>
 </h2>
