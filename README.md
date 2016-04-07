@@ -19,6 +19,22 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604072014.shtml" target="boxun-mirror">观察：巴拿马文件风暴席卷全球亚洲应该如何自处</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>观察：巴拿马文件风暴席卷全球 亚洲应该如何自处<br><font color="#000fC0">(<small>博讯北京时间2016年4月07日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604072014intl1.jpg" alt="观察：巴拿马文件风暴席卷全球 亚洲应该如何自处"><p>（图片来源：网络）<br><br><b>刚刚发生的泄密事件或许让这场战争的前景看起来很不乐观。从巴拿马的一家律师事务所泄露出来的大量文件显示，世界各地的显赫人物利用离岸公司藏匿了数以十亿美元计的财富。所谓的“巴拿马文件”似乎在强调，收取本属于自己的税金对各国政府而言是多么困难。</b><br>
+    <br>
+    据纽约时报报道，伯克利的经济学助理教授加布里埃尔・祖克曼(Gabriel Zucman)强烈建议，不要一看到莫萨克-冯塞卡设立的离岸公司有所减少就妄下定论。“这仅仅是一个国家，”著有《列国的隐藏财富》(The Hidden Wealth of Nations)一书的祖克曼说。该书揭露了离岸中心如何让逃税和避税成为可能。<br>
+    <br>
+    但他承认事情取得了进展。2010年美国国会通过了《海外账户纳税法案》(Foreign Tax Compliance Act)，该法案要求外国银行与美国国税局(Internal Revenue Service)</p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604070011.shtml" target="boxun-mirror">紫禁来鸿：巴拿马文件束手无策习近平最新“批示”请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -830,43 +846,6 @@
 <b></p>
 <p>
 	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/yuanqing/2016/03/201603300141.shtml" target="boxun-mirror">现场报道：国会山庄一声枪响为习近平安保再敲警钟请看博讯热点：抗议示威</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>现场报道：国会山庄一声枪响 为习近平安保再敲警钟<br><font color="blue" size="2">请看博讯热点：<a href="/hot/protest.shtml">抗议示威
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月30日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=yuanqing201603300141" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603300141yuanqing1.jpg" alt="现场报道：国会山庄一声枪响 为习近平安保再敲警钟"><p>（图片来源：博闻社）<br>
-    <br>
-    【博闻社特约记美国华盛顿报道】华盛顿国会山庄突如其来的一声枪响，打破了仍然沉浸在复活节气氛中的美国首都华盛顿，也为即将抵达华府的中国国家主席习近平的安保问题，再敲警钟。<br>
-    <br>
-    博闻社特约记者独家获悉，枪击案发生后，先期抵达华盛顿的中国代表团便立即召开紧急会议，“兵分多路”向美方了解详情，美方也已向中方通报了相关情况。<br>
-    <br>
-    博闻社特约记者进一步了解到，来自田纳西州的男性嫌犯Larry Russel Dawson，今天在国会山庄游客中心进行安检时，触发金属探测门报警，便掏出手枪试图袭警，现场警察当即开枪将其制伏，并且严密监控下将其送院就治。<br>
-    <br>
-    事发后的第一时间，国会山庄临时设立了庇护中心，白宫和国会山庄均被立即封锁，周围布满荷枪实弹的巡警和特勤人员。<br>
-    <br>
-    博闻社特约记者还获悉，因为刚刚发生布鲁塞尔恐怖袭击，加上美国本土“独狼”行动时有发生，美国警方面对此次“意外”，不敢有任何疏忽大意。据警方对Larry的初步审讯，事件应为单独个案；至于其详细的持枪动机，以及是否还有其他行动或者同伙，警方仍在继续审理中。<br>
-    <br>
-    博闻社特约记者在此前的报道中，已经独家透露，习近平的安保问题成为此次访美的重中之重和头等大事；今天国会山庄的这声枪向，又让中国“先遣部队”全部人马的神经紧崩，迎接他们的将是又一个不眠之夜。<br>
-    <br>
-    美国首都华盛顿正值樱花盛开，国会山庄的这声枪响，为即将举行的第四届核安全峰会也蒙上了厚厚的阴影，甚至浓浓的雾霾。<br>
-    <br>
-    有关习近平访美和第四届核安全峰会的详情，敬请持续关注博闻社特约记者从华盛顿发回的独家现场特别报道！<br>
-    <br>
-    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_78540.html" style="color:red;">点此链接</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=yuanqing201603300141" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)</p>
-<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
-<!-- http://upload.bx.tl/news/temp14/201603290044091.jpg--> 290141       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 9天前</small>
 </p>
 <table>
     <tr>
