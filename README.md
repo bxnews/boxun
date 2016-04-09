@@ -47,7 +47,7 @@
     <br>
     博闻社去年曾独家披露，令计划接受审查期间，一直被关在京郊南部河北境内一个海军航空兵基地，由海军陆战队特种部队和中央警</td></tr></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/yuanqing/2016/04/201604080130.shtml" target="boxun-mirror">《环球时报》总编胡锡进“翻墙”，中纪委该怎么处理？请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -118,7 +118,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604082119.shtml" target="boxun-mirror">独家：中共常委再议巴拿马文件对策刘云山张高丽解释请看博讯热点：深度报道</a>
 </h2>
@@ -178,7 +178,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604072014.shtml" target="boxun-mirror">观察：巴拿马文件风暴席卷全球亚洲应该如何自处</a>
 </h2>
@@ -194,7 +194,7 @@
     <br>
     但他承认事情取得了进展。2010年美国国会通过了《海外账户纳税法案》(Foreign Tax Compliance Act)，该法案要求外国银行与美国国税局(Internal Revenue Service)</p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604072135.shtml" target="boxun-mirror">李焕君手术后出院赵岩专访挖出强拆幕后/视频请看博讯热点：访民动态</a>
 </h2>
@@ -214,7 +214,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604070011.shtml" target="boxun-mirror">紫禁来鸿：巴拿马文件束手无策习近平最新“批示”请看博讯热点：习近平观察</a>
 </h2>
@@ -250,7 +250,7 @@
     <br>
     </td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604050028.shtml" target="boxun-mirror">四川数千工人连日罢工遭千警镇压近百人被抓捕请看博讯热点：突发事件</a>
 </h2>
@@ -330,7 +330,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604051950.shtml" target="boxun-mirror">郭伯雄受贿八千万移送起诉开除军籍剥夺上将军衔请看博讯热点：反腐打老虎</a>
 </h2>
@@ -377,7 +377,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604050845.shtml" target="boxun-mirror">紫禁来鸿：巴拿马文件炸开锅中南海紧急开会忙灭火请看博讯热点：习近平观察</a>
 </h2>
@@ -435,7 +435,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604041246.shtml" target="boxun-mirror">习近平参加核峰会：欢迎和抗议、拦车视频大全请看博讯热点：抗议示威</a>
 </h2>
@@ -570,7 +570,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604040823.shtml" target="boxun-mirror">百年恩怨何时了？博闻社记者亚美尼亚与土耳其见闻录</a>
 </h2>
@@ -608,7 +608,7 @@
     <br>
     Gizhlaryan曾于年前赴莫斯科，她告诉记者，入俄国海关时，出入境警察翻查她的护照后，竟然神态不屑地跟她说：“</td></tr></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604022256.shtml" target="boxun-mirror">目击者：令计划公子车祸死时着衣“车震”之说不实请看博讯热点：令计划</a>
 </h2>
@@ -627,7 +627,7 @@
     这也是迄今为止首有文字公开提到目击令计划公子死相的报道，透露令谷车祸死时，并非外界后来所传正与两名女大学生“赤身</p>
 </td></tr></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/yuanqing/2016/04/201604011645.shtml" target="boxun-mirror">博闻特写：中国访民白宫外再度拦截习近平座驾纪实请看博讯热点：习近平访美</a>
 </h2>
@@ -681,7 +681,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604012202.shtml" target="boxun-mirror">独家：华盛顿“习奥会”10大内幕细节曝光请看博讯热点：习近平访美</a>
 </h2>
@@ -753,7 +753,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/03/201603311427.shtml" target="boxun-mirror">世维会执行委员会主席多力坤∙艾沙接受“杜鲁门――里根自由勋章”请看博讯热点：新疆问题</a>
 </h2>
@@ -854,7 +854,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310527.shtml" target="boxun-mirror">权贵云集股权盘根错节安邦保险的隐秘财富帝国请看博讯热点：中共太子党</a>
 </h2>
@@ -884,7 +884,7 @@
     <br>
     “</p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p>
 <table>
     <tr>
