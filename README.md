@@ -19,6 +19,36 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604090907.shtml" target="boxun-mirror">独家：令计划被转羁押于北京市第二看守所请看博讯热点：令计划</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：令计划被转羁押于北京市第二看守所<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604090907" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+     【博闻社独家】北京消息人士告诉博闻社，中共前朝大内总管令计划，已被转收押于北京市第二看守所。该所有两大功能：一是主要关押无期徒刑、死刑缓期两年执行罪犯；二是羁押收治患病的犯罪嫌疑人，是一个特殊的“医院”看守所，又称“公安医院”。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    博闻社昨日刚报道，令计划案可能在近期开审，当局主要将以“受贿罪”和“非法持有国家机密罪”，追究其刑责，且控方指他涉嫌受贿款达1.3亿人民币，并将“死刑缓期二年”或终身监禁对他求刑。<br>
+    <br>
+    博闻社去年曾独家披露，令计划接受审查期间，一直被关在京郊南部河北境内一个海军航空兵基地，由海军陆战队特种部队和中央警</td></tr></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/yuanqing/2016/04/201604080130.shtml" target="boxun-mirror">《环球时报》总编胡锡进“翻墙”，中纪委该怎么处理？请看博讯热点：网络封锁和压制</a>
 </h2>
 <p><tr>
@@ -853,40 +883,6 @@
     “每当中国有人打一下响指就可以魔法般地获得财富时，这里说的是巨额财富，对我来说就是一个可疑的标志，”北京大学深圳校区金融及经济学副教授克里斯托弗・鲍尔丁说。<br>
     <br>
     “</p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310746.shtml" target="boxun-mirror">迎习到访美使领馆总动员全美甄选欢迎队伍聚华府请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>迎习到访美使领馆总动员 全美甄选欢迎队伍聚华府<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月31日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201603310746" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603310746china1.jpg" alt="迎习到访美使领馆总动员 全美甄选欢迎队伍聚华府"><p>（中国驻美大使馆为迎接习在全美甄选欢迎队伍）<br>
-    <br>
-    【博闻社特约记美国华盛顿报道】中国国家主席习近平的捷克之旅已近尾声，今日将转飞美国首都华盛顿，出席北京时间3月31日在华盛顿举行的第四届世界核安全峰会。博闻社特约记者获悉，随着习近平大驾光临时间临近，庞大的中国代表团也进入到最后冲刺阶段。中方先遣部队和驻美大使馆及各地领事馆彻夜分头行动，以进行最后的踩点和彩排。<br>
-    <br>
-    博闻社特约记者了解到，为了在气势上压过法轮功和藏独等抗议示威团体，至少要确保欢迎的队伍在人数上超过并且占领绝对优势，来自全美各地并经严格审核甄选的群众演员们，也已陆续抵达华盛顿。他们主要由中国驻美使领馆家属、中资机构员工和家属、华侨和华人以及留学生代表组成；以大华府地区、波士顿、纽约和费城居多，但也有从洛杉矶、旧金山、芝加哥等专程远道而来。驻美使领馆专门租用大巴接载这些欢迎的人们。<br>
-    <br>
-    据了解，中方先遣队及驻美大使馆近日踩点的重点，仍然集中在安保方面，尤其是习近平车队经过的交叉路口和周边建筑；而彩排的重点则是，机场和沿街的欢迎仪式，国旗、横幅、标语和口号，每个团队甚至每个人的具体站位，都已全部一一落实。<br>
-    <br>
-    博闻社去年9月曾披露有关习近平专机的相关内幕，据了解，出于安全考量，此次习近平专机，仍使用去年访美时的同一飞机；包括机长在内的机组成员，也全部是原班人马。<br>
-    <br>
-    同样出于安保原因，习近平专机将不会出现在华盛顿杜勒斯国际机场的跑道上，而会选择安德鲁空军基地降落，并在全天候监护下，进行从里到外的维护和保养。<br>
-    <br>
-    华盛顿的又一个黎明已经来临。彻夜未眠的先遣部队，终于熬过了最长的一夜；经过短暂休整之后，31日，他们还必须在习大大正式踏上美利坚国土之前，以饱满的激情和最佳状态，至少提前3小时各就各位，等待他们的将是筋疲力尽更加漫长的一天！<br>
-    <br>
-    有关习近平出席第四届核安全峰会的详情，敬请持续关注博闻社特约记者从华盛顿发回的独家现场特别报道！<br>
-    <br>
-    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_79114.html?variant=zh-hans" style="color:red;">点此链接</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201603310746" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201603300819071.jpg--> 3110746       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 9天前</small>
 </p>
