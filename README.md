@@ -19,6 +19,33 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604110313.shtml" target="boxun-mirror">川普资助商、中国易乾董事长刘丹涉金融诈骗公司被查封</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>川普资助商、中国易乾董事长刘丹涉金融诈骗公司被查封<br><font color="#000fC0">(<small>博讯北京时间2016年4月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604110313" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】美国共和党总统参选人川普(Donald John Trump)的赞助商之一、美国南卡州方盾集团(Founders)老板刘丹，其在中国的公司近日被中国公安部门查封。据悉原因是涉嫌互联网诈骗，涉及金额逾百亿元人民币，其中相当部份被洗到美国。消息人士透露，以美国公司名义低价收购美国的高尔夫球场、酒店、豪宅和游艇等，再高价转售给自已名下的中国公司，经此洗钱卷走中国投资者的金钱。本社暂时未能联络到身在美国的刘丹本人回应。<br>
+    <br>
+     中国内地金融微信公众号「金融七公主」及东方财富网等媒体4月10日爆料指，中国知名的江苏易干财富集团因董事长刘丹「跑路」去国不归，公司涉嫌资金断链及骗局，其于浙江绍兴上虞两地多家公司本月8日被公安部门查封，大量管理人员被警方带走，截止发稿，易干财富员工仍未被放出。昨日又有消息指，易干南京总部也被当局查封。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    易干财富由刘丹于2010年创</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604090907.shtml" target="boxun-mirror">独家：令计划被转羁押于北京市第二看守所请看博讯热点：令计划</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -853,36 +880,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/03/201603310527.shtml" target="boxun-mirror">权贵云集股权盘根错节安邦保险的隐秘财富帝国请看博讯热点：中共太子党</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>权贵云集股权盘根错节 安邦保险的隐秘财富帝国<br><font color="blue" size="2">请看博讯热点：<a href="/hot/taizidang.shtml">中共太子党
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年3月31日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/03/201603310527china1.jpg" alt="权贵云集股权盘根错节 安邦保险的隐秘财富帝国 "><p>（隐秘的财富帝国－安邦保险集团。资料图片）<br>
-    <br>
-    据维基记录，安邦保险集团股份有限公司是中国保险行业综合性集团公司之一，目前拥有财产险、寿险、健康险、资产管理、保险代理销售、保险经纪等多种业务，包括安邦财产保险股份有限公司、安邦人寿保险股份有限公司、和谐健康保险股份有限公司及安邦资产管理有限责任公司等多家子公司。<br>
-    <br>
-    集团网络遍布全国31个省市自治区，拥有3000多个网点、2000多万客户以及海外资产管理公司，注册资本619亿元，总资产规模达8000亿元。<br>
-    <br>
-    纽约时报称，媒体经常把他与美国的亿万富翁沃伦・E・巴菲特相提并论，他正在利用自己对一家保险公司的控制权成为全球金融领域的巨头之一。和巴菲特一样，他似乎也在获得庞大的个人财富。<br>
-    <br>
-    但是中国安邦保险集团董事长吴小晖与巴菲特的共同之处，也仅限于此。<br>
-    <br>
-    在商业及金融领域日渐强调透明性的今天，一家不透明的中国保险公司在美国达成一项项吸引眼球的交易，令一些专家倍感惊讶，尤其是考虑到中国经济影响力在这个选举年正受到前所未有的关注。<br>
-    <br>
-    吴小晖的公司声称拥有超过2910亿美元的资产，目前正与万豪国际就收购喜达屋酒店及度假村国际集团展开激烈争夺。周一，安邦将报价提高至140亿美元。本月早些时候，安邦同意以65亿美元的价格收购黑石集团旗下的豪华酒店，比如纽约的埃赛克斯酒店。2014年底，安邦以将近20亿美元的价格收购了纽约的华尔道夫-阿斯特里亚酒店。<br>
-    <br>
-    2004年才创立的安邦集团在两年前得到大规模扩张，公司旗下37家公司带来了数十亿美元的资金。<br>
-    <br>
-    “每当中国有人打一下响指就可以魔法般地获得财富时，这里说的是巨额财富，对我来说就是一个可疑的标志，”北京大学深圳校区金融及经济学副教授克里斯托弗・鲍尔丁说。<br>
-    <br>
-    “</p>
 <p>
 	<small> ============== 11天前</small>
 </p>
