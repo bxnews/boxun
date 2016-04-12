@@ -83,7 +83,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/04/201604121834.shtml" target="boxun-mirror">巴拿马文件冲击波：震荡的世界与无动于衷的中共请看博讯热点：深度报道</a>
 </h2>
@@ -174,7 +174,7 @@
     <br>
     但是在经过一年多夜以继日的秘密调查之后，《南德意志报》的记者巴斯蒂安 奥伯梅尔(Bastian Obermayer)和弗雷德里克 奥伯迈尔(Frederik Obermaier)，却终于可以与并肩作战的国际调查记者联盟的400多位全球同行们，击掌相庆和把酒言欢，并让全世界</p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604110313.shtml" target="boxun-mirror">川普资助商、中国易乾董事长刘丹涉金融诈骗公司被查封</a>
 </h2>
