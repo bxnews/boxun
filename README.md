@@ -67,7 +67,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604121911.shtml" target="boxun-mirror">七国集团声明反对东海和南海挑衅行为大陆恼羞成怒</a>
 </h2>
