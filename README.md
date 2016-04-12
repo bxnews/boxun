@@ -67,7 +67,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 0分钟前</small>
+	<small> ============== 5分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604110313.shtml" target="boxun-mirror">川普资助商、中国易乾董事长刘丹涉金融诈骗公司被查封</a>
 </h2>
