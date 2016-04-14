@@ -67,7 +67,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 25分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604130834.shtml" target="boxun-mirror">出口转内销：习近平家人疑公开回应巴拿马文件请看博讯热点：习近平观察</a>
 </h2>
