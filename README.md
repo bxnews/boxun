@@ -19,6 +19,56 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604140140.shtml" target="boxun-mirror">福建尤溪数千村民占领政府抗议污染项目开工请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>福建尤溪数千村民占领政府抗议污染项目开工<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月14日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604140140" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      福建省三明市尤溪县西滨镇的数千村民，周三（4月13日）占领西滨镇政府，抗议中节能大型高危废物处理项目开工，村民一度与政府人员、警察发生冲突，1名老人被打伤。<br>
+    <br>
+    为抗议中节能大型高危废物处理项目落户西滨镇，担心环境遭到污染的上万村民曾在去年发起多次大规模示威，去年12月1日，曾有上万村民包围西滨镇政府，迫使当地政府暂时放弃该项目。4月11日，在听闻政府违背承诺，在当天开工该项目后，西滨镇村民再次发起示威，全镇罢市、罢课。<br>
+    <br>
+    网友“几块钱51950”发帖说：尤溪政府不顾西滨人民的强烈反对，强行为中节能医疗废品处理厂剪彩，该厂距离居民区仅几百米，严重危害西滨人民的健康 ，西滨人民反对中节能落户西滨，且强行让西滨的老百姓签承诺书，西滨人民为抵抗政府的不顾百姓的死活进行游行 。<br>
+    <br>
+    13日上午，数千村民聚集到西滨镇政府，冲入办公大楼，要求当地政府放弃污染项目，与政府人员、警察发生冲突，一名老人被政府人员打伤。<br>
+    <br>
+    网友“别闹好好Dei”发帖说：村民与政府镇长对峙，有村民已被警察打进医院生死未卜，甚至有村民下跪磕头但镇长被围在协警和警察中间一言不发！从早上七点到现在并无一位政府人员出面解决此事。<br>
+    <br>
+    “别闹好好Dei”说：有好几千人示威，政府没有一个人出面解决，还在对峙。<br>
+    <br>
+    现场图片、视频显示，大批村民聚集在西滨镇政府门口、办公室、会议室等地，一些办公设备被砸毁，有大量警察在现场，一名老人受伤被抬走。<br>
+    <br>
+    截止当天下午，村民的示威仍在进行中。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604140140china1.jpg" alt="福建尤溪数千村民占领政府抗议污染项目开工"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604140140china2.jpg" alt="福建尤溪数千村民占领政府抗议污染项目开工"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604140140china3.jpg" alt="福建尤溪数千村民占领政府抗议污染项目开工"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604140140china4.jpg" alt="福建尤溪数千村民占领政府抗议污染项目开工"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604140140china5.jpg" alt="福建尤溪数千村民占领政府抗议污染项目开工"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604140140china6.jpg" alt="福建尤溪数千村民占领政府抗议污染项目开工"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604140140china7.jpg" alt="福建尤溪数千村民占领政府抗议污染项目开工"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604140140china8.jpg" alt="福建尤溪数千村民占领政府抗议污染项目开工"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604140140china9.jpg" alt="福建尤溪数千村民占领政府抗议污染项目开工"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604140140" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604131038441.jpg http://upload.bx.tl/news/temp14/201604131038442.jpg http://upload.bx.tl/news/temp14/201604131038443.jpg http://upload.bx.tl/news/temp14/201604131038444.jpg http://upload.bx.tl/news/temp14/201604131038591.jpg http://upload.bx.tl/news/temp14/201604131038592.jpg http://upload.bx.tl/news/temp14/201604131038593.jpg http://upload.bx.tl/news/temp14/201604131038594.jpg http://upload.bx.tl/news/temp14/201604131039061.jpg--> 3230140       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604130834.shtml" target="boxun-mirror">出口转内销：习近平家人疑公开回应巴拿马文件请看博讯热点：习近平观察</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -855,60 +905,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/yuanqing/2016/04/201604011645.shtml" target="boxun-mirror">博闻特写：中国访民白宫外再度拦截习近平座驾纪实请看博讯热点：习近平访美</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>博闻特写：中国访民白宫外再度拦截习近平座驾纪实<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xjpvisitingUSA.shtml">习近平访美
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=yuanqing201604011645" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604011645yuanqing1.jpg" alt="博闻特写：中国访民白宫外再度拦截习近平座驾纪实"><p>（李焕君去年拦截习座驾时被美国警方抬走。）<br>
-    <br>
-    【博闻社记者美国首都华盛顿报道】美国东部时间 2016年3月31日，晚9时许，在华盛顿DC 17街和E街交叉口白宫西门附近的道路上，来自中国的访民李焕君，箭步跨越隔离围栏，拦停了从白宫晚宴出来的习近平车队，成为此次习近平访美又一意外插曲。<br>
-    <br>
-    本社日前已报道，为防来自祖国的同胞越洋拦习近平的车告状，中国代表团200多人的先遣队提前数日抵华盛顿，与中国驻美大使馆工作人员合力工作，与美国方面交涉，务求防止出现中国访民半路拦车的情况。美方也对中国访民在华盛顿的活动进行跟踪盯梢。甚至出动直升机监视。<br>
-    <br>
-    李焕君曾于2015年9月25日习近平访问华盛顿期间拦停过习近平的国事访问车队告御状。<br>
-    <br>
-    31日下午5点半开始，几十个国家领导人的车队陆续进入白宫，在白宫西门至少进去的30个以上的车队，来华盛顿告御状的中国访民分成两队分别去白宫东门和西门告御状。上海访民袁健斌 陈黛丽 蔡文君带领的十几位访民一直守在东门。<br>
-    <br>
-    哈尔滨访民赵岩，北京访民李焕君 吉林访民马勇田带领20多位等候在西门。等候在西门的访民看到30几个车队进入白宫，除了奥巴马车队所有的车队都没有挂国旗 倒数第二个车队非常庞大，警察戒备的格外严密，访民在美国警察的严防死守下没有拦截住进入白宫晚宴的车队。<br>
-    <br>
-    当时领馆安保人员一直没撤，数十名领馆工作人员，和近百名福建台山同乡会红马甲，开始围住访民。访民袁建斌高举五星红旗，进行慷慨激扬的演讲。在场的中方安保人员和红马甲听的入神，注意力被吸引过去。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604011645yuanqing2.jpg" alt="博闻特写：中国访民白宫外再度拦截习近平座驾纪实"></p>
-<p>（3月31日在华府现场的访民。）<br>
-    <br>
-    9时许，白宫晚宴后，车队从白宫出来，这时两处守候告御状的访民已经汇集到了西门，部分访民由于请愿了一整天，实在吃不消，先行返回休息等明天继续请愿。留下来坚持的访民大约20人左右，继续苦等白宫晚宴后的车队。<br>
-    <br>
-    当车队从白宫大院中亮着警灯鱼贯而出时时，访民认出了习近平的车队，有李焕君，赵岩，钟国伟，王春燕迅速向车队的前进方向追去。<br>
-    <br>
-    当时访民追跑在围栏外的人行道上，跑在前面的赵岩等三人被白宫特情局警员拦截，当时警员已做出了拔枪示意。三位访民被拦截在围栏下一个出口处，这是武装警车已经尾随而至。<br>
-    <br>
-    跑在后面的李焕君突然跨过围栏直奔习近平座驾。行进中的车队被完全拦停，三名特情人员急速出击将已经冲到习近平车队前面的李焕君扑到，被扑到在地的李焕君依然在喊口号：“还我财产 还我家园”。随后又赶来了几名特警一起把李焕君按在地上约有5分钟。这时车队已加大速度，疾驰离去。<br>
-    <br>
-    在追赶习近平车队的过程中，访民葛丽芳，付玉霞被警察推到，随后救护车响着警笛赶到，医护人员对李焕君进行简单的检查，李焕君受了轻伤，正在治疗的李焕君一直在喊口号。这时访民在警车对面一直回应李焕君的口号，给予鼓励和声援。<br>
-    <br>
-    当时赵岩立即联系叶宁律师，刚飞行落地纽约的叶宁立即登上前往华盛顿的大巴车。明天一早直接赶到联邦法院进行交涉。<br>
-    <br>
-    一个小时左右，李焕君被戴上手铐，耳钉首饰被保护性卸下。移到警车旁，特警局和地方警察局交换手续，李焕君被特情局警车带走。<br>
-    <br>
-    不知此次习近平是否派随员在4月1日再次接受访民的投诉，现场一位戴着眼镜的大使馆官员说：访民中的很多人都被定为敌对势力，不知此说习近平作何判断。<br>
-    <br>
-    这次在白宫拦截习近平的中国访民有：李焕君 杭浩东 陈秀平 陈万凤 陈文然 阵黛莉 江芹 Phil 夫妇 马志森 葛丽芳 付玉霞 白节敏 朱正华 张翠萍 蔡文君 王春艳 王爱连 张广利 胡小龙 朱秀雅 袁建斌 艾福荣 杉本华 钟国伟 马勇田 张伟学 刘景德 赵岩等。<br>
-    <br>
-    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_79577.html" style="color:red;">点此链接</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=yuanqing201604011645" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)</p>
-<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
-<!-- http://upload.bx.tl/news/temp14/201604010149071.jpg http://upload.bx.tl/news/temp14/201604010149072.jpg--> 3281645       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 13天前</small>
 </p>
 <table>
     <tr>
