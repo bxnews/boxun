@@ -19,6 +19,52 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604151823.shtml" target="boxun-mirror">紫禁城来鸿：巴拿马文件令中南海权力角逐趋公开化请看博讯热点：深度报道</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>紫禁城来鸿：巴拿马文件令中南海权力角逐趋公开化<br><font color="blue" size="2">请看博讯热点：<a href="/hot/investigative.shtml">深度报道
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月15日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604151823" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604151823china1.jpg" alt="紫禁城来鸿：巴拿马文件令中南海权力角逐趋公开化"><p>（习近平近日专门就文物保护作批示,或为转移公众视线。）<br>
+    <br>
+    【博闻社北京特别报道】巴拿马文件在世界范围内广泛传播已近半月，而在中国大陆，表面上仍然是死水一潭。但其实树欲静风不止，中南海暗涌频现。中共高层因巴拿马文件暗中角力。习近平用文物保护和国家安全话题转移视线。李克强则大谈廉政建设，呼吁「领导干部要培育良好家风」，其间微妙令外界侧目。<br>
+    <br>
+    博闻社此前多次报道，因巴拿马文件涉及至少八名现任和退休的中共政治局常委，以及近二万名中国权贵和社会精英，其中包括习近平，中共政治局常委就专门商研对策，当局全面封锁相关消息和评论。<br>
+    <br>
+    接近中南海人士向博闻社透露，在继续对外装聋作哑同时，中共高层积极调整应对策略。鉴于巴拿马文件已经公布的部分内容矛头直接指向中共最高层，且预告下月仍将有更多「猛料」曝光，当局定性巴拿马文件为西方煽动中国人民对党和政府不满、最终想达到推翻中共的一个阴谋。<br>
+    <br>
+    为稳定人心，习近平下令党内要掀起一场「民心保卫战」，并为这场民心保卫战定下了基调，要求一定要「打好打赢」这场「看不见硝烟」的反颠覆之战。<br>
+    <br>
+    博闻社获悉，中共近期大张旗鼓号召全党要「两学一做」(即学党章党规、学习近平系列讲话，做合格党员)，通知是由中共中央办公厅直接下发以外，难近期中办还特别召见《人民日报》、新华社和中央电视台三大央媒高层，就如何宣传报道两学一做进行部署，而此类会议通常应由中宣部牵头和召集。<br>
+    <br>
+    据了解，参加会议的央媒高层心中有疑但不敢多问，但私下有高层指，因为巴拿马文件已经涉及意识形态和宣传舆论总掌门刘云山，所以中办似是有意避开刘云山而进行的。<br>
+    <br>
+    博闻社驻北京记者还了解到，为免引发外界猜测又能够紧密配合中央对巴拿马文件的应对策略，三大央媒已启动形式多样的报道计划，但是被严格禁止在任何报道中使用「民心保卫战」等类似表述。<br>
+    <br>
+    中南海人士要求博闻社，「请特别关注近期习近平和李克强两人的举动」。公开资料显示，习近平近日专门就保护文物作指示，提文物保护16字方针，要求「切实加大文物保护力度，推进文物合理适度利用，使文物保护成果更多惠及人民群众」。官方还选择在昨天宣判一宗前年发生在辽宁的文物被盗大案，并称之为「建国以来文物第一大案」。<br>
+    <br>
+    昨日，习近平又就国家安全问题作出重要批示，表面为设立全民国家安全教育日批示，要求「不断提高人民群众的安全感和幸福感」，实则大有以「国家安全」抵御消除巴拿马文件「恶劣影响」之意。<br>
+    <br>
+    博闻社获悉，习近平之所以如此高调拿文物保护和国家安全当话题，是中南海头号智囊笔杆子王沪宁的主意，王更“加班加点”突击为习的讲话「润笔」，今日国安委全体委员开会，传达习近平的指示，也是国安委成立以来首次全会。<br>
+    <br>
+    值得玩味的是，新华社今天特别全文补发总理李克强上月底习近平访美期间，就已经召开的国务院廉政会议上的讲话全文，并且重点配发「李克强：党员领导干部要培育良好家风」主标题，其用意令人侧目。<br>
+    <br>
+    中南海人士暗示，这是似仍未被卷入巴拿马文件风波的李克强，为深陷其中的前任领导人，尤其是现政治局常委同事们进行巧妙的回应、力挺和背书。是否属于「高级黑」以及如何解读，外界可以见仁见智。<br>
+    <br>
+    博闻社此前已经就巴拿马文件震撼世界的10大冲击波作全面和详细的深度剖析；尽管中共表面上对巴拿马文件继续保持装聋作哑，但习近平吹响了「民心保卫战」的号角。应该也算是巴拿马文件震出的另一余波！<br>
+    <br>
+    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_82894.html?variant=zh-hans" style="color:red;">点此链接</a>）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604151823" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604150327061.jpg--> 1321823       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604150614.shtml" target="boxun-mirror">中共报复巴拿马文件传播广东律师葛永喜被警察带走</a>
 </h2>
 <p><tr>
@@ -873,98 +919,6 @@
 <b></p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604041246.shtml" target="boxun-mirror">习近平参加核峰会：欢迎和抗议、拦车视频大全请看博讯热点：抗议示威</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>习近平参加核峰会：欢迎和抗议、拦车视频大全<br><font color="blue" size="2">请看博讯热点：<a href="/hot/protest.shtml">抗议示威
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201604041246" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     中共总书记习近平3月30日-4月1日在华盛顿参加核峰会期间，领馆动员近万人打着巨大的标语，欢迎习近平。而访民等抗议群体则穿插其中，一些访民仍和<a href="/news/gb/intl/2015/09/201509260704.shtml">2015年9月</a>一样，寻机拦车喊冤。但这次车队经过路线不断调整，领馆雇佣保安也用出各种手段跟踪、甚至叫警察非法拘禁访民。<br>
-    <br>
-    欢迎队伍：<br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl1.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"><p><br>
-    <br>
-    博讯陆续收到特约记者和访民拍摄的视频，内容非常丰富，特别整理如下供各界观看（本文图片为来自上海的艾福荣所拍）：<br>
-    <br>
-    视频1：习近平到华盛顿参加核峰会，欢迎和抗议群体（点击到youtube观看） <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/hkTM-0mc93I" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    视频2：习近平车队被近距离拍到<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/NXIY7JyVYlo" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    视频3：男子抢夺访民喇叭被警察武力制服 <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/0-cq8Ir0lhE" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl2.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
-<p><br>
-    <br>
-    李焕君拦车被捕：<br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl3.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
-<p><br>
-    <br>
-    李焕君拦车现场视频（不同人士、角度拍摄）：<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/0Bm9NgvZnIs" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/g23p4AFEb6c" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/yrpgwxzkpEk" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/iATgPyJzcfY" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    艾福荣被这两名警察背铐，限制人身自由超1小时，叶宁律师表示：艾福荣只是在人群中走动，并没拦车，限制自由是非法的。<br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl4.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
-<p><br>
-    <br>
-    欢迎队伍的标语：财力雄厚<br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl5.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
-<p><br>
-    <br></p>
-<center><font size="4"><b>欢迎、抗议视频：</b></font></center>
-<br>
-    <br>
-    习近平到华盛顿参加核峰会，欢迎和抗议群体 <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/hkTM-0mc93I" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    习近平参加核峰会：华盛顿一片红海洋 <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/TaLqayoKMzo" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    习近平参加核峰会：民主党、访民抗议 <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/Uh1rHtp_1VU" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    习近平参加核峰会：访民围住中方人员 <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/DSxzLd6X5Pk" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    习近平参加核峰会：访民高呼“习近平见访民” <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/yDtWlo0OkNI" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    习近平参加核峰会：谴责男子、喊口号、媒体采访 <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/9CEcYVIYg3c" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    习近平参加核峰会：民主党抗议 <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/lo9_B-dmlhg" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    核峰会红马甲欢迎队伍气焰张狂 大喇叭覆盖抗议呼声 <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/dfGryDgM0-s" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    核峰会欢迎 抗议 请愿队伍力争发声 恍然文革时代再现 <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/00bIzJOfbjg" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    下三图为中方安全人员：<br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl6.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"><p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl7.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604041246intl8.jpg" alt="习近平参加核峰会：欢迎和抗议、拦车视频大全"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201604041246" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604032127111.jpg http://upload.bx.tl/news/temp14/201604032127112.jpg http://upload.bx.tl/news/temp14/201604032127117.jpg http://upload.bx.tl/news/temp14/201604032127118.jpg http://upload.bx.tl/news/temp14/201604032127113.jpg http://upload.bx.tl/news/temp14/201604032127114.jpg http://upload.bx.tl/news/temp14/201604032127115.jpg http://upload.bx.tl/news/temp14/201604032127116.jpg--> 4761246       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
