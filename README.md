@@ -80,7 +80,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 29分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604140140.shtml" target="boxun-mirror">福建尤溪数千村民占领政府抗议污染项目开工请看博讯热点：突发事件</a>
 </h2>
