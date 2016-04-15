@@ -63,7 +63,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604150614.shtml" target="boxun-mirror">中共报复巴拿马文件传播广东律师葛永喜被警察带走</a>
 </h2>
@@ -126,7 +126,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604140140.shtml" target="boxun-mirror">福建尤溪数千村民占领政府抗议污染项目开工请看博讯热点：突发事件</a>
 </h2>
@@ -237,7 +237,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604140043.shtml" target="boxun-mirror">台湾籍电信诈骗嫌犯遣中国，公安部回应:两岸司法应合作</a>
 </h2>
@@ -273,7 +273,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604130834.shtml" target="boxun-mirror">出口转内销：习近平家人疑公开回应巴拿马文件请看博讯热点：习近平观察</a>
 </h2>
@@ -316,7 +316,7 @@
     <br>
     那么我们来看看习总说到做到了没有？2012年中共11（应为18，疑笔误</td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604120322.shtml" target="boxun-mirror">江西数千村民连日示威抵制污染厂遭千警镇压请看博讯热点：突发事件</a>
 </h2>
@@ -382,7 +382,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/04/201604121834.shtml" target="boxun-mirror">巴拿马文件冲击波：震荡的世界与无动于衷的中共请看博讯热点：深度报道</a>
 </h2>
@@ -473,7 +473,7 @@
     <br>
     但是在经过一年多夜以继日的秘密调查之后，《南德意志报》的记者巴斯蒂安 奥伯梅尔(Bastian Obermayer)和弗雷德里克 奥伯迈尔(Frederik Obermaier)，却终于可以与并肩作战的国际调查记者联盟的400多位全球同行们，击掌相庆和把酒言欢，并让全世界</p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604110313.shtml" target="boxun-mirror">川普资助商、中国易乾董事长刘丹涉金融诈骗公司被查封</a>
 </h2>
@@ -500,7 +500,7 @@
                        <br>
     易干财富由刘丹于2010年创</td></tr></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604090907.shtml" target="boxun-mirror">独家：令计划被转羁押于北京市第二看守所请看博讯热点：令计划</a>
 </h2>
@@ -530,7 +530,7 @@
     <br>
     博闻社去年曾独家披露，令计划接受审查期间，一直被关在京郊南部河北境内一个海军航空兵基地，由海军陆战队特种部队和中央警</td></tr></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/yuanqing/2016/04/201604080130.shtml" target="boxun-mirror">《环球时报》总编胡锡进“翻墙”，中纪委该怎么处理？请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -601,7 +601,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604082119.shtml" target="boxun-mirror">独家：中共常委再议巴拿马文件对策刘云山张高丽解释请看博讯热点：深度报道</a>
 </h2>
@@ -661,7 +661,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604072014.shtml" target="boxun-mirror">观察：巴拿马文件风暴席卷全球亚洲应该如何自处</a>
 </h2>
@@ -677,7 +677,7 @@
     <br>
     但他承认事情取得了进展。2010年美国国会通过了《海外账户纳税法案》(Foreign Tax Compliance Act)，该法案要求外国银行与美国国税局(Internal Revenue Service)</p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604072135.shtml" target="boxun-mirror">李焕君手术后出院赵岩专访挖出强拆幕后/视频请看博讯热点：访民动态</a>
 </h2>
@@ -697,7 +697,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604070011.shtml" target="boxun-mirror">紫禁来鸿：巴拿马文件束手无策习近平最新“批示”请看博讯热点：习近平观察</a>
 </h2>
@@ -733,7 +733,7 @@
     <br>
     </td></tr></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604050028.shtml" target="boxun-mirror">四川数千工人连日罢工遭千警镇压近百人被抓捕请看博讯热点：突发事件</a>
 </h2>
@@ -813,7 +813,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604051950.shtml" target="boxun-mirror">郭伯雄受贿八千万移送起诉开除军籍剥夺上将军衔请看博讯热点：反腐打老虎</a>
 </h2>
@@ -860,7 +860,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604050845.shtml" target="boxun-mirror">紫禁来鸿：巴拿马文件炸开锅中南海紧急开会忙灭火请看博讯热点：习近平观察</a>
 </h2>
@@ -918,7 +918,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
