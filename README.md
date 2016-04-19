@@ -19,6 +19,54 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604190639.shtml" target="boxun-mirror">独家:河北省常委张越随身带枪中纪委带40特警抓捕请看博讯热点：周永康</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家:河北省常委张越随身带枪 中纪委带40特警抓捕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/zyk.shtml">周永康
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604190639" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    博闻社独家报道：中纪委网站4月16日公布消息，河北省常委、前政法委书记张越涉嫌严重违纪，接受组织调查。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       本社获悉，张越是在参加省委召开常委（扩大）会议后的第二天下午6点下班前，在办公室被中纪委来人带走。据消息人士透露，大约有40名特警参与抓捕张越的行动，张越被带走的时候，两眼紧闭，脸色苍白，目击者称他被抬进警车。传说张越随身带有2把手枪，所以抓捕行动显得格外谨慎。<br>
+    <br>
+    河北省委随即召开会议传达中纪委的决定，省委书记赵克志要求将决定层层传达到基层，并宣布了几项人事任免。<br>
+    <br>
+    此前曾数次传出张越被双规的消息，本社最新了解，这些传闻并非空穴来风。信息显示，张越被中纪委约谈了三次，第一次（2015年3月10日）是去了2天就回来。第二次是去了3天（2015月31日），第三次是（2015年8月29日）去了5天。原以为在第三次被约谈后就会进入双规程序，结果5天内张越还是安然无恙地返回河北。据一位消息灵通人士介绍，京城有一位党内大佬一直在为张越说话，张越的错误和问题全部推到周永康以及其他领导人身上。使得张越一次次过关。这一次突然抓捕张越，是中共党内派别矛盾激化所致，还是其他原因，记者目前不得所知。<br>
+    <br>
+    张越这次正式被双规后，河北政坛如同地震，有不少与张越有牵连的人物也被推向前台，如河北省承德市副市长，公安局局长王玉洁昨天也被中纪委约谈，河南省前政法委常务书记李承先曾经是张越的密友，在听到张越被双规消息后，心脏病突发立刻进医院治疗。<br>
+    <br>
+    在张越被双规前一周，隐秘在海外的郭文贵用邮件联络博讯记者西诺，希望澄清一些事实，当记者继续联络郭先生，郭没有回应。<br>
+    <br>
+    博讯记者西诺 纽约报道<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_83663.html">点击这里</a><br>
+    -
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604190639" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3330639       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604180300.shtml" target="boxun-mirror">美国务卿贝克要人吴建民揭钱其琛撒谎</a>
 </h2>
 <p><tr>
@@ -941,42 +989,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/04/201604070011.shtml" target="boxun-mirror">紫禁来鸿：巴拿马文件束手无策习近平最新“批示”请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁来鸿：巴拿马文件束手无策 习近平最新“批示”<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604070011" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     博闻社报道：“国际调查记者联盟”（ICIJ）日前披露，巴拿马的一家法律服务公司（莫萨克冯赛卡）发生上千万份机密文件外泄，导致全球政治人物、商界大佬离岸秘密账户等信息曝光。在巴拿马莫萨克冯赛卡公司的内部统计中：在所有开设离岸影子公司的客户中，中国大陆居民占了第一位，之后才是香港居民。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    法新社报道称，巴拿马莫萨克冯赛卡（Mossack Fonseca）法律服务公司建立了一个逃税天堂，而这个法律服务公司开办事务所最多的地方是在中国，其网站显示：它在中国的8个城市设立办事机构。其中有金融中心城市上海和深圳，有港口城市大连，青岛，宁波，临近上海的杭州，与煤炭工业相关的济南，然后就是香港这个中国拥有最多律师和银行的城市，香港所带来的客户远远多于英国和瑞士。这是国际记者调查联盟一年工作所得出的结论之一。<br>
-    <br>
-    国际记者联盟认为：“巴拿马档案”中全球权贵避税天堂的爆料把至少8个中国的现任和前任国家领导人的贪腐问题提了出来，这些人都是中共政治局的常委级别，拥有领导国家的无比大的权力。习近平的妹夫，李鹏的女儿，贾庆林的孙女都拥有离岸公司。<br>
-    <br>
-    巴拿马文件细节将在5月初公开，今天，冰岛总统已经因为被曝光其海外藏匿资产而在示威抗议下辞职。巴拿马文件对中共的冲击力度目前还无法估量，博闻社昨天独家披露，中南海针对巴拿马文件事件紧急开会商议对策，决定以“采取装聋作哑和封堵禁删的必杀技”对付。<br>
-    <br>
-    本社记者最新获悉，中国外交部经过夜以继日的苦思冥想，但无计可施。而习近平听取汇报后，作最新批示；总体要求是一律保持沉默，以不变应万变。习近平强调具体策略有：<br>
-    <br>
-    </td></tr></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
