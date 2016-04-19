@@ -141,7 +141,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604170527.shtml" target="boxun-mirror">周永康心腹张越落马镇压民间维权头号打手请看博讯热点：周永康</a>
 </h2>
@@ -469,7 +469,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604142319.shtml" target="boxun-mirror">芮成钢将在吉林受审博闻社总编辑：诉经济罪可能性大请看博讯热点：令计划</a>
 </h2>
@@ -659,7 +659,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604121911.shtml" target="boxun-mirror">七国集团声明反对东海和南海挑衅行为大陆恼羞成怒</a>
 </h2>
