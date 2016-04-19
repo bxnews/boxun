@@ -19,6 +19,123 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604192238.shtml" target="boxun-mirror">赤壁袁小华、袁兵案庭审结束十多位围观公民被抓走</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走<br><font color="#000fC0">(<small>博讯北京时间2016年4月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604192238" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <br>
+    博讯记者获悉，湖北赤壁五君子案之袁小华、袁兵案在2016年4月19日上午八半点开始庭审之后，中午12时10分休庭。下午1时10分继续开庭之后，一直持续到下午六点左右才结束，法官没有当庭宣判。上午对指控的寻衅滋事罪的证据进行质证，下午对聚众扰乱公共秩序罪的证据进行质证，指控袁小华、袁兵参与了2013年初的南方周末事件。<br>
+    <br>
+    代理律师蔺其磊向博讯记者透露，他和刘正清、卢京美律师一起为他们做无罪辩护。袁小华、袁兵两人也都认为他们自己是无罪的。他们认为，他们所做的举牌等行为，都是一个公民应尽的义务，也是现行宪法和国际人权公约中所规定的公民权利，他们这些行为没有造成社会秩序混乱，也没有严重的影响社会秩序，更没有造成很多人围观。所谓寻衅滋事罪和扰乱社会秩序罪的法律规定构成要件也根本不符合。所以，他们认为这是一个政治迫害的案件。<br>
+    <br>
+    蔺其磊律师还向博讯记者透露，法院门口左右两边很远的地方就被封住，其他人根本走不到法院门口，而且很多准备围观的公民被抓走。蔺其磊律师在庭审结束后发出信息说：“【赤壁案件庭审结束，“人民法院”门前没人民】蔺其磊律师：今日18时，赤壁案件五君子之袁兵、袁小华涉嫌寻衅滋事、聚众扰秩一案庭审结束。走出法庭我和刘正清、卢京美律师想共同照张相片留念，可惜因为法院门前封路，连找个人给找个合影竟找不到，心里不是滋味，只好我们自己互照，照的不好，太对不起观众了[睡][睡][睡]”<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china1.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"><p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china2.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china3.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china4.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china5.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china6.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    为了阻止公民围观，赤壁当局不仅将法院门口的街道以修路的名义封锁，而且还大肆抓捕围观的公民。博讯记者获悉，有张爱嘉、聂光、王家伟、谭爱军、孙涛、龚新华、朱承志、刘本琦、孙德胜、黄雨章、胡建明、贾榀、鲍乃刚、胡剑鸣等公民因为到赤壁围观被抓。<br>
+    <br>
+    在开庭前夕，湖北公民张爱嘉、广东公民王家伟、聂光前往赤壁围观，到达赤壁后三人分别在4月17日晚上和18日早上被抓后失踪。<br>
+    <br>
+    4月17日，张爱嘉被抓时，维权人士沈艳秋发出信息说：“23点50分接剑雄姐姐电话，张姓女子爱嘉刚到赤壁她家，即被当地有司抓走！请关注！”<br>
+    <br>
+    4月18日早上，有国保打聂光电话，随后聂光和王家伟失去联系，两人的手机都关机。下午两点左右，维权人士孙涛前往他们入住的京都宾馆打听情况，确认二人被人带走。孙涛说：“#关注赤壁#继昨晚网友爱嘉被赤壁有司带走后，今天中午王家伟、聂光两人也失去联系。刚才我找到他们入住的旅馆打听情况，确定他们二人是被人带走的！”<br>
+    <br>
+    4月18日晚上，谭爱军、孙涛、龚新华、朱承志、刘本琦、孙德胜、黄雨章、胡建明、贾榀、鲍乃刚、胡剑鸣、吴清运等公民到赤壁围观被抓。<br>
+    <br>
+    孙德胜在19日早上十点被湖北蕲春国保接走后发出信息说：“昨晚22点半在赤壁火车站出站口，我和贾榀被当地国保和警察控制，以涉嫌非法集会带到赤公安局。坐了8个多小时的铁板登，做了三小时的笔录，问为什么要来赤壁，什么人组织的，我拒绝在笔录上签名。要采集本人的D N A和指纹，被我拒绝。在公安局看到朱承志老先生，战斗力特强。刚蕲春国保接我回家，现在高速路中。估计被抓的人有10多人，现贾榀和朱承志老先生还在公安局。”<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china7.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    参与围观的公民吴清运说：“昨天我和鲍乃刚，还有孙涛和龚新华相聚不到四十分钟在吃饭时被抓到埔圻派出所冻了一夜。昨天我花钱订的宾馆不能睡钱也不退，今天下午一点多被老家国保拉回通山，传唤证也没拿到，接刘正清律师来武汉为王芳申请取保也落空了，现在刚到武昌。”<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china8.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    孙德胜还透露：“昨晚负责传唤我的三个人，做笔录的1叫陈皓，还有个缉毒大队副队长石伟峰，另一个是女的，姓吴，24岁。从他们的聊天中得知，石伟峰是在他办公室看到的，陈皓出示了警察证。”<br>
+    <br>
+    对于赤壁袁小华、袁兵案，很多公民予以关注。著名网友秀才江湖说：“赤壁开庭，从早上到黄昏，邪恶的判决结果出来了吗？今天一天我都在等待！知道结果后，我会第一时间公布，因为我知道：网络上有不计其数的人和我一样，正在关注赤壁这场不义的审判。他们已经关了近三年，如果判三年，一个多月后就会回到我们身边，我又能见到我温文尔雅的的袁小华大哥了！期待。”<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china9.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china10.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china11.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china12.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china13.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china14.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china15.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china16.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china17.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china18.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china19.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china20.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china21.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china22.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china23.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china24.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china25.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604192238china26.jpg" alt="赤壁袁小华、袁兵案庭审结束 十多位围观公民被抓走"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604192238" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604190739521.jpg http://upload.bx.tl/news/temp14/201604190739522.jpg http://upload.bx.tl/news/temp14/201604190739523.jpg http://upload.bx.tl/news/temp14/201604190739524.jpg http://upload.bx.tl/news/temp14/201604190739525.jpg http://upload.bx.tl/news/temp14/201604190739526.jpg http://upload.bx.tl/news/temp14/201604190739527.jpg http://upload.bx.tl/news/temp14/201604190739528.jpg http://bnn.co/news/images/2016/04/201604190048china1.jpg http://bnn.co/news/images/2016/04/201604190048china2.jpg http://bnn.co/news/images/2016/04/201604190048china3.jpg http://bnn.co/news/images/2016/04/201604190048china4.jpg http://bnn.co/news/images/2016/04/201604190048china5.jpg http://bnn.co/news/images/2016/04/201604190048china6.jpg http://bnn.co/news/images/2016/04/201604190048china7.jpg http://bnn.co/news/images/2016/04/201604190048china8.jpg http://bnn.co/news/images/2016/04/201604190048china10.jpg http://bnn.co/news/images/2016/04/201604190048china11.jpg http://bnn.co/news/images/2016/04/201604190048china12.jpg http://bnn.co/news/images/2016/04/201604190048china13.jpg http://bnn.co/news/images/2016/04/201604190048china14.jpg http://bnn.co/news/images/2016/04/201604190048china15.jpg http://bnn.co/news/images/2016/04/201604190048china16.jpg http://bnn.co/news/images/2016/04/201604190048china17.jpg http://bnn.co/news/images/2016/04/201604190048china18.jpg http://bnn.co/news/images/2016/04/201604190048china19.jpg--> 2402238       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604190639.shtml" target="boxun-mirror">独家:河北省常委张越随身带枪中纪委带40特警抓捕请看博讯热点：周永康</a>
 </h2>
 <p><tr>
@@ -969,26 +1086,6 @@
     据纽约时报报道，伯克利的经济学助理教授加布里埃尔・祖克曼(Gabriel Zucman)强烈建议，不要一看到莫萨克-冯塞卡设立的离岸公司有所减少就妄下定论。“这仅仅是一个国家，”著有《列国的隐藏财富》(The Hidden Wealth of Nations)一书的祖克曼说。该书揭露了离岸中心如何让逃税和避税成为可能。<br>
     <br>
     但他承认事情取得了进展。2010年美国国会通过了《海外账户纳税法案》(Foreign Tax Compliance Act)，该法案要求外国银行与美国国税局(Internal Revenue Service)</p>
-<p>
-	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/04/201604072135.shtml" target="boxun-mirror">李焕君手术后出院赵岩专访挖出强拆幕后/视频请看博讯热点：访民动态</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>李焕君手术后出院 赵岩专访挖出强拆幕后/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/fangmin.shtml">访民动态
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201604072135" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      华盛顿DC 2016年4月6日：今天中午李焕君出院，医生说手术成功，半年后骨头长合后要开刀取出钢板，两周内不能脱离绷带，1周后要进行复查，同时3月内要有人照顾。<br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604072135intl1.jpg" alt="李焕君手术后出院 赵岩专访挖出强拆幕后/视频"><p><br>
-    博讯网的网友非常关注李焕君的伤情，博讯记者赵岩在李焕君稍事休息后专访了李焕君，第一时间做专访能够进行是由于做完手术不久，伤口疼痛，说不出的难受也没法入眠，借此机会，李焕君全面详细的向网友介绍了自己上访的种种遭遇和到美国后继续维权，在中国驻美国大使馆两次拦习近平座驾告御状的经历。<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/rbo0GL78A6g" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201604072135" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604070638531.jpg--> 2382135       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 13天前</small>
 </p>
