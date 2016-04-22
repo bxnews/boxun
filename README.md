@@ -19,6 +19,56 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604220737.shtml" target="boxun-mirror">浙江海盐事件升级上万人上街与警冲突上百人遭抓打请看博讯热点：突发事件</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>浙江海盐事件升级上万人上街与警冲突上百人遭抓打<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604220737" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      周四（4月21日），浙江省嘉兴市海盐县市民抵制垃圾焚烧项目的行动升级，上万市民走上街头，要求当地政府彻底停止该项目，与大批警察爆发激烈冲突，数以百计的市民被打伤，大量市民被抓走，大量车辆遭到警察疯狂打砸。<br>
+    <br>
+    当地网友透露，2000年以后，西塘桥镇开始了较大规模的拆迁，同时搬入多家化工企业和造纸企业，以及污水处理厂，对当地环境造成了严重污染，周边居民苦不堪言。近日，当地政府又决定在西塘桥修建一座垃圾焚烧发电厂，引发市民不满，于本月20日发起示威，在当天的行动中，市民两次遭打警察镇压，多人被殴打十余人被抓捕。<br>
+    <br>
+    21日上午，上千市民继续到开发区政府门口，要求当地政府停止项目，期间，有多名市民遭到到场阻拦的警察殴打和抓捕，在当地政府宣布暂停项目后，市民暂时散去。<br>
+    <br>
+    当天晚上，认为当地政府表面宣布暂停项目实为缓兵之计的上万市民再次走上街头，聚集到开发区政府门口，要求政府承诺彻底放弃垃圾焚烧项目。期间，因不满政府官员的傲慢态度，一些市民冲破警戒线进入政府大楼，与大批警察发生激烈冲突。<br>
+    <br>
+    目击网友“狐兔一家”发帖说：政府领导的傲慢导致事态失控，抗议人群冲破警戒线，现场爆发大规模冲突。就在刚才，政府派中型消防车往现场用高压水枪喷射群众，特警见人就打，站着不动被往死里打，好多无辜人员受伤。<br>
+    <br>
+    在冲突中，警察使用高压水枪、催泪弹、辣椒水、警棍等暴打手无寸铁的市民，见人就打无论男女老少，大量来不及逃走的市民被打致头破血流倒地不起，大量市民被抓走继续毒打。疯狗一样的警察还打砸了现场的大量轿车、摩托车，现场一片混乱，人心惶惶。<br>
+    <br>
+    目击网友“小黄人穿着牛仔裤”发帖说：今天晚上，我是现场的目击者，我们是逃出来的，那些像畜生一样的特警，把人要打死，腿也被打断了，打伤的老人不计其数，他们派来的都是嘉兴，南湖，平湖的特警，他们不管是谁，见人就打，伤者无数，就是要把我们造反垃圾焚烧厂的事压下去。<br>
+    <br>
+    多名网友表示，现场的手机信号遭到屏蔽，导致市民无法及时将现场信息发布到网络。同时，网友发布到网络的视频亦被大量删除。<br>
+    <br>
+    （网络图片）<br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604220737china1.jpg" alt=" 浙江海盐事件升级上万人上街与警冲突上百人遭抓打"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604220737china2.jpg" alt=" 浙江海盐事件升级上万人上街与警冲突上百人遭抓打"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604220737china3.jpg" alt=" 浙江海盐事件升级上万人上街与警冲突上百人遭抓打"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604220737china4.jpg" alt=" 浙江海盐事件升级上万人上街与警冲突上百人遭抓打"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604220737china5.jpg" alt=" 浙江海盐事件升级上万人上街与警冲突上百人遭抓打"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604220737china6.jpg" alt=" 浙江海盐事件升级上万人上街与警冲突上百人遭抓打"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604220737china7.jpg" alt=" 浙江海盐事件升级上万人上街与警冲突上百人遭抓打"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604220737china8.jpg" alt=" 浙江海盐事件升级上万人上街与警冲突上百人遭抓打"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/04/201604220737china9.jpg" alt=" 浙江海盐事件升级上万人上街与警冲突上百人遭抓打"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604220737" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604211626241.jpg http://upload.bx.tl/news/temp14/201604211626242.jpg http://upload.bx.tl/news/temp14/201604211626243.jpg http://upload.bx.tl/news/temp14/201604211626244.jpg http://upload.bx.tl/news/temp14/201604211626431.jpg http://upload.bx.tl/news/temp14/201604211626432.jpg http://upload.bx.tl/news/temp14/201604211626433.jpg http://upload.bx.tl/news/temp14/201604211626434.jpg http://upload.bx.tl/news/temp14/201604211626481.jpg--> 2450737       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 0分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604212308.shtml" target="boxun-mirror">苏昌兰因占中被煽颠案开庭五位围观公民被抓走请看博讯热点：占领中环</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -1063,33 +1113,6 @@
     但是在经过一年多夜以继日的秘密调查之后，《南德意志报》的记者巴斯蒂安 奥伯梅尔(Bastian Obermayer)和弗雷德里克 奥伯迈尔(Frederik Obermaier)，却终于可以与并肩作战的国际调查记者联盟的400多位全球同行们，击掌相庆和把酒言欢，并让全世界</p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/04/201604110313.shtml" target="boxun-mirror">川普资助商、中国易乾董事长刘丹涉金融诈骗公司被查封</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>川普资助商、中国易乾董事长刘丹涉金融诈骗公司被查封<br><font color="#000fC0">(<small>博讯北京时间2016年4月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604110313" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社独家】美国共和党总统参选人川普(Donald John Trump)的赞助商之一、美国南卡州方盾集团(Founders)老板刘丹，其在中国的公司近日被中国公安部门查封。据悉原因是涉嫌互联网诈骗，涉及金额逾百亿元人民币，其中相当部份被洗到美国。消息人士透露，以美国公司名义低价收购美国的高尔夫球场、酒店、豪宅和游艇等，再高价转售给自已名下的中国公司，经此洗钱卷走中国投资者的金钱。本社暂时未能联络到身在美国的刘丹本人回应。<br>
-    <br>
-     中国内地金融微信公众号「金融七公主」及东方财富网等媒体4月10日爆料指，中国知名的江苏易干财富集团因董事长刘丹「跑路」去国不归，公司涉嫌资金断链及骗局，其于浙江绍兴上虞两地多家公司本月8日被公安部门查封，大量管理人员被警方带走，截止发稿，易干财富员工仍未被放出。昨日又有消息指，易干南京总部也被当局查封。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    易干财富由刘丹于2010年创</td></tr></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
