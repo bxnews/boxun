@@ -67,7 +67,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10分钟前</small>
+	<small> ============== 15分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604212308.shtml" target="boxun-mirror">苏昌兰因占中被煽颠案开庭五位围观公民被抓走请看博讯热点：占领中环</a>
 </h2>
