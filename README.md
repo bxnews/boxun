@@ -19,6 +19,86 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604230607.shtml" target="boxun-mirror">习近平要“斩草除根”解决团派团中央大遣散请看博讯热点：令计划</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平要“斩草除根”解决团派 团中央大遣散<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604230607" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      习近平要“斩草除根”解决团派 团中央大遣散 中央团校停办本科<br>
+    <br>
+     【博闻社北京特别报道】4月21日下午，一篇《有感于中青院将停办本科》的文章在网络流传，文章的作者系中国青年政治学院（以下称“中青院）教师杨支柱。文中透露：中国青年政治学院本科停办，将回归1985年以前中央团校的状态。消息还透露，中共政治局常委会决定共青团中央将大缩编减员。分析认为习近平要采用“斩草除根”式方法治理团派，杜绝令计划式的人物再出现。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    “没有生源危机和其他任何重大事由的情况下突然停办一所大学，完全不顾历史与现实的合理性，不顾师生们的期望和毕业生的感受，不考虑撕毁一大堆用人合同给求职者带来的损失，团中央这样行使权力是不是太任性了？”杨支柱在文中质疑。<br>
+    <br>
+    对于杨支柱透露的信息，了解情况的中青院教师透露，其所在学院昨天接到学校通知：停止招生，教师进人冻结。该老师分析，目前学校研究生招生工作已于今年4月完成，所以通知中提及的“停止招生”应该是本科生。据悉，中青院中层领导今天开会讨论，“月底拿方案”。<br>
+    <br>
+    停止招生和冻结教师进人的消息让学校老师们感到震惊，知情人士告诉严肃报道，学校高层领导昨天“都一下子一头雾水”。其实，该消息已经在学生中流传一周，直到昨天才被学校证实。<br>
+    <br>
+    据了解，上周五，有中青院的毕业生在校友群里询问学校是否将停办本科教育，随即便有学生向团中央内部人士证实了此消息。<br>
+    <br>
+    不少中青院校友在微信群里询问：“昨天中央政治局常委会召开会议，研究决定，停办中国青年政治学院本科生教育，保留研究生教育。万能的校友知道这是真的吗？”不少校友质疑该消息的真实性：“这事需要上常委会。”<br>
+    <br>
+    随即多名接近团中央的人士证实了此消息：“属实。要落实党的群团改革意见。搞成和中央党校类似。另外，团中央机关大量减编，停止新招人员，机关富余人员两年内分流完毕。下属单位裁撤并减的力度也很大。”<br>
+    <br>
+    据了解，证实以上信息的团中央人士均为中青院毕业生。对于上述改革信息，他们进一步解释：“改革时间表没有那么快，中央深改组同意的方案经4月14日的政治局常委会确认通过，改革在2到3年完成，昨天（4月20日）大会我们自己预估一到两年完成。”<br>
+    <br>
+    消息在这一周继续发酵，但始终未得到中青院领导层的证实，许多老师都以为是谣言。直到4月20日各学院接到通知。<br>
+    <br>
+    4月21日，中青院教师组建微信群讨论此事的解决方法，有教师表示：“我们连基本的知情权都没有，还不如学生信息灵通，真是滑天下之大稽。”有教师向严肃报道提出了担忧：“保留研究生的话，硕导还有可能留下，那些讲师们怎么办呢？”<br>
+    <br>
+    听闻此消息的中青院学生在社交媒体上以“绝版学生”以自称表示无奈，即将毕业的学生发朋友圈：“招生工作停止，教师进人冻结。我自己还没有找到工作，就要开始担心我的博士老师们会不会失业。”<br>
+    <br>
+    中青院系共青团中央的直属高校，开办本科生和研究生教育，提前批招生。1985年12月，中青院在中央团校基础上成立，校门口挂有“中央团校”和“中国青年政治学院”两块牌子，校名为胡耀邦题写。<br>
+    <br>
+    团中央历届领导冯文彬、胡耀邦、韩英、王兆国、胡锦涛、宋德福、李克强、周强、胡春华、陆昊、秦宜智等同志先后任学校校长。<br>
+    <br>
+    已经落马待审的前中办主任令计划即出自中央团校。1978年7月中央团校正式恢复。当时山西运城地区共分配到两个名额,其中一个给了平陆县。<br>
+    <br>
+    令计划被选到团中央学习,荣调前合影留念。照片中共有20人,被围在最中间的令计划显得平静沉稳。其实,他在那群人中,算年纪比较小的。<br>
+    <br>
+    在中央团校学习期间,令计划认识了分管团校的团中央领导,由此被调到团中央,从此登州过府,平步青云。<br>
+    <br>
+    博闻社独家相信报道全文：<a href="http://bowenpress.com/news/bowen_84479.html">紫禁城来鸿：习近平要“斩草除根”解决团派 团中央大遣散 中央团校停办本科</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604230607" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3090607       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604230243.shtml" target="boxun-mirror">郑介甫谈张越被双规：呼吁郭文贵“立地成佛”</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>郑介甫谈张越被双规：呼吁郭文贵“立地成佛”<br><font color="#000fC0">(<small>博讯北京时间2016年4月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604230243" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     以下是西诺电话采访在澳洲的郑介甫：<br>
+     <iframe width="560" height="315" src="https://www.youtube.com/embed/gqPQ5WeZd6M" frameborder="0" allowfullscreen></iframe>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604230243" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4830243       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604220737.shtml" target="boxun-mirror">浙江海盐事件升级上万人上街与警冲突上百人遭抓打请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -950,99 +1030,6 @@
 <b></p>
 <p>
 	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/04/201604130834.shtml" target="boxun-mirror">出口转内销：习近平家人疑公开回应巴拿马文件请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>出口转内销：习近平家人疑公开回应巴拿马文件<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604130834" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社】巴拿马文件风波震荡多日后，4月12日晚，内地微信公号“读家”和界面网突然刊出一篇文章“习总管教好子女和亲戚没？”正面回应巴拿马文件披露习近平姐夫邓家贵持有离岸公司的事情。引起广泛关注。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    经本社了解，该文章虽然最早见于境外博客， 但是其实大有来头。北京知情者告诉博闻社，该文应该是习家的人或者习近平势力专门对外发布的，通过“出口转内销”方式， 回应外界对巴拿马文件引起对习近平批评。<br>
-    <br>
-    这也是巴拿马文件事件发生后，内地网络媒体首次公开刊登为习近平解脱的文字。根据中共贯例，此类文字若非获得专门同意，是不可能见光的，故其获得习本人或者习家人的“钦准”，大有可能。其中也变相证实海外一些关于习和习家的传闻。值得一读。<br>
-    <br>
-    以下为文章全文。<br>
-    <br><center><font size="4"><b> 习总管教好子女和亲戚没？</b></font></center>
-<br>
-    <br>
-    本来按照国际公认的法律和道德标准，一人做事一人当。丈夫犯罪妻子无罪，老子犯罪儿子无罪，姐姐犯罪弟弟无罪，姐夫犯罪小舅无罪，习总的姐夫开公司应该与习总无关。<br>
-    <br>
-    但是作为一个国家领导人理应有更高的标准，这是民众要求的，也是国际通行的道德标准。所以习总在反腐会议上说∶“要管好你的亲戚，不要用权力谋取私利。”<br>
-    <br>
-    那么我们来看看习总说到做到了没有？2012年中共11（应为18，疑笔误</td></tr></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/04/201604120322.shtml" target="boxun-mirror">江西数千村民连日示威抵制污染厂遭千警镇压请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>江西数千村民连日示威抵制污染厂遭千警镇压<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604120322" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      江西省赣州市赣县王母渡镇的数千村民，周一（4月11日）在示威抵制当地政府强行开工修建大型垃圾焚烧厂时，遭到上千警察镇压，多人被殴打63人被抓捕。<br>
-    <br>
-    据村民透露，选址在赣县王母渡镇新兴村的垃圾焚烧厂，日处理能力为600吨，离王母渡镇水源处不足一里，离居民区不足1公里，离镇中心不足10公里，投产后，将处理赣州十八县的生活垃圾。因担心建成后对当地环境造成严重污染，村民曾于去年8月24日发起过大规模示威。<br>
-    <br>
-    4月10日，当地政府不顾数万村民反对，强行动工修建该垃圾场，数千村民闻讯后赶到现场阻止，并于当晚和政府人员发生冲突，将派出所所长座驾掀翻。<br>
-    <br>
-    网友“hmwsy0797”发帖说：江西赣州赣县王母渡镇桃江，又见大车堵车，数千名民众拦路，只因要在王母渡母亲河（桃江）兴建大型垃圾焚烧站，一旦建设完成，赣州十八个县垃圾皆往此运输，为了一时之利，是否该牺牲子孙后代的未来。<br>
-    <br>
-    持续至11日下午，上千警察、特警、武警进入镇上，对示威村民进行镇压，期间，大量村民遭到警察暴打，63名村民被抓走。<br>
-    <br>
-    网友“希希-乐乐”发帖说：百姓合理抗议，当局却派了大量武警，警察等来镇压，而且见人就打，现场被当局砸烂好多摩托车。<br>
-    <br>
-    现场图片以及视频显示，大批村民聚集在公路上，砍倒树木设置路障，与大批全副武装的警察对峙，一辆轿车被掀翻在路中。在一段视频中，一名官员通过扩音器对着村民喊话，恐吓村民必须在半小时内离开。<br>
-    <br>
-    网友“雨落天凉”发帖说：今天市政府里面停满了公交车，特警的车子都排到了沙石，就是为了对付我们这些老百姓，打人抓人。<br>
-    <br>
-    （网络图片）<br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604120322china1.jpg" alt="  江西数千村民连日示威抵制污染厂遭千警镇压"><p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604120322china2.jpg" alt="  江西数千村民连日示威抵制污染厂遭千警镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604120322china3.jpg" alt="  江西数千村民连日示威抵制污染厂遭千警镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604120322china4.jpg" alt="  江西数千村民连日示威抵制污染厂遭千警镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604120322china5.jpg" alt="  江西数千村民连日示威抵制污染厂遭千警镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604120322china6.jpg" alt="  江西数千村民连日示威抵制污染厂遭千警镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604120322china7.jpg" alt="  江西数千村民连日示威抵制污染厂遭千警镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604120322china8.jpg" alt="  江西数千村民连日示威抵制污染厂遭千警镇压"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604120322china9.jpg" alt="  江西数千村民连日示威抵制污染厂遭千警镇压"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604120322" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604111210171.jpg http://upload.bx.tl/news/temp14/201604111210172.jpg http://upload.bx.tl/news/temp14/201604111210173.jpg http://upload.bx.tl/news/temp14/201604111210174.jpg http://upload.bx.tl/news/temp14/201604111210331.jpg http://upload.bx.tl/news/temp14/201604111210332.jpg http://upload.bx.tl/news/temp14/201604111210333.jpg http://upload.bx.tl/news/temp14/201604111210334.jpg http://upload.bx.tl/news/temp14/201604111210401.jpg--> 4210322       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
