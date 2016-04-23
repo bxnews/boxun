@@ -81,7 +81,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604230243.shtml" target="boxun-mirror">郑介甫谈张越被双规：呼吁郭文贵“立地成佛”</a>
 </h2>
@@ -97,7 +97,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604220737.shtml" target="boxun-mirror">浙江海盐事件升级上万人上街与警冲突上百人遭抓打请看博讯热点：突发事件</a>
 </h2>
