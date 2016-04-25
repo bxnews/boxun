@@ -237,7 +237,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604222210.shtml" target="boxun-mirror">紫禁来鸿：习近平谈网络开放是虚晃一枪或矫枉过正请看博讯热点：习近平观察</a>
 </h2>
@@ -694,7 +694,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604170527.shtml" target="boxun-mirror">周永康心腹张越落马镇压民间维权头号打手请看博讯热点：周永康</a>
 </h2>
