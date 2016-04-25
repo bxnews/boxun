@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604242033.shtml" target="boxun-mirror">中共对互联网金融大整顿李克强网络创新宏图破灭请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -80,7 +80,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604232236.shtml" target="boxun-mirror">独家：因巴拿马文件取消访美网络总管鲁炜转访莫斯科请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -107,7 +107,7 @@
     另一方面，由于互联网作用日益重要，鲁炜作为中宣部副部长，同时担任网安领导小组办公室主任，而小组的组长是习近平，鲁因此颇有近水楼台之嫌。习经常跳过中宣部长刘奇葆直指给鲁炜下指示，也引发中宣部同仁对鲁的不满，背后指他“架空中宣部”，另立山头；不时给他“使</p>
 </td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604230607.shtml" target="boxun-mirror">习近平要“斩草除根”解决团派团中央大遣散请看博讯热点：令计划</a>
 </h2>
@@ -171,7 +171,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604230243.shtml" target="boxun-mirror">郑介甫谈张越被双规：呼吁郭文贵“立地成佛”</a>
 </h2>
@@ -187,7 +187,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604220737.shtml" target="boxun-mirror">浙江海盐事件升级上万人上街与警冲突上百人遭抓打请看博讯热点：突发事件</a>
 </h2>
@@ -254,7 +254,7 @@
     博闻社又从中南海消息人士了解到，19日召开、由习近平主持并作重要讲话的“中央网络安全和信息化工作座谈会”，同样大有</p>
 </td></tr></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604222240.shtml" target="boxun-mirror">陈启棠（天理）被“煽颠”开庭围观人士被抓请看博讯热点：占领中环</a>
 </h2>
@@ -274,7 +274,7 @@
     <br>
     除此之外，佛山当局抓捕围观人士，广州公民梁</td></tr></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604212308.shtml" target="boxun-mirror">苏昌兰因占中被煽颠案开庭五位围观公民被抓走请看博讯热点：占领中环</a>
 </h2>
@@ -376,7 +376,7 @@
     2016年1月1日，时任总编王向伟卸任，接任其职务是原副总编谭卫儿，成为该报史上第一位女性总编辑。主播出身的谭</p>
 </td></tr></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604202307.shtml" target="boxun-mirror">习近平原来是这样应对“巴拿马文件”压力的请看博讯热点：习近平观察</a>
 </h2>
@@ -411,7 +411,7 @@
     <br>
     消息人士透露，习近平最终还是决定以开会商研相关议题名义，间接回应，更为名正言顺。18、19日两个重要的会议，就是在此背景下召开的。王沪宁为习撰发言稿，不但经过政治局的商研同</td></tr></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604200246.shtml" target="boxun-mirror">中信证券被指经济政变王东明仗与习近平私交发财请看博讯热点：中共太子党</a>
 </h2>
@@ -453,7 +453,7 @@
     <br>
     北京消息指，王东明、王波明两兄弟与习近平从小熟悉，王父王炳南与习父习仲勋是陕西同乡，王炳南的故乡――乾县阳洪镇好</td></tr></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604192238.shtml" target="boxun-mirror">赤壁袁小华、袁兵案庭审结束十多位围观公民被抓走</a>
 </h2>
@@ -618,7 +618,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604180300.shtml" target="boxun-mirror">美国务卿贝克要人吴建民揭钱其琛撒谎</a>
 </h2>
@@ -778,7 +778,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604162003.shtml" target="boxun-mirror">疑涉周永康案河北省委常委、曾任职公安部张越被调查请看博讯热点：周永康</a>
 </h2>
@@ -825,7 +825,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604151823.shtml" target="boxun-mirror">紫禁城来鸿：巴拿马文件令中南海权力角逐趋公开化请看博讯热点：深度报道</a>
 </h2>
@@ -871,7 +871,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604152302.shtml" target="boxun-mirror">发布巴拿马文件图片律师葛永喜被抓21小时获释</a>
 </h2>
@@ -909,7 +909,7 @@
     <br>
     陈进学律师在下午发出信息说：“就葛永喜律师被传唤事件采访我的媒体有华盛顿邮报、英国卫报、西班牙埃</td></tr></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604150614.shtml" target="boxun-mirror">中共报复巴拿马文件传播广东律师葛永喜被警察带走</a>
 </h2>
@@ -972,7 +972,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
