@@ -60,7 +60,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604252055.shtml" target="boxun-mirror">独家：李克强四川险遭车祸疑似有预谋暗杀请看博讯热点：突发事件</a>
 </h2>
