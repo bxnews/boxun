@@ -67,7 +67,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 15分钟前</small>
+	<small> ============== 20分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604270448.shtml" target="boxun-mirror">中纪委利用巴拿马文件调查高官拥离岸公司情况请看博讯热点：习近平观察</a>
 </h2>
@@ -117,7 +117,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 24分钟前</small>
+	<small> ============== 29分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604261757.shtml" target="boxun-mirror">紫禁城来鸿：郭伯雄案或已开密审军委下令斩草除根请看博讯热点：郭伯雄</a>
 </h2>
