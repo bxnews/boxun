@@ -520,7 +520,7 @@
     20日下午，我从香港起程回广州。过边检很容易，</p>
 </td></tr></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/04/201604212151.shtml" target="boxun-mirror">马云旗下《南华早报》出大错报道称“习近平去年已死”请看博讯热点：突发事件</a>
 </h2>
