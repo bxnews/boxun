@@ -67,7 +67,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 25分钟前</small>
+	<small> ============== 1小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604270448.shtml" target="boxun-mirror">中纪委利用巴拿马文件调查高官拥离岸公司情况请看博讯热点：习近平观察</a>
 </h2>
