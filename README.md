@@ -774,7 +774,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604190639.shtml" target="boxun-mirror">独家:河北省常委张越随身带枪中纪委带40特警抓捕请看博讯热点：周永康</a>
 </h2>
