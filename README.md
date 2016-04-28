@@ -97,7 +97,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604270448.shtml" target="boxun-mirror">中纪委利用巴拿马文件调查高官拥离岸公司情况请看博讯热点：习近平观察</a>
 </h2>
@@ -441,7 +441,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604222210.shtml" target="boxun-mirror">紫禁来鸿：习近平谈网络开放是虚晃一枪或矫枉过正请看博讯热点：习近平观察</a>
 </h2>
@@ -898,7 +898,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
