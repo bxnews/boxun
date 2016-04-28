@@ -19,6 +19,22 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/04/201604282349.shtml" target="boxun-mirror">郭飞雄狱中重病：国际特赦为发布紧急行动声明</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>郭飞雄狱中重病：国际特赦为发布紧急行动声明<br><font color="#000fC0"><small>(博讯北京时间2016年4月28日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604282349" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->      <br>    博讯记者获悉，著名民主人士郭飞雄在狱中重病却遭广东阳春监狱拒绝予以治疗之后，各界人士继续采取行动，《关于立即对郭飞雄进行诊断治疗的紧急呼吁书》目前已经获得164位公民签名。<br>    <br>    郭飞雄家属希望增加申诉律师。联系人：刘正清律师，电话：13543432448。<br><br>    <img src="http://upload.bx.tl/news/temp14/201604280856501.jpg"><br>    <br>    <img src="http://www.boxun.com/news/images/2016/04/201604282349china1.jpg" alt="郭飞雄狱中重病：国际特赦为发布紧急行动声明"><br>    <br>    28日，国际人权组织国际特赦发出《紧急行动声明：中国当局必须立即为良心犯郭飞雄提供适足的医疗护理！》，要求中国当局立即释放郭飞雄，并让郭飞雄在关押期间立即获得全面的医疗检查及所需的医疗护理。<br>    <br><center><font size="4"><b> 国际特赦组织中文 Amnesty International Chinese</b></font></center>
+<br>    <br><center><font size="4"><b> 紧急行动声明：中国当局必须立即为良心犯郭飞雄提供适足的医疗护理！</b></font></center>
+<br>    <br>    据4月26日上午探视完郭飞雄的姐姐杨茂平所述，良心犯郭飞雄的身体状况极其堪忧，便血或稀水样血便，之后于4月7日住进阳春监狱医院。郭飞雄告诉杨茂平他的身体出大事了。他的咽部和口腔出血，4月19日大出血，几乎站不起来，体重急剧下降，面色苍白。<br>    <br>    阳春监狱的狱警拒绝为郭飞雄进行医疗检查，而看管他的警察及医生指，没有狱警的批准，他们就无法做检查。<br>    <br>    作家和人权倡导者杨茂东以其笔名“郭飞雄”为人熟悉。2013年《南方周末》的新年献词事件，中共官员篡改了该报呼吁更多公民和政治权利以及有关宪政的头版社论，激起民愤。郭飞雄参于了反对此次媒体审查的抗议行动。郭飞雄自2013年8月8日起就被关押。2015年11月27日，因“聚众扰乱公共秩序罪”和“寻衅滋事罪”被广州天河法院判处6年监禁。<br>    <br>    我们呼吁中国当局：<br>    <br>    - 立即无条件释放良心犯郭飞雄；<br>    <br>    - 确保他在关押期间，不受酷刑及其他虐待，并确保他立即获得全面的医疗检查及所需的医疗护理；<br>    <br>    - 确保对郭飞雄及所有关押人士的待遇，符合联合国《囚犯待遇最低限度标准规则》，尤其是在提供适足的营养及健康护理方面。<br>    <br>    Urgent Action: China: Activist Guo Feixiong Denied Medical Help As Health Failing<br>    <br>    https://www.amnesty.org/en/documents/asa17/3924/2016/en/<br>    <br>    <div align="center"><img src="https://pbs.twimg.com/media/ChH3wS3WIAAwonq.jpg" width="500"></div>
+<br>    <br>    <div align="center"><img src="https://pbs.twimg.com/media/ChH5YEgU4AAzHDe.jpg" width="500"></div>
+<br>    <br>    著名人权律师高智晟，因为声援郭飞雄而使其手机被停机。高智晟律师发出信息说：“4月26日，声援郭飞雄的文章《郭飞雄必须得到应有的治疗》发给所有的朋友，但没有任何人收到。今天企图通过短信方式发出时连电话也被停。无耻的是，仍通知说欠话费停机，要求尽快交话费。出狱后的两次被中共黑帮停机都是因为郭飞雄发声。前次手机里尚有一百九十多元话费，却以欠费名义停机，害得家人又充值两次后才明白是黑帮作恶。这次尚有一百多元话费，又被以欠费名义停机。这群无法无天的强盗。”<br>    <br>    其他民主人士、维权人士继续声援郭飞雄：<br>    <br>    湖南维权人士谢长祯：“我刚才在出入境管理局遇到长沙市国保支队长，立即就跟他谈了，我说我本来准备打电话跟他谈的，在广东省阳春监狱服刑的杨茂东医治疾病，他的病很严重，我说我们在搞签名活动。他说他管不了那么远，广东的事我们管不了。我要他向他们公检法部门反映我表达的意思。”<br>    <br>    谢长祯：“刚才给广东省阳春监狱打电话0662-7806009，我说：我们关注杨茂东，你们要给在你们那里服刑的杨茂东送医，他身患重病。一男性回答：好！”<br>    <br>    上海维权人士陈建芳：“郭飞雄（杨茂东）先生是一位著名的异见人士，长期以来，为了华夏大地民主宪政的早日实现，被抓过，被酷刑过，今年初又一次被判刑六年！这一次被抓以后，关在广州天河看守所两年多的时间里，除了被折磨，还不给他放风，以致郭飞雄先生的身体渐渐日下。现在，他已经被转到广东阳江监狱服刑。他在看守所的时候，身体健康状况就已经出了问题，现在的他，已经病得很重了，便血很长时间了。家属一再要求监狱方给予郭飞雄先生身体全方位检查，可监狱方一直在拖延！中国的监狱向来虐待政治犯，曹顺利因在赵家牢里得不到良好的治疗，已被迫害致死2年多无死亡真相。我们不能让郭飞雄先生也这样被虐致死！为此，我们强烈要求广东阳江监狱方，尽快给郭飞雄先生作身体检查，给予相当的治疗，以免郭飞雄先生生命有危险。我们倡议：要求广东阳江监狱方给予郭飞雄先生以必要的治疗！”<br>    <br>    深圳民主人士秀才江湖：“刻不容缓！十万火急！请声援郭飞雄！他在广东阳春监狱身患重病，环境恶劣，自生自灭。可是残忍的阳春监狱拒绝给郭飞雄体检、拒绝给郭飞雄看病，这是在赤裸裸地杀人！阳春监狱狱政科电话：0662―7806009！请发帖呼吁！电话谴责！”<br>    <br>    <div align="center"><img src="https://pbs.twimg.com/media/ChG9tZ7WIAEJFIx.jpg" width="500"></div>
+<br>    <br>    广东省阳春监狱位于广东省阳春市松柏镇（S369省道旁）。<br>    <br>    1、搭乘火车前往：（1）在阳春火车站下车。（2）打车前往阳春汽车客运站，路程约为5公里。（3）乘坐公共汽车前往春湾，路程约为40公里，时间大概需要一个小时。（4）在春湾汽车站下车，乘坐摩托车或者出租车前往阳春监狱，路程约为6公里。<br>    <br>    2、搭乘汽车前往：（1）乘坐汽车到达春湾汽车站。如汽车不能直达春湾汽车站，请乘坐汽车到达阳春客运站再乘坐公共汽车到达春湾汽车站，路程约为40公里，时间大概需要一个小时。（2）下车后乘坐摩托车或者出租车前往阳春监狱，路程约为6公里。<br>    <br>    而中国公民发起的《关于立即对郭飞雄进行诊断治疗的紧急呼吁书》，截止到2016年4月28日01:40，通过邮箱签名关注郭飞雄先生的人数已达164人。<br>    <br><center><font size="4"><b> 关于立即对郭飞雄进行诊断治疗的紧急呼吁书</b></font></center>
+<br>    <br>    （附联署签名邮箱）<br>    <br>    广东省司法厅、省监狱管理局：<br>    <br>    目前广东省阳春监狱在押人员杨茂东（又名郭飞雄）的身体状况极其堪忧，呈现出大病重病在身的明显体征。据4月26日上午探视完郭飞雄的姐姐杨茂平（副主任医师）描述：郭飞雄近一年来断续便血或稀水样血便，到监狱后，间断咽部和口腔出血，4月7日住进监狱医院，4月19日大出血，行走不稳，和狱政科刘干事谈话时几乎站不起来。郭飞雄目前在监狱医院被和四个人一起关在一个7.5平方米没有窗户的房间，而且每天有二十三个小时都被关在里面。他要求进行相关身体检查，但遭到监狱的粗暴拒绝。<br>    <br>    郭飞雄多年来倡导民主、自由与公义，多次遭受不公正迫害，两次入狱，是国际国内瞩目的人权捍卫者。不义的审判囚禁了他的自由，但无权摧残他的身体。为了给予郭飞雄应有的人道待遇，为了保障在押人员基本的医疗权利，在此，我们一起发出紧急呼吁书，强烈要求：<br>    <br>    一、立即将郭飞雄转到广州的大医院进行诊断和治疗，立即对郭飞雄进行胃镜、肠镜、喉镜、腰椎MR、肺CT、血液化验检，并将检验结果及时、如实通报给其家属和律师；<br>    <br>    二、调查和追究阳春监狱狱政科刘干事及相关人员的渎职行为和虐待在押人员的责任（郭飞雄病情恶化到这样的程度刘干事等人难辞其咎）；<br>    <br>    三、根据确诊结果，立即依法对郭飞雄办理保外就医，避免郭飞雄的病情继续恶化，切实保障在押人员的健康权利。<br>    <br>    呼吁书发起人：<br>    陈光诚<br>    王荔蕻<br>    谭作人<br>    查建国<br>    胡佳<br>    野渡 <br>    慕容雪村<br>    笑蜀<br>    王德邦<br>    华春辉<br>    黎学文<br>    欧彪峰<br>    <br>    2016年4月27日<br>    <br>    联署邮�<a class="__cf_email__" href="/cdn-cgi/l/email-protection" data-cfemail="5db9fee727342432283b3834253432333a1d3a303c3431733e3230">[email protected]</a><script data-cfhash="f9e31" type="text/javascript">/* <![CDATA[ */!function(t,e,r,n,c,a,p){try{t=document.currentScriptl|function(){for(t=document.getElementsByTagName('script'),e=t.length;e--;)if(t[e].getAttribute('data-cfhash'))return t[e]}();if(t&&(c=t.previousSibling)){p=t.parentNode;if(a=c.getAttribute('data-cfemail')){for(e='',r='0x'+a.substr(0,2)|0,n=2;a.length-n;n+=2)e+='%'+('0'+('0x'+a.substr(n,2)^r).toString(16)).slice(-2);p.replaceChild(document.createTextNode(decodeURIComponent(e)),c)}p.removeChild(t)}}catch(u){}}()/* ]]> */</script><br>    签名格式：姓名+城市<br>    <br>    签名名单：<br>    艾晓明：广东广州<br>    唐吉田、北京<br>    甄江华、广东<br>    沈艳秋、上海<br>    戈觉平、江苏<br>    <br>    王江松、北京<br>    隋牧青、广东、13711124957、<br>    姬原（周忠智）、湖南衡阳、13789388964<br>    吕京花、纽约<br>    王译、江苏无锡<br>    <br>    许晖、云南大理<br>    徐波、云南大理<br>    蒋</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604282218.shtml" target="boxun-mirror">内蒙地方官公帑行贿周永康儿子四亿至今未追还请看博讯热点：周永康</a>
 </h2>
 <p><tr>
@@ -804,54 +820,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604192238" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604190739521.jpg http://upload.bx.tl/news/temp14/201604190739522.jpg http://upload.bx.tl/news/temp14/201604190739523.jpg http://upload.bx.tl/news/temp14/201604190739524.jpg http://upload.bx.tl/news/temp14/201604190739525.jpg http://upload.bx.tl/news/temp14/201604190739526.jpg http://upload.bx.tl/news/temp14/201604190739527.jpg http://upload.bx.tl/news/temp14/201604190739528.jpg http://bnn.co/news/images/2016/04/201604190048china1.jpg http://bnn.co/news/images/2016/04/201604190048china2.jpg http://bnn.co/news/images/2016/04/201604190048china3.jpg http://bnn.co/news/images/2016/04/201604190048china4.jpg http://bnn.co/news/images/2016/04/201604190048china5.jpg http://bnn.co/news/images/2016/04/201604190048china6.jpg http://bnn.co/news/images/2016/04/201604190048china7.jpg http://bnn.co/news/images/2016/04/201604190048china8.jpg http://bnn.co/news/images/2016/04/201604190048china10.jpg http://bnn.co/news/images/2016/04/201604190048china11.jpg http://bnn.co/news/images/2016/04/201604190048china12.jpg http://bnn.co/news/images/2016/04/201604190048china13.jpg http://bnn.co/news/images/2016/04/201604190048china14.jpg http://bnn.co/news/images/2016/04/201604190048china15.jpg http://bnn.co/news/images/2016/04/201604190048china16.jpg http://bnn.co/news/images/2016/04/201604190048china17.jpg http://bnn.co/news/images/2016/04/201604190048china18.jpg http://bnn.co/news/images/2016/04/201604190048china19.jpg--> 2402238       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/04/201604190639.shtml" target="boxun-mirror">独家:河北省常委张越随身带枪中纪委带40特警抓捕请看博讯热点：周永康</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家:河北省常委张越随身带枪 中纪委带40特警抓捕<br><font color="blue" size="2">请看博讯热点：<a href="/hot/zyk.shtml">周永康
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604190639" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    博闻社独家报道：中纪委网站4月16日公布消息，河北省常委、前政法委书记张越涉嫌严重违纪，接受组织调查。<br>
-      
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       本社获悉，张越是在参加省委召开常委（扩大）会议后的第二天下午6点下班前，在办公室被中纪委来人带走。据消息人士透露，大约有40名特警参与抓捕张越的行动，张越被带走的时候，两眼紧闭，脸色苍白，目击者称他被抬进警车。传说张越随身带有2把手枪，所以抓捕行动显得格外谨慎。<br>
-    <br>
-    河北省委随即召开会议传达中纪委的决定，省委书记赵克志要求将决定层层传达到基层，并宣布了几项人事任免。<br>
-    <br>
-    此前曾数次传出张越被双规的消息，本社最新了解，这些传闻并非空穴来风。信息显示，张越被中纪委约谈了三次，第一次（2015年3月10日）是去了2天就回来。第二次是去了3天（2015月31日），第三次是（2015年8月29日）去了5天。原以为在第三次被约谈后就会进入双规程序，结果5天内张越还是安然无恙地返回河北。据一位消息灵通人士介绍，京城有一位党内大佬一直在为张越说话，张越的错误和问题全部推到周永康以及其他领导人身上。使得张越一次次过关。这一次突然抓捕张越，是中共党内派别矛盾激化所致，还是其他原因，记者目前不得所知。<br>
-    <br>
-    张越这次正式被双规后，河北政坛如同地震，有不少与张越有牵连的人物也被推向前台，如河北省承德市副市长，公安局局长王玉洁昨天也被中纪委约谈，河南省前政法委常务书记李承先曾经是张越的密友，在听到张越被双规消息后，心脏病突发立刻进医院治疗。<br>
-    <br>
-    在张越被双规前一周，隐秘在海外的郭文贵用邮件联络博讯记者西诺，希望澄清一些事实，当记者继续联络郭先生，郭没有回应。<br>
-    <br>
-    博讯记者西诺 纽约报道<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_83663.html">点击这里</a><br>
-    -
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604190639" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3330639       
 <hr>
 <table width="620"><tr><td>
 <b></p>
