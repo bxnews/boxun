@@ -186,7 +186,7 @@
 <br>    <br>    广东省阳春监狱位于广东省阳春市松柏镇（S369省道旁）。<br>    <br>    1、搭乘火车前往：（1）在阳春火车站下车。（2）打车前往阳春汽车客运站，路程约为5公里。（3）乘坐公共汽车前往春湾，路程约为40公里，时间大概需要一个小时。（4）在春湾汽车站下车，乘坐摩托车或者出租车前往阳春监狱，路程约为6公里。<br>    <br>    2、搭乘汽车前往：（1）乘坐汽车到达春湾汽车站。如汽车不能直达春湾汽车站，请乘坐汽车到达阳春客运站再乘坐公共汽车到达春湾汽车站，路程约为40公里，时间大概需要一个小时。（2）下车后乘坐摩托车或者出租车前往阳春监狱，路程约为6公里。<br>    <br>    而中国公民发起的《关于立即对郭飞雄进行诊断治疗的紧急呼吁书》，截止到2016年4月28日01:40，通过邮箱签名关注郭飞雄先生的人数已达164人。<br>    <br><center><font size="4"><b> 关于立即对郭飞雄进行诊断治疗的紧急呼吁书</b></font></center>
 <br>    <br>    （附联署签名邮箱）<br>    <br>    广东省司法厅、省监狱管理局：<br>    <br>    目前广东省阳春监狱在押人员杨茂东（又名郭飞雄）的身体状况极其堪忧，呈现出大病重病在身的明显体征。据4月26日上午探视完郭飞雄的姐姐杨茂平（副主任医师）描述：郭飞雄近一年来断续便血或稀水样血便，到监狱后，间断咽部和口腔出血，4月7日住进监狱医院，4月19日大出血，行走不稳，和狱政科刘干事谈话时几乎站不起来。郭飞雄目前在监狱医院被和四个人一起关在一个7.5平方米没有窗户的房间，而且每天有二十三个小时都被关在里面。他要求进行相关身体检查，但遭到监狱的粗暴拒绝。<br>    <br>    郭飞雄多年来倡导民主、自由与公义，多次遭受不公正迫害，两次入狱，是国际国内瞩目的人权捍卫者。不义的审判囚禁了他的自由，但无权摧残他的身体。为了给予郭飞雄应有的人道待遇，为了保障在押人员基本的医疗权利，在此，我们一起发出紧急呼吁书，强烈要求：<br>    <br>    一、立即将郭飞雄转到广州的大医院进行诊断和治疗，立即对郭飞雄进行胃镜、肠镜、喉镜、腰椎MR、肺CT、血液化验检，并将检验结果及时、如实通报给其家属和律师；<br>    <br>    二、调查和追究阳春监狱狱政科刘干事及相关人员的渎职行为和虐待在押人员的责任（郭飞雄病情恶化到这样的程度刘干事等人难辞其咎）；<br>    <br>    三、根据确诊结果，立即依法对郭飞雄办理保外就医，避免郭飞雄的病情继续恶化，切实保障在押人员的健康权利。<br>    <br>    呼吁书发起人：<br>    陈光诚<br>    王荔蕻<br>    谭作人<br>    查建国<br>    胡佳<br>    野渡 <br>    慕容雪村<br>    笑蜀<br>    王德邦<br>    华春辉<br>    黎学文<br>    欧彪峰<br>    <br>    2016年4月27日<br>    <br>    联署邮�<a class="__cf_email__" href="/cdn-cgi/l/email-protection" data-cfemail="5db9fee727342432283b3834253432333a1d3a303c3431733e3230">[email protected]</a><script data-cfhash="f9e31" type="text/javascript">/* <![CDATA[ */!function(t,e,r,n,c,a,p){try{t=document.currentScriptl|function(){for(t=document.getElementsByTagName('script'),e=t.length;e--;)if(t[e].getAttribute('data-cfhash'))return t[e]}();if(t&&(c=t.previousSibling)){p=t.parentNode;if(a=c.getAttribute('data-cfemail')){for(e='',r='0x'+a.substr(0,2)|0,n=2;a.length-n;n+=2)e+='%'+('0'+('0x'+a.substr(n,2)^r).toString(16)).slice(-2);p.replaceChild(document.createTextNode(decodeURIComponent(e)),c)}p.removeChild(t)}}catch(u){}}()/* ]]> */</script><br>    签名格式：姓名+城市<br>    <br>    签名名单：<br>    艾晓明：广东广州<br>    唐吉田、北京<br>    甄江华、广东<br>    沈艳秋、上海<br>    戈觉平、江苏<br>    <br>    王江松、北京<br>    隋牧青、广东、13711124957、<br>    姬原（周忠智）、湖南衡阳、13789388964<br>    吕京花、纽约<br>    王译、江苏无锡<br>    <br>    许晖、云南大理<br>    徐波、云南大理<br>    蒋</td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604282218.shtml" target="boxun-mirror">内蒙地方官公帑行贿周永康儿子四亿至今未追还请看博讯热点：周永康</a>
 </h2>
@@ -300,7 +300,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604270448.shtml" target="boxun-mirror">中纪委利用巴拿马文件调查高官拥离岸公司情况请看博讯热点：习近平观察</a>
 </h2>
@@ -644,7 +644,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/04/201604222210.shtml" target="boxun-mirror">紫禁来鸿：习近平谈网络开放是虚晃一枪或矫枉过正请看博讯热点：习近平观察</a>
 </h2>
