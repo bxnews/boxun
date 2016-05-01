@@ -19,6 +19,36 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/editorial/2016/05/201605011654.shtml" target="boxun-mirror">海南警察暴打妇女儿童视频：公安厅长、省长书记必须问责请看博讯热点：警察、官员恶行</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>海南警察暴打妇女儿童视频：公安厅长、省长书记必须问责<br><font color="blue" size="2">请看博讯热点：<a href="/hot/jingcha.shtml">警察、官员恶行
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=editorial201605011654" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     4月30日，海口长流镇琼华村进行强拆中，警察对已经倒地的妇女、老人和儿童大打出手，已经曝光的一段视频如下：<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/gUyku-qO6j8" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    目击者称：敢发完整视频吗？我看到的视频是一群畜牲防暴队、手持棍棒痛殴老人、妇女、儿童。这些人打妇女打小孩，手段之残忍！难道小孩也是暴力份子，一群穿着制服的黑社会！黑社会还讲江湖道义！<br>
+    <br>
+    这种超越人类底线的残暴行为引起社会强烈反响。这不是首次也不是最后一起这样的暴行，在中国各地是普遍的行为，只是多数未能录像曝光。人们不禁拷问：为什么在21世纪的中国，这种惨绝人寰的暴行成为普遍现象。有一种说法，称是因为周永康强力维稳遗留问题，目前公安从上到下主要还是周永康时期的人马。如果真的如此，就该认真检讨、研究如何彻底改变这种与时代潮流相背的恶行。<br>
+    <br>
+    事发后，海南省显然没有认真对待和严肃处理。其新闻稿中，将强拆称为“对违章建筑”的拆迁，并宣扬民众暴力在先。称暴行是“执法过程中以暴制暴、粗暴执法行为”。<br>
+    <br>
+    官方称“在依法拆除长流镇琼华村违建过程中出现了暴力抗法行为，在制止暴力抗法过程中，个别执法人员违反规定殴打群众。”  请问，这种强拆是“依法”的吗？如果是，那么对民众施暴也是“依法”啦？这是简单的“殴打群众”吗？他们是对妇女、儿童和老人施暴！！<br>
+    <br>
+    官方新闻稿称：“同时，将对联防队伍进行专项整顿教育，对以暴制暴、粗暴执法的行为坚决查处、绝不姑息”。<br>
+    <br>
+    这不是“粗暴执法”，是法西斯主义犯罪。施暴者必须依法逮捕审判！而指挥者也应该同样负刑事责任。海南省公安厅长甚至书记省长必须问责，否则，这种暴行会继续存在并愈演愈烈。<br>
+     
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=editorial201605011654" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 461654       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605010523.shtml" target="boxun-mirror">《博讯》月刊：“江苏帮”大崩盘李源潮前途危请看博讯热点：李源潮</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -782,23 +812,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/04/201604222210.shtml" target="boxun-mirror">紫禁来鸿：习近平谈网络开放是虚晃一枪或矫枉过正请看博讯热点：习近平观察</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁来鸿：习近平谈网络开放是虚晃一枪或矫枉过正<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604222210" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604222210china1.jpg" alt="紫禁来鸿：习近平谈网络开放是虚晃一枪或矫枉过正"><p>（海外华人团体抗议中共网络锁国。）<br>
-    <br>
-    【博闻社北京特别报道】本月18日、19日，中共中央连续召开了两个重要的会议，一是18日的中央深改领导小组会议，本社日前已披露，习近平借此会要求“规范领导干部配偶、子女及其配偶经商办企业行为”，轻轻带过，算是间接回应巴拿马文件引起外界对中共高层的质疑，又并巧妙地把舆论矛头引向有“子女”上文件榜的常委刘云山、张高丽，而“姐夫”成功开溜。<br>
-    <br>
-    博闻社又从中南海消息人士了解到，19日召开、由习近平主持并作重要讲话的“中央网络安全和信息化工作座谈会”，同样大有</p>
-</td></tr></p>
 <p>
 	<small> ============== 9天前</small>
 </p>
