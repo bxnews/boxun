@@ -33,7 +33,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/05/201605041950.shtml" target="boxun-mirror">博闻评论：做新闻和言论自由的卫士还是敌人？请看博讯热点：深度报道</a>
 </h2>
