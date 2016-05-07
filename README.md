@@ -34,7 +34,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605051858.shtml" target="boxun-mirror">文革号角再次吹响人大红歌会齐唱“大海航行靠舵手”</a>
 </h2>
