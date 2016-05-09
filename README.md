@@ -19,6 +19,45 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/05/201605090215.shtml" target="boxun-mirror">文革红歌秀“高级黑”显示习近平仍未掌控中宣部请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>文革红歌秀“高级黑” 显示习近平仍未掌控中宣部<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605090215" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社独家】过去两年时间，出现了诸多以习近平为主角，显得“不合时宜”的“宣传”事件，让外界将习近平解读为“毛泽东二世”。一些部门似乎一直在刻意编排针对习近平的“高级黑”剧本。本社此前曾披露，今年央视的春节联欢晚会，彭丽媛的“妹妹”彭丽娟成了晚会的监制，后经查实，所谓的妹妹只不过是一个名不见经传的80后而已。<br>
+    <br>
+    今年春晚的演出则被指风格极似文革时期。同一时间，在以前推出《习大大、彭麻麻》等歌曲之后，又冒出来一首名为《东方又红》的歌，其中一句歌词直接唱“习近平就是毛泽东”，捧杀的用意昭然。很快，这波形似“个人崇拜”实则更像“高级黑”的戏码被相关部门叫停。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/05/201605090215china1.jpg" alt="文革红歌秀“高级黑” 显示习近平仍未掌控中宣部"><p><br>
+    <br>
+    5月2日的“红歌秀”一事发生后，博闻社发现了几个值得注意的方面：<br>
+    <br>
+    1、中宣系统的“高级黑”：只有两个小单位出来澄清（歌舞剧院和西城区文化委员会），但是中宣部和文化部本身却没有任何相关回应。而红歌会演出时，这两个部门的官员却都出席观看了。<br>
+    <br>
+    2、将《大海航行靠舵手》和《中国梦最美丽》安排为头两首歌唱，显然是刻意将毛与习划等号，从整个红歌曲目看，“歌颂领袖”的程度比起薄熙来当年有过之而无不及，薄熙来当年都没敢这样唱。更为明显的是，《包子铺》这首歌也在演出节目中。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/05/201605090215china2.jpg" alt="文革红歌秀“高级黑” 显示习近平仍未掌控中宣部"></p>
+<p><br>
+    <br>
+    3、新华社第一时间作长篇详细颂扬，给人以受习支持的假象。<br>
+    <br>
+    4、鲁炜们的网信办迅速删除相关各种信息，显示出与中宣部步调一致的行动。<br>
+    <br>
+    5、演唱会的门票上千元一张，唱红还收高价，进一步制造了习不但比薄左同时还比薄贪的假象。<br>
+    <br>
+    博闻社报道原文：<a href="http://bowenpress.com/news/bowen_88070.html">点击这里</a><br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201605090215" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 850215       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605082250.shtml" target="boxun-mirror">紫禁城来鸿:从两场座谈会看习近平李克强的明争暗斗</a>
 </h2>
 <p><tr>
@@ -864,56 +903,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604270125" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604261017501.jpg http://upload.bx.tl/news/temp14/201604261017502.jpg http://upload.bx.tl/news/temp14/201604261017503.jpg http://upload.bx.tl/news/temp14/201604261017504.jpg http://upload.bx.tl/news/temp14/201604261018021.jpg http://upload.bx.tl/news/temp14/201604261018022.jpg http://upload.bx.tl/news/temp14/201604261018023.jpg http://upload.bx.tl/news/temp14/201604261018024.jpg http://upload.bx.tl/news/temp14/201604261018061.jpg--> 4110125       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/04/201604270448.shtml" target="boxun-mirror">中纪委利用巴拿马文件调查高官拥离岸公司情况请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中纪委利用巴拿马文件 调查高官拥离岸公司情况<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604270448" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      紫禁城来鸿：中纪委利用巴拿马文件事件 调查党内高官拥离岸公司情况<br>
-    <br>
-     【博闻社北京特别报导】巴拿马文件引发的台风已经过去，但受台风肆虐的地方恢复仍有待时日。中国大陆也是一样。尽管表面上风平浪静，实际对中共内部影响却非同寻常。博闻社已多番报道事件在中共政坛内部引发的震荡。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-
-<!-- boxun.com_300x250_article-embed_chinese -->
-<div id="box006">
-<script type="text/javascript">
-
-</script>
-</div>
-
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    本社记者近日获悉，因应巴拿马文件事件，中共内部又做了一个重要决定，把调查党内高层（主要是省部级或以上）领导直系亲属是否持有离岸公司，列入规范领导干部配偶、子女及其配偶经商办企业行为的试点调查范围，同时作为高层干部党内自查自纠的内容之一。<br>
-    <br>
-    本社记者从中南海消息人士获悉，在缺席中共多个重要会议之后，4月22日和23日，中纪委书记王岐山终于露脸中共宗教工作会议和中纪委工作会议，此前的20多天内，王岐山做了一件非常重要的事，就是根据习近平在中共常委会议要求，就巴拿马文件事件，“研究高层干部党内自查自纠”的方案。<br>
-    <br>
-    中南海消息人士透露，尽管国际调查记者联盟宣布下月公布巴拿马档的更多细节，但中南海相信不会再有比此前所披露更具杀伤力的内容，相反，中纪委书记王岐山倒是忽发奇想，要借巴拿马文件这股“东风”，掌握党内特别是省部级以上领导干部家属子女有多少与“离岸公司”有关。<br>
-    <br>
-    消息指，王岐山的想法得到习近平的认可，尽管习近平自己也被“姐夫”榜上有名所困搅，但是习近平还是从党的整体利益出发，同意利用这个机会，对党内领导干部，特别是省部级以上高层干部，进行逐个摸底。习近平昨了批示，要求中纪委牵头，组织有关部门对党内高层干部“离岸公司”详情举行调查。<br>
-    <br>
-    消息透露，经过3周的周密调查，一份内部调查报告已经呈报习办。 4月18日习近平主持召开中央全面深化改革领导小组第二十三次会议，其中一项重要议题就是，在北京、广东、重庆、新疆开展规范领导干部配偶、子女及其配偶经商办企业行为。会上，习在讲话中，提到了巴拿马文件事件。<br>
-    <br>
-    中南海消息人士指，中纪委的新规已经内部下发至省部级以上高层，主要针对高层领导干部及其家族境外财产和商业行为的党内汇报和处理程式以及详细规范。新规明确要求，在考察和任命高层领导干部时，亲属子女涉及“离岸公司”领导干部，在没有向组织讲清楚之前一律不得纳入“能上”名单。<br>
-    <br>
-    中南海消息指，由于十九大高层人事布局已经开始，巴拿马文件事件已经影响到中共政坛，甚至明年秋十九大的高层人事安排，“从这一层面而言，巴拿马档也许有其积极意义” 。接近中南海的消息人士最后对博闻社作出上述补充。<br>
-    <br>
-    博闻社独家详细报道全文：<a href="http://bowenpress.com/news/bowen_85495.html">紫禁城来鸿：中纪委利用巴拿马文件事件 调查党内高官拥离岸公司情况</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604270448" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1510448       
 <hr>
 <table width="620"><tr><td>
 <b></p>
