@@ -56,7 +56,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605082250.shtml" target="boxun-mirror">紫禁城来鸿:从两场座谈会看习近平李克强的明争暗斗</a>
 </h2>
