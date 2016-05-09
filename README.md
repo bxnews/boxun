@@ -58,6 +58,36 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/05/201605092328.shtml" target="boxun-mirror">魏则西事件：百度逆习而上搞竞价排名获宽大处理</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>魏则西事件：百度逆习而上搞竞价排名 获宽大处理<br><font color="#000fC0">(<small>博讯北京时间2016年5月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605092328" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     魏则西事件除了暴露莆田系医院重大问题外，还曝光了百度竞价排名，推广虚假广告，引发众怒。<br>
+    <br>
+    事发后，网信办第一时间牵头调查，作为习近平的互联网安全办公室，估计是受到习近平的指派，至少说明习近平很关注此事。网信办8日即公布了调查结果，消息人士表示，能如此迅速的出结果，更说明习近平及鲁炜们对民怨的重视和效率，特别是要治理竞价排名的决心。<br>
+    <br>
+    在4月19日网络工作会议上，习近平讲话中明确指出：“做搜索的不能以给钱多少作排位标准”（全文附后）百度如此竞价排名引发严重后果，按常规应该重罚，美国对谷歌曾罚款5亿美元。消息人士表示，此次处理没有给予百度巨额罚款，说明习近平有对于民企的保护心态。对于百度的处理，预计会让百度股价损失超过百亿美金，这已经是惩罚。<br>
+    <br>
+    传特勤参与百度进驻<br>
+    <img src="http://www.boxun.com/news/images/2016/05/201605092328china1.jpg" alt="魏则西事件：百度逆习而上搞竞价排名 获宽大处理"><p><br>
+    <br></p>
+<center><font size="4"><b>国家网信办联合调查组公布进驻百度调查结果</b></font></center>
+<br>
+    <br>
+    中国网信网<br>
+    <br>
+    导语<br>
+    国家网信办5月2日会同国家工商总局、国家卫生计生委和北京市有关部门成立联合调查组进驻百度公司，集中围绕百度搜索在“魏则西事件”中存在的问题、搜索竞价排名机制存在的缺陷进行了调查取证。<br>
+    <br>
+    调查组认为，百度搜索相关关键词竞价排名结果客观上对魏则西选择就医产生了影响，百度竞价排名机制存在付费竞价权重过高、商业推广标识不清等问题，影响了搜索结果的公正性和客观性，容易误导网民，必须立即整改。<br>
+    <br>
+    调查组对百度公司提出了以下整改要求：<br>
+    </td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605091858.shtml" target="boxun-mirror">香港新书《江苏大老虎罗志军全揭秘》，开打省部级高官</a>
 </h2>
 <p><tr>
@@ -870,36 +900,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/04/201604280503.shtml" target="boxun-mirror">独家：贾庆林女婿李伯潭涉张越案被禁出境请看博讯热点：反腐打老虎</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：贾庆林女婿李伯潭涉张越案被禁出境<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tiger.shtml">反腐打老虎
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月28日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604280503" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <br>
-     【博闻社独家】北京消息人士对博闻社透露，河北前政法委书记张越已向中纪委交待，他与中共前政治局常委、全国政协主席贾庆林的女婿李伯潭，前央行行长戴相龙的女婿车峰(已被拘查)有密切经济来往，并接受他们的钱财馈赠，数额巨大。目前李伯谭潭已被公安部边控，不能出境。 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    消息人士对本社指，自去年初跑到境外避风头、以为没事又回北京被当局拘查的车峰出事后，有香港身份和特区护照的李伯潭一度被当局边控，后又一度取消。但本月被张越落马，交待出他和李伯潭、车峰的关系后，当局再度对李伯潭“落闸”，禁止他出境。<br>
-    <br>
-    消息指，张越交待他和李伯潭、车峰的经济关系时，透露李和车一起做生意，动不动几十亿的规模，他则为他们“保驾护航”，并首收取好处费。张越让李伯谭从香港</td></tr></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
