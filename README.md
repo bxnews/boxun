@@ -81,7 +81,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605090215.shtml" target="boxun-mirror">文革红歌秀“高级黑”显示习近平仍未掌控中宣部请看博讯热点：习近平观察</a>
 </h2>
