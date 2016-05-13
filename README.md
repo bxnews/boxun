@@ -19,6 +19,21 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605131839.shtml" target="boxun-mirror">独家：北朝鲜最新核试验可能在朝中两国上空引爆</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：北朝鲜最新核试验可能在朝中两国上空引爆<br><font color="#000fC0"><small>(博讯北京时间2016年5月13日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201605131839" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/05/201605131839intl1.jpg" alt="独家：北朝鲜最新核试验可能在朝中两国上空引爆"><br>    （金正恩不顾国际社会反应一意孤行。）<br>    <br>   【博闻社独家】本社获悉，北朝鲜可能将在近日再次进行核爆实验，而且这次核爆有可能是空中引爆，再次践踏联合国禁核条约，且针对中国的意图明显。中方已紧急向朝方交涉，并部署在东北以及山东等地监测。<br>    <br>   本社获悉，朝鲜为庆祝劳动党第七次全国代表大会举行，正筹划进行一次核试爆，而且与往常不同，再次核爆有可能是采用空中引爆方式。<br>    <br>   由于核爆点可能在朝鲜与中国交界处上空，中方高度紧张，除派出外交人员与朝方交涉，同时派出监测小组在与朝方接壤的吉林，辽宁，以及隔海的山东进行监测。<br>    <br>   有评论认为，中国政府必须顾及中国人民的生命财产安全，彻底放弃金正恩，而不要再幻想利用金氏与美国周旋。<br>    <br>   今年1月6日，朝鲜已经进行了一次地下核试爆，平壤称是一次氢弹试爆，并且取得了成功。<br>    <br>   联合国早于1963年已制定《部分禁止核试验条约》（英语：Partial Test Ban Treaty,PTBT），全称《禁止在大气层、太空和水下进行核武器试验条约》，是一个限制核武器试验的国际条约。<br>    <br>   该条约禁止了除在地下外的一切核武器试验。其目标是减缓冷战期间的军备竞赛，和防止核武器试验造成地球大气中过量的放射性尘埃。1963年8月5日苏联、英国和美国在莫斯科签署该条约，同年10月10日生效。包括中国在内，有130多国签署。<br>    <br>  （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_89143.html?variant=zh-hans" style="color:red;">点此链接</a>） [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201605131839" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/5/13)--> <!--bodyend-->       
+           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605130342361.jpg--> 4751839       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605131307.shtml" target="boxun-mirror">小强乱搞经济搞砸了，习近平李克强矛盾公开化请看博讯热点：习近平观察</a>
 </h2>
 <p><tr>
@@ -1024,42 +1039,6 @@
 <b></p>
 <p>
 	<small> ============== 13天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/04/201604292107.shtml" target="boxun-mirror">《博讯》月刊：习近平与李克强的“大决裂”请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>《博讯》月刊：习近平与李克强的“大决裂”<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年4月29日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201604292107" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604292107china1.jpg" alt="《博讯》月刊：习近平与李克强的“大决裂”"><p>（今年3月全国两会,习李已经表现出形同陌路）<br>
-    <br>
-    【博闻社独家】近日香港出版的最新一期《博讯》月刊刊出深度报道「习近平李克强大决裂」。报道从多个方面分析过去三年多来习李两人的治国理念的差异，透过习李两人在公开场合的诸多现象，并引述独家内幕消息，揭示习李两人「越走越远」，甚至面临「大决裂」的趋势。<br>
-    <br>
-    报道认为，新疆官方无界新闻网转刊「倒习公开信」是引发习近平和李克强的矛盾公开化导火索；导致两人积累三年的分岐大爆发。一方面，李克强从温家宝手中接掌总理一职，承受的压力与温十年不可同日而语，生态问题、资源枯竭、内需不振、产业结构畸形、房地产泡沫超大、金融问题不断都是摆在李克强面前的难题。<br>
-    <br>
-    另一方面，温遇到的搭档是弱主胡锦涛，「胡温十年」说不上有大建树，起码两人之间谦谦相让，表面上没有矛盾。李克强则完全不同，他的搭挡是强势之主习近平。<br>
-    <br>
-    报道指，过去几年李克强的经济理论所表现出对中国社会的弊端与祸害，已在中共党内和社会引起不满，包括股市经济学、互联网金融创新、李克强房地产政策等，无一不是漏洞百出，导致社会对现中央不满，而矛头和焦点都指向一把手习近平，令习李在常委会、甚至是政治局矛盾公开化。<br>
-    <br>
-    习李矛盾达到决裂边缘，是今年3月初全国两会，因为无界新闻网转刊境外的那封「倒习公开信」。这封「倒习公开信」诱发了中共高层权力大角逐，这场角逐不但没有随两会落幕结束，相反会日趋激烈。<br>
-    <br>
-    报道指，习近平上台三年来以强力手腕揽权、反腐、治官及改编军队，得罪党内不同派别、山头和利益集团，使目前党内正出现「倒习暗流」，这些暗流一直想寻找合流的机会，想形成「倒习联盟共同体」，他们有意无意要推「盟主」，李克强便成为他们的目标。因只有李克强，才具有与习抗衡的号召力。<br>
-    <br>
-    详细报道，请看香港新出版的5月号《博讯》月刊。<br>
-    <img src="http://www.boxun.com/news/images/2016/04/201604292107china2.jpg" alt="《博讯》月刊：习近平与李克强的“大决裂”"></p>
-<p>（最新一期博讯月刊封面）<br>
-    <br>
-    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_85986.html?variant=zh-hans" style="color:red;">点此链接</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201604292107" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201604290611001.jpg http://upload.bx.tl/news/temp14/201604290611002.jpg--> 4122107       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
