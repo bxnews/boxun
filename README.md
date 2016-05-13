@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605131307.shtml" target="boxun-mirror">小强乱搞经济搞砸了，习近平李克强矛盾公开化请看博讯热点：习近平观察</a>
 </h2>
@@ -146,7 +146,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605122107.shtml" target="boxun-mirror">寻找姜野飞董广平：被绑架回国整半年杳无音信！请看博讯热点：暴力执法</a>
 </h2>
