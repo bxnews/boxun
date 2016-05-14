@@ -162,7 +162,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605131839.shtml" target="boxun-mirror">独家：北朝鲜最新核试验可能在朝中两国上空引爆</a>
 </h2>
