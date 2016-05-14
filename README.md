@@ -975,7 +975,7 @@
     <br>
     李帅.wx0uoGV：这个社会就是这样 如果没有人说出来我们可能一辈子都不知道</p>
 <p>
-	<small> ============== 13天前</small>
+	<small> ============== 14天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2016/05/201605011654.shtml" target="boxun-mirror">海南警察暴打妇女儿童视频：公安厅长、省长书记必须问责请看博讯热点：警察、官员恶行</a>
 </h2>
