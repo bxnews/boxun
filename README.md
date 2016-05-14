@@ -134,7 +134,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605140042.shtml" target="boxun-mirror">消息人士：人大研究生雷洋被打视频就是他（附视频）请看博讯热点：警察、官员恶行</a>
 </h2>
