@@ -162,7 +162,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605141244.shtml" target="boxun-mirror">独家:令计划案6月开审死缓可能性大请看博讯热点：令计划</a>
 </h2>
@@ -218,7 +218,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605131839.shtml" target="boxun-mirror">独家：北朝鲜最新核试验可能在朝中两国上空引爆</a>
 </h2>
