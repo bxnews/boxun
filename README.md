@@ -85,7 +85,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/z_special/2016/05/201605140014.shtml" target="boxun-mirror">文革杀人现场目击记――勿忘5・16五十周年/刘放</a>
 </h2>
@@ -1058,7 +1058,7 @@
     <br>
     李帅.wx0uoGV：这个社会就是这样 如果没有人说出来我们可能一辈子都不知道</p>
 <p>
-	<small> ============== 14天前</small>
+	<small> ============== 15天前</small>
 </p>
 <table>
     <tr>
