@@ -19,6 +19,74 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/05/201605151151.shtml" target="boxun-mirror">江苏全省总动员:16市上万高考生家长示威，抗议高考减招/视频请看博讯热点：抗议示威</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>江苏全省总动员:16市上万高考生家长示威，抗议高考减招/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/protest.shtml">抗议示威
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月15日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      5月14日，江苏南京、淮安、徐州、南通、苏州、盐城、无锡、扬州、泰州、宿迁、常州、连云港、宜兴、溧阳、江阴、常熟16市上万高考生家长联合示威，抗议高考减招，多名家长遭抓捕。<br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/3JJc_5FugFI" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/xqN2xgyKpGk" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/3HYTONzEMzo" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    淮安：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7017/26411181393_54a97cdd6f_o.jpg" width="500"></div>
+<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7793/26411180663_7c10588bf4_o.jpg" width="500"></div>
+<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7274/26981461826_1c6c0eef28_o.jpg" width="500"></div>
+<br>
+    徐州：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7726/26946765331_c7653f251c_o.jpg" width="500"></div>
+<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7527/27015131125_346aacc5a8_o.jpg" width="500"></div>
+<br>
+    南通：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7670/26409678614_03ba10ea78_o.jpg" width="500"></div>
+<br>
+    苏州：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7148/26741275090_7b2c33cc96_o.jpg" width="500"></div>
+<br>
+    盐城：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7280/26946894591_307033108a_o.jpg" width="500"></div>
+<br>
+    无锡：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7628/26946893711_3a3155f720_o.jpg" width="500"></div>
+<br>
+    扬州：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7121/26946892831_923a983d20_o.jpg" width="500"></div>
+<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7741/26946891841_9930a3ef27_o.jpg" width="500"></div>
+<br>
+    泰州：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7788/26946888361_acc04148ab_o.jpg" width="500"></div>
+<br>
+    宿迁：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7003/26411446043_810446a166_o.jpg" width="500"></div>
+<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7507/26946888191_8fafe57c12_o.jpg" width="500"></div>
+<br>
+    常州：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7352/26946885791_22a5e286f6_o.jpg" width="500"></div>
+<br>
+    连云港：<br>
+    <div align="center"><img src="https://c2.staticflickr.com/8/7242/26411443613_c380f31523_o.jpg" width="500"></div>
+<br>
+    <br>
+    （图文视频摘自 非新闻）
+ [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 3371151       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/z_special/2016/05/201605140014.shtml" target="boxun-mirror">文革杀人现场目击记――勿忘5・16五十周年/刘放</a>
 </h2>
 <p><tr>
@@ -989,36 +1057,6 @@
     wxlw1Y：我一直都是・・・・・・什么不懂就问“度娘”，可现如今看来，这个世界到底是怎么了？ 在现实生活中挣钱看病的人很多很多！患者们已经够惨的了，恳求那些昧着良心赚黑心钱的人，恳求那些能帮着病人的人，你们能帮则带着良心帮，如此不负责的把生命当儿戏！我们群里一千多患者，我是其中一个患者，你们知道我们群里的人最恨的是什么吗？最恨的就是卖药打广告的人进群卖他的药，直接叫他滚！患者已经很不幸了・・・・・・麻烦带点良心做事吧！唉。。。真是！人之初，性本善，你生病，我包赚。<br>
     <br>
     李帅.wx0uoGV：这个社会就是这样 如果没有人说出来我们可能一辈子都不知道</p>
-<p>
-	<small> ============== 14天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/editorial/2016/05/201605011654.shtml" target="boxun-mirror">海南警察暴打妇女儿童视频：公安厅长、省长书记必须问责请看博讯热点：警察、官员恶行</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>海南警察暴打妇女儿童视频：公安厅长、省长书记必须问责<br><font color="blue" size="2">请看博讯热点：<a href="/hot/jingcha.shtml">警察、官员恶行
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=editorial201605011654" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     4月30日，海口长流镇琼华村进行强拆中，警察对已经倒地的妇女、老人和儿童大打出手，已经曝光的一段视频如下：<br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/gUyku-qO6j8" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    目击者称：敢发完整视频吗？我看到的视频是一群畜牲防暴队、手持棍棒痛殴老人、妇女、儿童。这些人打妇女打小孩，手段之残忍！难道小孩也是暴力份子，一群穿着制服的黑社会！黑社会还讲江湖道义！<br>
-    <br>
-    这种超越人类底线的残暴行为引起社会强烈反响。这不是首次也不是最后一起这样的暴行，在中国各地是普遍的行为，只是多数未能录像曝光。人们不禁拷问：为什么在21世纪的中国，这种惨绝人寰的暴行成为普遍现象。有一种说法，称是因为周永康强力维稳遗留问题，目前公安从上到下主要还是周永康时期的人马。如果真的如此，就该认真检讨、研究如何彻底改变这种与时代潮流相背的恶行。<br>
-    <br>
-    事发后，海南省显然没有认真对待和严肃处理。其新闻稿中，将强拆称为“对违章建筑”的拆迁，并宣扬民众暴力在先。称暴行是“执法过程中以暴制暴、粗暴执法行为”。<br>
-    <br>
-    官方称“在依法拆除长流镇琼华村违建过程中出现了暴力抗法行为，在制止暴力抗法过程中，个别执法人员违反规定殴打群众。”  请问，这种强拆是“依法”的吗？如果是，那么对民众施暴也是“依法”啦？这是简单的“殴打群众”吗？他们是对妇女、儿童和老人施暴！！<br>
-    <br>
-    官方新闻稿称：“同时，将对联防队伍进行专项整顿教育，对以暴制暴、粗暴执法的行为坚决查处、绝不姑息”。<br>
-    <br>
-    这不是“粗暴执法”，是法西斯主义犯罪。施暴者必须依法逮捕审判！而指挥者也应该同样负刑事责任。海南省公安厅长甚至书记省长必须问责，否则，这种暴行会继续存在并愈演愈烈。<br>
-     
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=editorial201605011654" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 461654       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 14天前</small>
 </p>
