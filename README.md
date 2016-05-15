@@ -85,7 +85,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/z_special/2016/05/201605140014.shtml" target="boxun-mirror">文革杀人现场目击记――勿忘5・16五十周年/刘放</a>
 </h2>
