@@ -19,6 +19,22 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605161459.shtml" target="boxun-mirror">反思文革民运领袖魏京生揭秘习家挨整真相请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>反思文革 民运领袖魏京生揭秘习家挨整真相<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201605161459" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     由《魏京生基金会》主办的《文革50周年反思研讨会》在华盛顿于216年5月13－14日举行，来自全美各地的与会者都有文革的亲身经历，从文革的发动，结束，被否定。他们的人生坎坷蹉跎无不与中国政治动荡息息相关。<br>
+    <br>
+    他们的经历，人生感悟和反思，广阔的国际视角，多年来为推动中国的民主事业所付出的牢狱代价等，使得他们对文革的反思，对文革认识和总结比他人要更加深刻，这些思考也是在他们的人生历经沧桑后得出的成果。<br>
+    <br>
+    他们的反思对没经历过这场运动，或者至今还没从这场运动的创伤中走出来的人都是一次宝贵的觉悟</p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605160658.shtml" target="boxun-mirror">视频：《十年文革，百年反思》研讨会在纽约召开</a>
 </h2>
 <p><tr>
@@ -979,32 +995,6 @@
     <br>
     据法广香港特约记者麦燕婷日前报道，被指涉贪腐案而被限制出境前中国政协主席贾庆林之女婿李伯潭5月2日在香港现身辟谣。他在律师陪同下与香港两家报章的记者在酒店短暂会晤，称自己早上从美国回香港并入境中国深圳后再来香港，证明自己没有被禁出境。他还表示，有关谣言对他和家人造成很大伤害。（综合法广、南早报道）
  [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605040702061.jpg http://upload.bx.tl/news/temp14/201605040712361.jpg http://upload.bx.tl/news/temp14/201605040715201.png--> 1582212       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/05/201605041235.shtml" target="boxun-mirror">贾庆林女婿刚现身辟谣　港媒再齐起底贾家</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>贾庆林女婿刚现身辟谣　港媒再齐起底贾家<br><font color="#000fC0">(<small>博讯北京时间2016年5月04日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    李伯潭接受苹果访问称未受限制出境<br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605041235china1.jpg" alt="贾庆林女婿刚现身辟谣　港媒再齐起底贾家"><p><br>
-    【博闻社】中共前政治局常委兼全国政协主席贾庆林被传列入习近平新一轮「老虎榜」，其女婿李伯潭（Li Pak Tam）亦被本社独家披露卷入河北前政法委书记张越案而被传限制出境，惟其近日忽然现身香港辟谣，以行动回应被限制出境的报导，并称有关报道对他的家人“造成极大的伤害”。<br>
-    <br>
-    不过，李伯潭此罕有的举动，似乎香港媒体并不领情。香港时间4月3日晚10时许，香港多分报章网站，包括《明报》、《壹周刊》、《南华早报》《香港01》等，不约而同发稿，就巴拿马文件所披露的内容进一步跟进报道，炮火直指贾庆林及其家族，同时起底其他中共政要。<br>
-    <br>
-    其中《香港01》记者获ICIJ授权取得泄露的离岸公司文件，追查李伯潭相关资料，发现李多年与名为林青（Lam Ching Joanna）的女子共同报住同一地址，加上密档显示林青亲自签支票，近年为李伯潭缴交离岸公司年费，相信印证一直以来的消息称，林青其实便是贾庆林女儿贾蔷，化名在港从事商业活动。<br>
-    <br>
-    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_87103.html">点击这里</a><br>
-    －
- [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 2081234       
 </p>
 <hr>
 <table width="620"><tr><td>
