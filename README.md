@@ -19,6 +19,69 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605160658.shtml" target="boxun-mirror">视频：《十年文革，百年反思》研讨会在纽约召开</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：《十年文革，百年反思》研讨会在纽约召开<br><font color="#000fC0">(<small>博讯北京时间2016年5月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201605160658" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社】 当地时间五月十五日，大纽约地区学界和民运人士在法拉盛喜利登酒店集会，纪念文革爆发五十周年。上午10点开始了一场别开生面的研讨会，其主题是《十年文革，百年反思》。据研讨会主办方天问联合学会吴称谋先生介绍，这次研讨会是纪念文革五十周年系列活动之一，之前举办的文革反思图片展，以及稍后举办的几场研讨会，也将从理论上剖析文革的起因。出席今天研讨会的主要学者是：胡平，李振盛，任彦芳，丁凯文，徐友渔，张杰，谢选骏，戴开元，王会林，邢大昆，遇罗文，陈创闯，翁寒松等。<br>
+    会议同时宣布两部有关文革的新书《红墙》和《红祸》出版发行。<br>
+    <br>
+    会议向司马路颁发终身成就奖，表彰他在揭露中共党史方面有突出的贡献，向李伟东，吕金花颁发奖状，表彰他（她）们为会议的筹办有杰出贡献。<br>
+    与会者在自由讨论时表现更为精彩，特别在考证原北京师大附中校长卞仲耘被红卫兵打死的事实上，来宾与与会者进行了十分精彩的辩论。为解开这个历史谜团提供了全新的诠释。<br>
+    一位专程从上海来到美国的朋友，非常肯定地告诉与会者，文革再来不是不可能，而是随时会降临。谢选骏先生指出文革这样的动荡出现在西欧历史上，被称为抓女巫的事件曾经发生过。而恰恰在中国古代没有发生过。<br>
+    胡平先生认为毛发动文革时由于乌托邦的思想，这样的说法站不住脚，因为毛破除旧事物做的太多，建立新事物却是乏善可陈。邢大昆先生提出在林彪出逃的250号三叉戟飞机上，叶群的尸体与叶群身高不符，显示叶群没有上该架飞机。九一三的谜团一直理不清。与会者张寿光先生指出中国人的人性堕落是文革发生的社会基础，张寿光的父亲在文革中被批斗致死，可是当兵的哥哥不仅不来奔丧，却来信说明父亲是阶级敌人，父亲死有余辜。母亲的眼睛哭瞎不是由于父亲的死因，而是哥哥的无情。<br>
+    高平先生回忆自己在中学时，一位品学皆优的女同学在围攻自己的老师时，表现出前所未有的疯狂，用鞋子碾压最关心她成长的恩师。人间所有的情谊和友情全部被粉碎，剩下就是斗争，背叛，厮杀。<br>
+    任彦芳先生回忆在自己第一个孩子出生后不到满月，妻子被抽调去演样板戏，自己在五七干校劳动，孩子重病父母亲也回不了家，最后是焦裕禄的女儿代替家长签字为小孩动手术，孩子落下了后遗症，到现在为止对父母的行为耿耿于怀。一位知青代表邱女士在最近访问汕头塔院的文革博物馆，她对于中共当局封闭该博物馆的行为表示强烈不满。与会者的控诉和回忆，似乎告诉我们：文革伤痕还在流血，反思文革，责任重大。<br>
+    <br>
+    博讯记者西诺 纽约报道<br>
+    <br>
+    以下是本次研讨会全部视频：<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/eWtWUlStKRs" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/GWbVvhFHQ98" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/DOqyVI14hZs" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/CdV7iQxX6MU" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/FeigKNTM5YE" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/cZPn7XXKzdM" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/Il82h2sbvSI" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/PJG6Vj3wBZs" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/_4htLjAQR-Q" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/7T74FDeDJWs" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/rrlU4IV4yCc" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/C2y7noD27ZE" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/OgxIc8JBTKI" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/EG6mNhA1fzE" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/exR6ct69tY0" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/Q7wSGt4LhyM" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <a href="http://bowenpress.com/news/bowen_89758.html">博闻社报道原文</a><br>
+    -<br>
+     
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201605160658" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4980658       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605151151.shtml" target="boxun-mirror">江苏全省总动员:16市上万高考生家长示威，抗议高考减招/视频请看博讯热点：抗议示威</a>
 </h2>
 <p><tr>
@@ -948,117 +1011,6 @@
 <b></p>
 <p>
 	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/05/201605012054.shtml" target="boxun-mirror">魏则西：一个死在百度和部队医院之手的年轻人请看博讯热点：假冒伪劣</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>魏则西：一个死在百度和部队医院之手的年轻人<br><font color="blue" size="2">请看博讯热点：<a href="/hot/jiamaoweilie.shtml">假冒伪劣
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月01日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china1.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"><p><br><br><b>年轻的魏则西去世了，他在死前将自己被百度公司、被部队医院和医生欺骗，视为人性中最大的恶。</b><br>
-    <br>
-    魏则西去世了，他爸爸通报死讯后，调查记者孔璞转载了魏则西在知乎上发表的这篇长答复，简而言之：这个21岁的年轻人出于对百度和部队三甲医院的信任，在罹患滑膜肉瘤这种罕见的癌症后，在武警北京总队第二医院尝试了一种号称与美国斯坦福大学合作的肿瘤生物免疫疗法，在借钱完成了治疗后出现肺部转移后才得知这种疗法并不靠谱。他回答的这个问题是“你认为人性最大的‘恶’是什么？”<br><br><b>有中国特色的癌症免疫治疗？</b><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china2.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    魏则西去的这家医院，是北京武警二院肿瘤生物中心，所接受的是DC-CIK细胞免疫治疗，这是种已经被国外淘汰、但在中国非常红火的肿瘤免疫治疗。<br>
-    <br>
-    首先要确认的是，生物免疫、免疫细胞疗法并不是“假”疗法，在世界多家医院和科研机构都有相关临床研究。治疗过程中，医生通过抽取患者的免疫细胞，在体外扩增和加工，并重新输回患者体内，从而达到提高患者免疫能力，抑制或预防肿瘤生长的目的。<br>
-    <br>
-    不过，从研究结果来看，它的意义有多大就见仁见智了。虽然这种治疗从美国开始，但由于临床试验屡遭失败，在美国国立癌症研究院(NCI)的网站上检索，可以看到目前仅有两家机构在进行CIK细胞治疗研究。第一项研究在斯坦福进行。有槽(Dr-Venting)在4月29日下午电话采访了斯坦福医学院媒体关系部的Becky Bach女士，她表示，斯坦福医学院确实有一项CIK方面的研究，不过是将它作为治疗骨髓增殖性疾病或骨髓发育不良的辅助治疗手段。在肿瘤免疫治疗方面，斯坦福希望探索更新、更有效的疗法。此外，Bach女士也澄清说，斯坦福并未与中国的任何一家医院从事细胞治疗方面的合作，当中包括北京武警二院，她不理解为什么该院在宣传中会强调是从该院引进技术，并承诺将与律师一起进一步调查。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china3.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china4.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    但在中国就不是这么一回事了，在Pubmed医疗论文库中可以看到，虽然高质量的DC-CIK相关论文不多，但署名作者几乎清一色是中国人。<br>
-    <br>
-    按照卫计委颁布的《首批允许临床应用的第三类医疗技术目录》，免疫细胞治疗被限定在临床研究范畴，医院可以开展免疫治疗临床研究，但原则上不得收取任何费用。但是对于这项技术的管理十分混乱，卫计委和食药总局似乎都避之不及。所以，一项本应通过三期临床、在有效性、适应症等诸多方面得到明确解答的实验性技术，现在已在全国各地医院成为重要的治疗手段和赢利工具。<br>
-    <br>
-    怎么个赚钱法？以下是某家以细胞技术为特色的生物公司给出的计算：一次CIK治疗收费为1.5万，毛利润为40%。如果与十家三甲医院合作，每家首年治疗200人，每人接受三个疗程，一年毛利润1512万元。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china5.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br><br><b>武警二院是家什么样的医院？</b><br>
-    <br>
-    有人总结称目前国内的肿瘤免疫疗法是“谋财不害命”。但是，如果病人轻信广告，散尽家财尝试这种几乎无效的疗法，贻误了宝贵的时机使用规范的放化疗和靶向治疗，这不是“谋财害命”又是什么？魏则西的遭遇便是如此。<br>
-    <br>
-    当初魏则西和他的家人走投无路，在百度搜索滑膜肉瘤治疗信息时，搜到的是这样的推荐页面。感谢热心网友留存，因为在最近两天百度发现再次面临公关困境时，已经删得一干二净了。可以看到，排在第二推荐位的就是北京武警二院。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china6.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    而在他们一家进入武警二院主页时，想必也看到了这样的对话框，直接与发来对话框的“医生”开始沟通，甚至得到了一个相当积极的答复，促使他们在几天后就从西安来到了北京求医。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china7.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    该网站标明是武警北京总队二院的官方网站，表示引进了肿瘤生物治疗领域的代表技术，采用DC免疫治疗以及CIK免疫治疗消灭癌细胞，可达到延长生存期，提高生活质量和抑制肿瘤恶化的目的。<br>
-    <br>
-    然而经验告诉我们，但凡主页做得如此花哨，又有对话框出现的医院，必然有蹊跷。我们的第一步从检查主办单位ICP备案开始。嗯，备案主体是个人，而非医院。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china8.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    继续追查医院域名注册信息，北京武警二院注册人单位为：KangXin Hospital Investment and Management CO.LTD。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china9.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    再反查KangXin Hospital Investment And Management CO.,LTD，可以看到该医院投资管理公司名下还注册着其他多家医疗机构域名，其中不乏同样以细胞免疫疗法为特色的“公立医院”。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china10.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    KangXin Hospital Investment And Management CO.,LTD是何方神圣？不太好找，不过我们发现在领英上有数位医疗领域人士有该公司工作背景，从英文名反向查出，该公司中文名称为“康新医院投资管理有限公司”。<br>
-    <br>
-    查到此处，我们可以判断出：北京武警二院的肿瘤生物中心与康新医院投资管理有限公司（下简称“康新公司”），他们是相亲相爱的一家人。除了武警二院，康新旗下还管理着其他多家以生物免疫治疗为特色的肿瘤专科医院。<br><br><b>与北京武警二院合作是什么公司？</b><br>
-    <br>
-    细胞免疫治疗难度并不高，不过在操作中规范化、无菌化和风险控制极其重要，所以，有能力的医院自己做符合GMP标准的细胞操作间，没能力的则是将相关业务外包给多家生物公司来做。由康新公司“承包”或“入股”的北京武警二院肿瘤生物中心属于后者。<br>
-    <br>
-    他们的技术合作伙伴是上海柯莱逊生物技术有限公司。关于该公司近期的新闻是：3月3日晚间，中源协和发布预案称，公司拟以11亿元收购上海柯莱逊生物技术有限公司100%股权。公开资料显示，柯莱逊是国内最大的免疫细胞治疗企业之一。柯莱逊的官网同样将斯坦福大学医学中心列为合作伙伴，斯坦福方面称并不了解该公司。<br>
-    <br>
-    从公开资料来看，上海柯莱逊与北京武警二院肿瘤生物中心同样也是相亲相爱的一家人。何以见得？柯莱逊甚至替二院招聘护士。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china11.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china12.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br><br><b>谜底揭晓，老板根本是一个人</b><br>
-    <br>
-    我们已经发现，康新公司是北京武警二院域名的管理者，柯莱逊是武警二院细胞免疫技术的支持者，那么，康新和柯莱逊又是什么关系？<br>
-    <br>
-    简而简之，他们也是相亲相爱的一家人，老板是莆田人士陈新贤和陈新喜兄弟。<br>
-    <br>
-    柯莱逊公司董事长叫陈新贤，他指导工作的消息刊登在公司官司网上。而公开交易信息显示，柯莱逊的原股东之一为陈新贤的胞弟陈新喜。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china13.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    陈新贤除了是柯莱逊的董事长，旗下还有两大医疗机构，在接受公开采访时他介绍说，他在新加坡注册成立了华康医疗投资集团有限公司，在上海注册成立的就是康新医院投资管理集团有限公司。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china14.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    莆田人士陈新贤的康新公司通过承包科室等方式，管理多家公立医院肿瘤科室，从事医院和科室官网建设和维护、百度竞价、在线咨询导医，甚至直接参与临床治疗；陈新贤与其弟陈新喜的柯莱逊生物公司为这些肿瘤科室提供技术服务。这是稳赚不赔的生意，只要康新能继续搞掂主管医院。<br>
-    <br>
-    如此谋财害命的治疗，得到了主管医院的纵容，得到了百度竞价排名的助推，也得到了监管部门的睁一只眼闭一只眼的默许。得了癌症、被骗了钱又没了命的病人太可怜、太无助、太冤枉。<br><br><b>怎样远离问题医院？</b><br>
-    <br>
-    年轻的魏则西去世了，他在死前将自己被百度公司、被部队医院和医生欺骗，视为人性中最大的恶。媒体和一大批医生曾在几年前质疑细胞免疫疗法无效，然而没用；包括有槽(Dr-Venting)在内的媒体和自媒体曾质疑百度竞价广告的操作不合规、披露部队医院被莆田系承包的种种弊端，也是然并卵。<br>
-    <br>
-    但是，你可以帮助自己和家人朋友自保。<br>
-    <br>
-    首先，凡事不要问百度，凡事不要问百度，凡事不要问百度。原因不再解释。<br>
-    <br>
-    第二，谨慎对待部队医院。部队医院大量赢利科室被莆田系承包的问题已经说了无数次，男科、妇科、不孕不育、皮肤性病、中医这些科室是重灾区，但我也没想到，连肿瘤病人的钱他们也要赚，肿瘤病人的命他们也要榨。<br>
-    <br>
-    哪些科室被承包？查北京地区的医院有个最简单的办法，在手机应用程序“114生活助手”和联通114挂号网站(http://www.114menhu.com/)上，“社会知名医院”这一栏里：除了民营医院，就是部队医院承包科室，其中包括了有槽(Dr-Venting)曾揭露的北京466医院，即空军航空医学研究所附属医院。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605012054china15.jpg" alt="魏则西：一个死在百度和部队医院之手的年轻人"></p>
-<p><br>
-    我是无神论者，但在这件事情上我期待有报应，我希望涉事的所有人，包括医疗监管官员，百度的人，医院的人，康新的人，柯莱达的人，夜里能听到魏则西和其他受害者的哭声。（界面新闻综合 本文作者：涓总）<br><br><b>网友评论</b><br>
-    <br>
-    迷情中东：看看谷歌的阿尔法狗，埃隆.马斯克的space X 飞船。百度这些年做了什么？送外卖？无人汽车驾驶？这是一个科技大佬该做的吗？不希望你改变人类命运，至少你应该改善国人知识而孜孜不倦。未来百度的路很艰难。<br>
-    <br>
-    wxlw1Y：我一直都是・・・・・・什么不懂就问“度娘”，可现如今看来，这个世界到底是怎么了？ 在现实生活中挣钱看病的人很多很多！患者们已经够惨的了，恳求那些昧着良心赚黑心钱的人，恳求那些能帮着病人的人，你们能帮则带着良心帮，如此不负责的把生命当儿戏！我们群里一千多患者，我是其中一个患者，你们知道我们群里的人最恨的是什么吗？最恨的就是卖药打广告的人进群卖他的药，直接叫他滚！患者已经很不幸了・・・・・・麻烦带点良心做事吧！唉。。。真是！人之初，性本善，你生病，我包赚。<br>
-    <br>
-    李帅.wx0uoGV：这个社会就是这样 如果没有人说出来我们可能一辈子都不知道</p>
-<p>
-	<small> ============== 15天前</small>
 </p>
 <table>
     <tr>
