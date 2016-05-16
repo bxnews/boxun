@@ -33,7 +33,7 @@
     <br>
     他们的反思对没经历过这场运动，或者至今还没从这场运动的创伤中走出来的人都是一次宝贵的觉悟</p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605160658.shtml" target="boxun-mirror">视频：《十年文革，百年反思》研讨会在纽约召开</a>
 </h2>
@@ -666,7 +666,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605090215.shtml" target="boxun-mirror">文革红歌秀“高级黑”显示习近平仍未掌控中宣部请看博讯热点：习近平观察</a>
 </h2>
