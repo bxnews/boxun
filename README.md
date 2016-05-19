@@ -66,7 +66,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605172122.shtml" target="boxun-mirror">中国承建委内瑞拉高铁项目烂尾李克强宏图再受挫请看博讯热点：深度报道</a>
 </h2>
