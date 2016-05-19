@@ -713,7 +713,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605120811.shtml" target="boxun-mirror">紫禁城来鸿：人民大会堂“红歌会”震怒习近平中办奉命调查“消毒”</a>
 </h2>
