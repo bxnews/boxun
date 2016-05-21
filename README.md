@@ -19,6 +19,16 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/05/201605210420.shtml" target="boxun-mirror">蔡英文上任，马晓力发震撼言论:极左破坏力最大</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>蔡英文上任，马晓力发震撼言论:极左破坏力最大<br><font color="#000fC0">(<small>博讯北京时间2016年5月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605210420" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     赵岩按：马晓力朋友透露，刚刚用猛烈的语言炮</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/05/201605201822.shtml" target="boxun-mirror">蔡英文就职：中国官方媒体“打压”其国际影响力</a>
 </h2>
 <p><tr>
@@ -957,36 +967,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/05/201605092328.shtml" target="boxun-mirror">魏则西事件：百度逆习而上搞竞价排名获宽大处理</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>魏则西事件：百度逆习而上搞竞价排名 获宽大处理<br><font color="#000fC0">(<small>博讯北京时间2016年5月09日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605092328" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     魏则西事件除了暴露莆田系医院重大问题外，还曝光了百度竞价排名，推广虚假广告，引发众怒。<br>
-    <br>
-    事发后，网信办第一时间牵头调查，作为习近平的互联网安全办公室，估计是受到习近平的指派，至少说明习近平很关注此事。网信办8日即公布了调查结果，消息人士表示，能如此迅速的出结果，更说明习近平及鲁炜们对民怨的重视和效率，特别是要治理竞价排名的决心。<br>
-    <br>
-    在4月19日网络工作会议上，习近平讲话中明确指出：“做搜索的不能以给钱多少作排位标准”（全文附后）百度如此竞价排名引发严重后果，按常规应该重罚，美国对谷歌曾罚款5亿美元。消息人士表示，此次处理没有给予百度巨额罚款，说明习近平有对于民企的保护心态。对于百度的处理，预计会让百度股价损失超过百亿美金，这已经是惩罚。<br>
-    <br>
-    传特勤参与百度进驻<br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605092328china1.jpg" alt="魏则西事件：百度逆习而上搞竞价排名 获宽大处理"><p><br>
-    <br></p>
-<center><font size="4"><b>国家网信办联合调查组公布进驻百度调查结果</b></font></center>
-<br>
-    <br>
-    中国网信网<br>
-    <br>
-    导语<br>
-    国家网信办5月2日会同国家工商总局、国家卫生计生委和北京市有关部门成立联合调查组进驻百度公司，集中围绕百度搜索在“魏则西事件”中存在的问题、搜索竞价排名机制存在的缺陷进行了调查取证。<br>
-    <br>
-    调查组认为，百度搜索相关关键词竞价排名结果客观上对魏则西选择就医产生了影响，百度竞价排名机制存在付费竞价权重过高、商业推广标识不清等问题，影响了搜索结果的公正性和客观性，容易误导网民，必须立即整改。<br>
-    <br>
-    调查组对百度公司提出了以下整改要求：<br>
-    </td></tr></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
