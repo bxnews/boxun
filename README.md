@@ -27,7 +27,7 @@
 </center>
                 <!--bodystart-->     赵岩按：马晓力朋友透露，刚刚用猛烈的语言炮</td></tr></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/05/201605201822.shtml" target="boxun-mirror">蔡英文就职：中国官方媒体“打压”其国际影响力</a>
 </h2>
