@@ -19,6 +19,21 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/05/201605221835.shtml" target="boxun-mirror">独家：中共军队六月再次“改革”重点涉军官异地提拔</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：中共军队六月再次“改革” 重点涉军官异地提拔<br><font color="#000fC0"><small>(博讯北京时间2016年5月22日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605221835" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/05/201605221835china1.jpg" alt="独家：中共军队六月再次“改革” 重点涉军官异地提拔"><br>    （前年11月习近平在福建召开军队政工会议时，提出要从制度上改革军官提拔问题。）<br>    <br>    【博闻社独家】来自中共军方的消息人士对博闻社透露，大陆解放军将从下个月开始，启动以制度建设为重点的第二波“改革”，这次改革重点是要解决军官升迁提拔的机制问题，以防止军队形成团团伙伙、山头派别等问题。<br>    <br>    军方消息人士透露，早在2015年2月，中央军委就已印发《关于加强新形势下选人用人工作监督的意见》、《军队领导干部秘书管理规定》、《关于严格落实军队干部任职回避制度若干问题的规定（试行）》、《军队后备干部工作规定（试行）》、《作战部队指挥军官任职资格规定（试行）》等五项制度，规定所涉及人群既包括军队高层领导干部及秘书，也包括基层领导干部。这是解放军首次成系统地、配套完善地推出选人用人制度规范。<br>    <br>    但是去年下半年开始的军队改革，使这些制度落实受到延缓，保证军队改革顺利成功，成为重中之重。随着军队组织编制改革初步完成，军队制度建设成为一项重要内容。军委决定从今年6月开始，全面推动制度建设，并将之视为军队改革的第二波。<br>    <br>    信息人士指，此次军队制度建设，或者称之为第二波军改，重点是要解决军队干部的提拔机制问题。过去军官的提拔任用，主要是由上级主官提名，建议，交军队政治部考核，尤其是高级军官，变成买官卖官的筹码。实践证明这样做法很容易滋长军队的山头，派系，成为军队帮派团伙的温床。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/05/201605221835china2.jpg" alt="独家：中共军队六月再次“改革” 重点涉军官异地提拔"><br>    （徐才厚和郭伯雄把持军队10多年，买官卖官成风。）<br>    <br>    例如在徐才厚、郭伯雄年代实行“双首长”制度，高级军官晋升一定要经两名军委副主席同意，因此给徐才厚送贿赂的人，一定会同时送礼给郭伯雄，因此郭在买官、卖官腐败中难脱干系。郭、徐二人在卖官方面相当默契，要么联手，要么你提拔一个，我提拔一个。<br>    <br>    郭伯雄任职军委副主席的十年间，许多现任军中要员均受其提拔，故其子郭正钢曾放出“全军干部一半以上将领是我家提拔的”狂言。<br>    <br>    有鉴于郭徐二人所作所为严重败坏了军风军纪，军委主席习近平在拿下徐才厚后，即要求从制度上杜绝这种裙带关系的情况，健全建立科学合理、利于增强军队国防实力的用人机制，杜绝违纲乱纪、结党营私的团团伙伙。<br>    <br>    信息指，军委出台的五项制度规定，着眼解决部队反映的突出矛盾问题，对领导干部秘书选拔配备和教育管理监督等作出明确规范，对领导干部亲属和身边工作人员严格任职回避作出具体规定，对后备干部遴选条件、数量结构、选拔培养和动态管理等加以调整完善。<br>    消息人士指，今后军队提拔军官，可能要实行“换单位提拔锻炼”的模式，不能在同一个单位提拔等。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/05/201605221835china3.jpg" alt="独家：中共军队六月再次“改革” 重点涉军官异地提拔"><br>    （今后军官要异地升迁。）<br>    <br>    知情人士表示，五项制度规定中对作战部队指挥军官任职年限、任职经历、专业资质、任职培训等作出明确规定。作战部队指挥军官包括连长、指导员、营长、教导员、团长、师长和政委。对作战部队指挥军官的选用提出以上标准，可以避免任人唯亲和违规晋升，让真正“想打仗”、“谋打仗”、“会打仗”的人被用起来。<br>    <br>    习近平前年在福建古田召开的全军政治工作会议上，严肃指出当前军队选人用人的突出问题。消息人士称，制定颁发干部选拔任用五项制度，根本目的是为了贯彻落实习近平重要指示和军委决策部署，把强军目标要求和军队好干部标准转化为制度安排。<br>    <br>    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_91219.html" style="color:red;">点此链接</a>）[博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201605221835" target="_new">支持此文作者/记者</a> <br><!--(Modified on 2016/5/22)--><!--bodyend-->       
+           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605220335101.jpg http://upload.bx.tl/news/temp14/201605220335102.jpg http://upload.bx.tl/news/temp14/201605220335103.jpg--> 2771835       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605212222.shtml" target="boxun-mirror">枉法事件不断：公安部大改组习近平勒令规范办案</a>
 </h2>
 <p><tr>
@@ -882,70 +897,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/05/201605110305.shtml" target="boxun-mirror">山东省龙口市万人游行示威阻大型化工项目落户请看博讯热点：突发事件</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>山东省龙口市万人游行示威阻大型化工项目落户<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tufa.shtml">突发事件
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605110305" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      山东省龙口市的上万市民，周二（5月10日）发起大规模游行示威，要求政府彻底停止落户在当地的一个大型化工项目。<br>
-    <br>
-    据网友透露，本月4日，龙口政府发布了一份环评公示，拟在龙口市裕龙岛兴建总规划面积约为50.41平方公里的大型化工项目，立即引发市民不满而纷纷在各大社交媒体发布信息，号召市民上街抗议，5月9日，已有部分市民聚集到龙口市政府抗议。<br>
-    <br>
-    网友“A哇壮哥”发帖说：现在，一个个厂子的出现，污染整个龙口海边都不像样子，那水，恶心！ 以前，没有，整个龙口的空气，那是无比清新的。 现在，那些厂子烟囱冒黑乎乎的烟，那是有化学物质，污染环境的。 现在还要建厂子？南山的计划？南山海岸华府的楼，有几个去买？<br>
-    <br>
-    10日一早，示威升级，上万人陆续聚集到龙口市政府门口，手持大量横幅标语，高喊口号，要求当地政府立即停止该石化项目。<br>
-    <br>
-    网友“冰糖雪薇”发帖说：龙口南山和新加坡要在人工岛建设一个大型化工基地，名字裕龙化工基地。规模很大，污染范围很大，勃海湾、莱州湾鱼类生长完了，莱州、招远人民生活的空气质量也完了。赶快行动起来吧！龙口人民百姓已行动在阻止。<br>
-    <br>
-    现场视频、图片显示，大批市民手持“坚决抵制石化项目进驻龙口”、“不要把我们的家园变成炼狱”、“还我家园，捍卫民主”等横幅，游行在街道上，聚集在政府门口，并齐声高喊“保护环境，人人有责，还我家园，保卫领土”等口号，有少量警察在现场戒备，未见发生冲突。<br>
-    <br>
-    当天中午，龙口市政府官方微博发布声明称，“根据公示期群众的意见建议，市政府决定环境评价论证工作停止。” 但市民对此并不信任，认为是当地政府的“缓兵之计”。<br>
-    <br>
-    当晚，更多的市民从市内各地游行到龙口市政府，要求政府承诺彻底停止裕龙岛石化项目。<br>
-    <br>
-    网友“遇见阳光的偏爱”发帖说：今晚七点开始龙口西城区华龙广场南北路已经水泄不通，请愿的队伍越来越壮大了，特警、边防、武警、交警全部出动！<br>
-    <br>
-    截止当晚10点，仍有大批的市民聚集在市政府门口，周边交通完全中断。<br>
-    <br>
-    （网络图片）<br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china1.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"><p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china2.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china3.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china4.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china5.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china6.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china7.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china8.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china9.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china10.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china11.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china12.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china13.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605110305china14.jpg" alt=" 山东省龙口市万人游行示威阻大型化工项目落户"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201605110305" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605101157021.jpg http://upload.bx.tl/news/temp14/201605101157022.jpg http://upload.bx.tl/news/temp14/201605101157023.jpg http://upload.bx.tl/news/temp14/201605101157024.jpg http://upload.bx.tl/news/temp14/201605101157271.jpg http://upload.bx.tl/news/temp14/201605101157272.jpg http://upload.bx.tl/news/temp14/201605101157273.jpg http://upload.bx.tl/news/temp14/201605101157274.jpg http://upload.bx.tl/news/temp14/201605101157421.jpg http://upload.bx.tl/news/temp14/201605101157422.jpg http://upload.bx.tl/news/temp14/201605101157423.jpg http://upload.bx.tl/news/temp14/201605101157424.jpg http://upload.bx.tl/news/temp14/201605101157551.jpg http://upload.bx.tl/news/temp14/201605101157552.jpg--> 4580305       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
