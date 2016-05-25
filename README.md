@@ -58,7 +58,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605242327.shtml" target="boxun-mirror">紫禁城来鸿：刘鹤或成中共下任总理“黑马”请看博讯热点：十九大布局</a>
 </h2>
