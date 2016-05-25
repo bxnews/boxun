@@ -19,6 +19,47 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/05/201605251321.shtml" target="boxun-mirror">传韩正准备动身赴京任副总理上海官场异动将揭幕</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>传韩正准备动身赴京任副总理 上海官场异动将揭幕<br><font color="#000fC0">(<small>博讯北京时间2016年5月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605251321" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】来自上海的消息对博闻社透露，盛传已久的上海市高层人士异动，可能很快水落石出。现任市委书记韩正晋京入国务院已无疑问，可能出任副总理。近日他已与旧居惜别。有传重庆市市委书记孙政才接掌上海。<br>
+      
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       来自上海的消息透露，近日，市委书记韩正来到他曾经住过的老房子“看看”，还到武康路280弄院门口看了有十几分钟，惜别之意甚浓。见者都认为是上调北京的前兆。消息指，中纪委和审计署对韩正的离任审计已经结束。 <br>
+    <br>
+    消息指，中共中央书记处书记兼中共中央纪律检查委员会第一副书记赵洪祝近日匆匆到达上海，仅一个晚上就离开上海回北京。分析指或与此事有关。<br>
+    <br>
+    消息指，接替韩正的有可能是重庆市委书记孙政才。而韩正上调中央后，上海市长也要换人，现任市长杨雄退休，接任者可能是副市长蒋卓庆 。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_101812.html">点击这里</a><br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201605251321" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2991321       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605242327.shtml" target="boxun-mirror">紫禁城来鸿：刘鹤或成中共下任总理“黑马”请看博讯热点：十九大布局</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -829,21 +870,6 @@
 <b></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605131839.shtml" target="boxun-mirror">独家：北朝鲜最新核试验可能在朝中两国上空引爆</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：北朝鲜最新核试验可能在朝中两国上空引爆<br><font color="#000fC0"><small>(博讯北京时间2016年5月13日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201605131839" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/05/201605131839intl1.jpg" alt="独家：北朝鲜最新核试验可能在朝中两国上空引爆"><br>    （金正恩不顾国际社会反应一意孤行。）<br>    <br>   【博闻社独家】本社获悉，北朝鲜可能将在近日再次进行核爆实验，而且这次核爆有可能是空中引爆，再次践踏联合国禁核条约，且针对中国的意图明显。中方已紧急向朝方交涉，并部署在东北以及山东等地监测。<br>    <br>   本社获悉，朝鲜为庆祝劳动党第七次全国代表大会举行，正筹划进行一次核试爆，而且与往常不同，再次核爆有可能是采用空中引爆方式。<br>    <br>   由于核爆点可能在朝鲜与中国交界处上空，中方高度紧张，除派出外交人员与朝方交涉，同时派出监测小组在与朝方接壤的吉林，辽宁，以及隔海的山东进行监测。<br>    <br>   有评论认为，中国政府必须顾及中国人民的生命财产安全，彻底放弃金正恩，而不要再幻想利用金氏与美国周旋。<br>    <br>   今年1月6日，朝鲜已经进行了一次地下核试爆，平壤称是一次氢弹试爆，并且取得了成功。<br>    <br>   联合国早于1963年已制定《部分禁止核试验条约》（英语：Partial Test Ban Treaty,PTBT），全称《禁止在大气层、太空和水下进行核武器试验条约》，是一个限制核武器试验的国际条约。<br>    <br>   该条约禁止了除在地下外的一切核武器试验。其目标是减缓冷战期间的军备竞赛，和防止核武器试验造成地球大气中过量的放射性尘埃。1963年8月5日苏联、英国和美国在莫斯科签署该条约，同年10月10日生效。包括中国在内，有130多国签署。<br>    <br>  （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_89143.html?variant=zh-hans" style="color:red;">点此链接</a>） [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201605131839" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/5/13)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605130342361.jpg--> 4751839       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
