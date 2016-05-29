@@ -516,7 +516,7 @@
     <br>
     他们的反思对没经历过这场运动，或者至今还没从这场运动的创伤中走出来的人都是一次宝贵的觉悟</p>
 <p>
-	<small> ============== 13天前</small>
+	<small> ============== 14天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/05/201605162156.shtml" target="boxun-mirror">北京观点：令计划要判死刑的10大理由</a>
 </h2>
