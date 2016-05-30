@@ -80,6 +80,16 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/05/201605302108.shtml" target="boxun-mirror">习近平穷追猛打江苏帮李源潮前心腹秘书李云峰落马</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>习近平穷追猛打江苏帮 李源潮前心腹秘书李云峰落马<br><font color="#000fC0"><small>(博讯北京时间2016年5月30日 综合报道)</small></font>
+</center>
+            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/05/201605302108china1.jpg" alt="习近平穷追猛打江苏帮 李源潮前心腹秘书李云峰落马"><br>    （曾任秘书的李云峰是李源潮心腹）<br>    <br>    【博闻社】央视记者从中央纪委获悉，江苏省委常委、副省长李云峰涉嫌严重违纪，目前正接受组织调查。李云峰曾任中共现政治局委员、国家副主席李源潮主政江苏时的大秘。习近平王岐山此举被视为要拿下李源潮而“剪裙边”的又一个动作。博闻社去年已报道，李源潮因涉令计划案以及家族贪腐，已经列入习近平“能上能下”高层名单，仕途岌岌可危。<br>    <br>    央视引中共中央纪律委员会的消息报道，江苏省委常委、副省长李云峰涉嫌严重违纪，目前正接受组织调查。<br>    <br>    这是继原云南省委副书记仇和，辽宁省委书记王珉，南京市委书记杨卫泽，南京市长季建业，江苏省委前秘书长赵少康等“江苏帮”成员被中纪委拘查后，又一个李源潮旗下“江苏帮”成员落马。<br>    <br>    而且，李云峰与李源潮的关系更是非同小可，2003年至2007年李源潮任江苏省委书记时，李云峰是省委秘书长，属地地道道的李源潮“心腹大秘”。<br>    <br>    北京消息人士透露，其实早在去年底的中共十八届五中全会前，李云峰就已经被中纪委列入重点调查名单，今年两会后，李云峰曾被中纪委约谈了多次。<br>    <br>    59岁的李云峰江苏句容人，北京大学哲学系哲学专业毕业，南京大学国际商学院工商管理专业研究生。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/05/201605302108china2.jpg" alt="习近平穷追猛打江苏帮 李源潮前心腹秘书李云峰落马"><br>    （李源潮仕途再现危机）<br>    <br>    1975年10月，他到句容县春城公社插队；1978年2月，他考入北京大学哲学系哲学专业，毕业后于1982年2月回到江苏，在镇江地委党校担任教师；但很快就于1983年8月，上调到省委办公厅老干部处、秘书一处、秘书三处当秘书；1988年8月之后，升任副处长、省委办公厅巡视督查组组长、处长。<br>    <br>    1993年10月，他挂职任江阴市委副书记（其间：1995年4月至1995年12月参加省高级管理人才经济研究班，赴美国培训）；1996年1月，升任省委办公厅副主任；1997年6月，任省委副秘书长。<br>    <br>    李源潮2000年10月从文化部副部长调到江苏担任省委副书记一职时，李云峰任省委副秘书长、省委研究室主任。李源潮在中共十六大之后升为省委书记，李云峰也于2003年4月任省委副秘书长兼省委办公厅主任，成为李源潮的跟班心腹大秘。<br>    <br>    随后他于2006年被李源潮提拔为省委常委、省委秘书长，成为李源潮在江苏的大管家。李源潮于2007年进入中央政治局、书记处、掌管中共组织大权之后，李云峰进一步升任省委常委、省政府常务副省长，仍兼省委秘书长。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/05/201605302108china3.jpg" alt="习近平穷追猛打江苏帮 李源潮前心腹秘书李云峰落马"><br>    （李云峰与已经落马的前南京市委书记杨卫泽是连襟）<br>    <br>    消息透露，李云峰还是去年落马的江苏省委常委、南京市委书记杨卫泽的连襟。<br>    <br>    李云峰是李源潮在江苏欣赏重用的“六大金刚”之一。其他几位分别是：江苏省委书记罗志军，云南省省委副书记、前江苏省副省长仇和；前苏州市委书记，后任辽宁省委书记王珉；前江苏省委秘书长赵少麟（他是李云峰的前任，2006年李云峰就是接替他）。<br>    <br>    这“六大金刚”中，第一个落马的是赵少麟，虽然已经退休八年，他在2014年10月11日接受调查，此前他的儿子、房地产商赵晋已被有关部门控制。<br>    <br>    另一位“金刚”仇和，于2015年3月15日被中纪委拿下。<br>    <br>    2016年3月4日上午，全国两会刚开幕，中纪委网站宣布，拿下前辽宁省委书记，全国人大教育科学文化卫生委员会副主任委员王珉。王珉是李源潮扶植的江苏帮干将之一，从南京航空大学起家，官至苏州市委书记，吉林省委书记，辽宁省委书记等。<br>    <br>    现在，中纪委又宣布拿下李云峰，对李源潮“剪裙</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605291721.shtml" target="boxun-mirror">提拔亲信习近平布局十九大热门“入常”人选呼之欲出</a>
 </h2>
 <p><tr>
@@ -688,74 +698,6 @@
 <b></p>
 <p>
 	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/05/201605151151.shtml" target="boxun-mirror">江苏全省总动员:16市上万高考生家长示威，抗议高考减招/视频请看博讯热点：抗议示威</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>江苏全省总动员:16市上万高考生家长示威，抗议高考减招/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/protest.shtml">抗议示威
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月15日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      5月14日，江苏南京、淮安、徐州、南通、苏州、盐城、无锡、扬州、泰州、宿迁、常州、连云港、宜兴、溧阳、江阴、常熟16市上万高考生家长联合示威，抗议高考减招，多名家长遭抓捕。<br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/3JJc_5FugFI" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/xqN2xgyKpGk" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/3HYTONzEMzo" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    淮安：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7017/26411181393_54a97cdd6f_o.jpg" width="500"></div>
-<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7793/26411180663_7c10588bf4_o.jpg" width="500"></div>
-<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7274/26981461826_1c6c0eef28_o.jpg" width="500"></div>
-<br>
-    徐州：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7726/26946765331_c7653f251c_o.jpg" width="500"></div>
-<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7527/27015131125_346aacc5a8_o.jpg" width="500"></div>
-<br>
-    南通：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7670/26409678614_03ba10ea78_o.jpg" width="500"></div>
-<br>
-    苏州：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7148/26741275090_7b2c33cc96_o.jpg" width="500"></div>
-<br>
-    盐城：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7280/26946894591_307033108a_o.jpg" width="500"></div>
-<br>
-    无锡：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7628/26946893711_3a3155f720_o.jpg" width="500"></div>
-<br>
-    扬州：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7121/26946892831_923a983d20_o.jpg" width="500"></div>
-<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7741/26946891841_9930a3ef27_o.jpg" width="500"></div>
-<br>
-    泰州：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7788/26946888361_acc04148ab_o.jpg" width="500"></div>
-<br>
-    宿迁：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7003/26411446043_810446a166_o.jpg" width="500"></div>
-<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7507/26946888191_8fafe57c12_o.jpg" width="500"></div>
-<br>
-    常州：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7352/26946885791_22a5e286f6_o.jpg" width="500"></div>
-<br>
-    连云港：<br>
-    <div align="center"><img src="https://c2.staticflickr.com/8/7242/26411443613_c380f31523_o.jpg" width="500"></div>
-<br>
-    <br>
-    （图文视频摘自 非新闻）
- [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 3371151       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
 </p>
 <table>
     <tr>
