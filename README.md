@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/06/201606010152.shtml" target="boxun-mirror">沈阳校园夺命跑道大批学生晕倒流鼻血一死政府掩盖请看博讯热点：草菅人命</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>沈阳校园夺命跑道大批学生晕倒流鼻血一死 政府掩盖<br><font color="blue" size="2">请看博讯热点：<a href="/hot/lives.shtml">草菅人命
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201606010152" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    【博闻社独家】沈阳一间学校一年前新</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605301936.shtml" target="boxun-mirror">南方不应忘记的人物――街头运动领袖刘远东请看博讯热点：抗议示威</a>
 </h2>
 <p><tr>
@@ -630,69 +642,6 @@
             <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/05/201605162156pubvp1.jpg" alt="北京观点：令计划要判死刑的10大理由"><br>    （令计划落马前最后亮相:到中国藏学研究中心调研）<br>    <br>  【博闻社北京特别报道】中共前朝大内总管令计划案，官方上周已宣布移交天津市第一中级人民法院起诉，罪名涉三宗，分别是受贿、非法获取国家秘密、滥用职权。本案似乎已“水落石出”，但这三宗罪的背后蕴含着什么内容？令计划可能会面临什么样的量刑？这才是最关键的。<br>    <br>  博闻社获悉，中共在对外发布令计划被起诉的相关消息同时，又下禁令严令官媒和各大门户网站发布任何形式妄议此案，只能跟从转发新华社、人民日报的权威消息和报道。<br>    <br>  为此，博闻社驻京记者特别邀请部分法律专家、中国问题观察家、国际媒体驻华记者和时事评论员，就令计划进行研讨，特别是对令是否会判死刑这一焦点话题，进行评估和深入探讨。<br>    <br>  与会者意见不一，为客观反映各位观点，博闻社特别整理出“判令计划死刑的10大理由”和“不判令计划死刑的10大疑问”。以下第一部分：“判令计划死刑的10大理由”。<br><br><b>1、罪大恶极</b><br>    <br>  即使是根据官方已经公布令涉案的三宗罪：“受贿、非法获取国家秘密、滥用职权”，受贿多少官无透露，仅以“巨额”两字代之。博社早在4月初已透露，令计划受贿款达1.3亿人民币，与周永康案相若(周被指控家人受贿1.29亿)。周永康已被判无期徒刑。<br>    <br>  至于“非法获取国家秘密”罪名，去年公布的审查报告指令计划“违纪违法获取党和国家大量核心机密”。外界一直盛传令计划多年来利用职权，获得大量涉及中央高层的机密，甚至把部分文件通过其弟令完成带到美国，但当局没用泄密罪起诉令。<br>    <br>  专家学者们表示，除受贿罪最高可判死刑外，令计划的其他两项罪名的最高刑期均为七年。但近年内地的司法实践，受贿罪被判死刑的机会并不大，不过，令计划事件对中共破坏之严重，可谓罪大恶极，不判死罪难解党恨；当然，首先必须“按罪量刑”<br><br><b>2、依法办理</b><br>    <br>  即使是根据中国法律条文一一对照，令计划所犯罪行依法也应该判处死刑；毫无疑问，理应法办。<br><br><b>3、欺君逆天</b><br>    <br>  令计划曾经担任中共中枢核心大内总管多年，位居一人之下万人之上，目空一切甚至欺君逆天，在皇帝眼皮底,下肆无忌惮，引发龙怒。如果令计划作为主谋，与已经成为阶下囚的周永康和薄熙来沆瀣一气，试图谋反或者政变的传闻属实；那么，古今中外，在东窗事发之后阴谋篡位夺权者的下场，可想而知。<br><br><b>4、里通外国</b><br>    <br>  曾经是中南海大内总管的令计划，伴君多年，与胡锦涛形影不离，也有机会掌握众多国家级最高机密；其胞弟令完成据信已经携带大量核心机密材料，藏匿美国至今未归。<br>    <br>  博闻社此前已经独家披露相关消息，即使因为涉及国家机密，外界可能无法知晓个中详情；但在内部审理时，“里通外国”和“绝密文件”一定是法律文书绕不过的重要组成部分。<br><br><b>5、级别障碍</b><br>    <br>  令计划确实曾拥有显赫身份，并且位至副国级；但是即使曾经是胡锦涛的左膀右臂，其实权虽大也毕竟有限。中共中央办公厅主任一职更不如政治局常委头衔那样名副其实；所以，如果令计划被判死刑，其级别问题根本不是障碍，而且似乎也更加名正言顺。<br>    <br>  另一方面也很容易理解，周永康为何未判死刑；除了其罪行相对较轻以外，实际上在级别问题上，周案对令案并没有实际参照意义和参考价值。<br><br><b>6、“大快人心”</b><br>    <br>  因为中国经济的严重滑坡，尤其是几次股市的崩盘加上各种荒唐事件的不断发生，中国民众对习李政府的信心，已经一落千丈，博闻社此前报道，习近平一直希望重振民心；令计划案可能是让百姓拍手称快的一个机会。纵然中国种种内忧外患不可能因此而一一化解甚至消除；但是“大快人心”的结果将直接导致习近平打赢这场“民心保卫战”。<br><br><b>7、敲山震虎</b><br>    <br>  席卷全国的反腐运动常被外界解读为习近平“排除异己”；一旦判处令计划死刑，刑不上大夫的戒律将被彻底打破。敲山震虎效应将会立竿见影，而且一举多得。任何官员一旦犯法都可能被“关进笼子里”，甚至判处死刑。这将对中共自上而下的反腐运动注入强劲活力；也让各级党政军干部如坐针毡，乖乖地团结在习核心周围；更重要的是，传闻涉贪的中共政坛元老们的前途，将充满巨大的想像空间，并且委实堪忧。<br><br><b>8、声东击西</b><br>    <br>  南海问题一直是中美之间的大问题；因为争执不下，菲律宾已经将中国诉诸于国际法庭；中日之间因为钓鱼岛问题，而剑拔弩张；带有挑衅意味并且不断挑战中国底线的朝鲜已经越来越不那么听话；即使是海峡对岸的台湾，因为蔡英文的当选，而使两岸关系紧绷。<br>    <br>  如果判决令计划死刑可以说中国向全世界就发出了，绝对不会手软的明确信号；不仅对内可敲山震虎，对外也可声东击西，任何来犯之敌中国都将坚决予以痛击。四两拨千斤，打个并不恰当但也合适的比方，也许判决令计划死刑的震慑效应，远远超过中国外交部无关痛痒一纸声明，甚至远远超过中国国防部雷声大雨点小的所谓调兵遣将。<br><br><b>9、一了百了</b><br>    <br>  自从令计划案浮出水面那一天起，围绕此案的众多传闻便不胫而走，并在海内外广泛传播。既然已经斩草除根当然也就不会夜长梦多。即使令完成真的携带大量中共机密，估计被美方利用的筹码也已所剩无几；甚至可以弃之不顾，反而更加愿意配合中方的海外猎狐。<br>    <br>  亦真亦假，扑朔迷离；如果判决令计划死刑，无论此案的水有多深，种种谜底，势必都将永远成迷；但是另一方面，因为此案已经盖棺论定，也就自然可以一了百了。<br><br><b>10、一世英名</b><br>    <br>  如果法庭最终判决结果是判处令计划死刑，即使可能面临国际人权人道或反对死刑等相关组织的指责；但是中共可借此宣告，任何人，无论任何地位，尤其是高层领导，一旦犯罪都将与庶民同罪，中国司法将赢得国际社会的赞誉。<br>    <br>  因为姐夫卷入巴拿马文件而使声誉部分受损的习近平，也可能借此超越俄罗斯总统普京和美国总统奥巴马，成为真正的强人；并在人类政治史上，留下“一世英名”。<br>    <br>    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_89923.html" style="color:red;">点此链接</a>）[博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201605162156" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/5/16)--> <!--bodyend-->       
            (博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
 <!-- http://upload.bx.tl/news/temp14/201605160658551.jpg--> 4492156       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605160658.shtml" target="boxun-mirror">视频：《十年文革，百年反思》研讨会在纽约召开</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：《十年文革，百年反思》研讨会在纽约召开<br><font color="#000fC0">(<small>博讯北京时间2016年5月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201605160658" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    【博闻社】 当地时间五月十五日，大纽约地区学界和民运人士在法拉盛喜利登酒店集会，纪念文革爆发五十周年。上午10点开始了一场别开生面的研讨会，其主题是《十年文革，百年反思》。据研讨会主办方天问联合学会吴称谋先生介绍，这次研讨会是纪念文革五十周年系列活动之一，之前举办的文革反思图片展，以及稍后举办的几场研讨会，也将从理论上剖析文革的起因。出席今天研讨会的主要学者是：胡平，李振盛，任彦芳，丁凯文，徐友渔，张杰，谢选骏，戴开元，王会林，邢大昆，遇罗文，陈创闯，翁寒松等。<br>
-    会议同时宣布两部有关文革的新书《红墙》和《红祸》出版发行。<br>
-    <br>
-    会议向司马路颁发终身成就奖，表彰他在揭露中共党史方面有突出的贡献，向李伟东，吕金花颁发奖状，表彰他（她）们为会议的筹办有杰出贡献。<br>
-    与会者在自由讨论时表现更为精彩，特别在考证原北京师大附中校长卞仲耘被红卫兵打死的事实上，来宾与与会者进行了十分精彩的辩论。为解开这个历史谜团提供了全新的诠释。<br>
-    一位专程从上海来到美国的朋友，非常肯定地告诉与会者，文革再来不是不可能，而是随时会降临。谢选骏先生指出文革这样的动荡出现在西欧历史上，被称为抓女巫的事件曾经发生过。而恰恰在中国古代没有发生过。<br>
-    胡平先生认为毛发动文革时由于乌托邦的思想，这样的说法站不住脚，因为毛破除旧事物做的太多，建立新事物却是乏善可陈。邢大昆先生提出在林彪出逃的250号三叉戟飞机上，叶群的尸体与叶群身高不符，显示叶群没有上该架飞机。九一三的谜团一直理不清。与会者张寿光先生指出中国人的人性堕落是文革发生的社会基础，张寿光的父亲在文革中被批斗致死，可是当兵的哥哥不仅不来奔丧，却来信说明父亲是阶级敌人，父亲死有余辜。母亲的眼睛哭瞎不是由于父亲的死因，而是哥哥的无情。<br>
-    高平先生回忆自己在中学时，一位品学皆优的女同学在围攻自己的老师时，表现出前所未有的疯狂，用鞋子碾压最关心她成长的恩师。人间所有的情谊和友情全部被粉碎，剩下就是斗争，背叛，厮杀。<br>
-    任彦芳先生回忆在自己第一个孩子出生后不到满月，妻子被抽调去演样板戏，自己在五七干校劳动，孩子重病父母亲也回不了家，最后是焦裕禄的女儿代替家长签字为小孩动手术，孩子落下了后遗症，到现在为止对父母的行为耿耿于怀。一位知青代表邱女士在最近访问汕头塔院的文革博物馆，她对于中共当局封闭该博物馆的行为表示强烈不满。与会者的控诉和回忆，似乎告诉我们：文革伤痕还在流血，反思文革，责任重大。<br>
-    <br>
-    博讯记者西诺 纽约报道<br>
-    <br>
-    以下是本次研讨会全部视频：<br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/eWtWUlStKRs" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/GWbVvhFHQ98" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/DOqyVI14hZs" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/CdV7iQxX6MU" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/FeigKNTM5YE" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/cZPn7XXKzdM" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/Il82h2sbvSI" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/PJG6Vj3wBZs" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/_4htLjAQR-Q" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/7T74FDeDJWs" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/rrlU4IV4yCc" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/C2y7noD27ZE" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/OgxIc8JBTKI" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/EG6mNhA1fzE" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/exR6ct69tY0" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/Q7wSGt4LhyM" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <a href="http://bowenpress.com/news/bowen_89758.html">博闻社报道原文</a><br>
-    -<br>
-     
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201605160658" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4980658       
 <hr>
 <table width="620"><tr><td>
 <b></p>
