@@ -78,7 +78,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606010152.shtml" target="boxun-mirror">沈阳校园夺命跑道大批学生晕倒流鼻血一死政府掩盖请看博讯热点：草菅人命</a>
 </h2>
@@ -90,7 +90,7 @@
                 <!--bodystart-->      <br>
     【博闻社独家】沈阳一间学校一年前新</td></tr></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/05/201605301936.shtml" target="boxun-mirror">南方不应忘记的人物――街头运动领袖刘远东请看博讯热点：抗议示威</a>
 </h2>
