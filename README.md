@@ -19,6 +19,52 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/06/201606022053.shtml" target="boxun-mirror">六四未到六二也敏感中共防陈希同「阴魂不散」请看博讯热点：六四</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>六四未到六二也敏感 中共防陈希同「阴魂不散」<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201606022053" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社北京特别报导】今年是六四事件27周年，尽管6月4号这一天还没有真正到来，但北京当局早从5月底开始，已对六四相关人物采取特别措施；而博闻社记者获悉，6月2日甚至也成为中共当局的敏感词，因为3年前这天，六四事件经手人、前北京市委书记陈希同撒手人寰。六四后陈被江泽民以贪腐名义拉下马送进监狱，他生前曾对自己的冤狱大表不满，称那怕到了天堂也要跟政治对手「决斗」。<br>
+    <br>
+     博闻社驻京记者获悉，随着六四日益临近，中共已全方位加强了对六四相关人士的监控，包括天安门母亲丁子霖、赵紫阳前秘书鲍彤等一批敏感人士，日前已被当局带离北京、到外地「旅游」，在京的天安门母亲部份活跃者，以及六四异见人士，近日全部「被上岗」，家外有公安国保看守。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    本社记者还意外获悉，今天(6月2日)居然也成了中共当局一个「敏感日」。原因是今天是前北京市委书记陈希同的忌日，陈希同六四时曾任北京市长，被指是导致邓小平拍板出动军队镇压学生的关键人物，六四后升任北京市委书记，但因与新主子、中共总书记江泽民不和，看不起上海来的江，被江以贪腐名义拿下，送进秦城监狱，后保释出来，2013年6月2日因病不治去世。<br>
+    <br>
+    博闻社此前曾披露，作为六四后中共政坛名人，陈希同一度成为海内外关注人物，在一场排除异己的政治斗争中不幸中枪，最终以腐败名义落马而锒铛入狱，后因身患重病而保外就医。但对陈希同的审判，也曾引起海内外的广泛争议。<br>
+    <br>
+    本社驻京记者获悉，当局一周前就部署预案，尤其在小汤山陈希同当年的寓所以及陈希同的四川老家，均加强警戒并实施监控；六四期间被列为「一级戒备」。北京国保已经拦截多个专程前往小汤山为陈希同鲜花的人士和团队；四川警方则将陈希同老家发生多起自发性悼念活动「消灭在萌芽状态」。<br>
+    <br>
+    博闻社记者获悉，无论是出狱后被变相软禁在北京近郊小汤山的岁月，还是在与病魔搏斗的最后的时光，陈希同都一直对中共高层内斗和整人伎俩耿耿于怀。陈希同甚至不只一次以其标志性的豪放大胆风格，带着其浓重的四川口音狂言，要与当年直接负责此案的中纪委书记尉健行「在天堂里决斗」。<br>
+    <br>
+    3年前，中共官媒新华社以寥寥数语发布陈希同的死讯；3年后死不瞑目的陈希同，正在履行其誓言，与已经同在天堂的尉健行，进行真正意义的「殊死搏斗」。天堂发生什么，地面上的人无从知晓；从陈希同与尉健行当年的外型判断，似乎陈希同应该具备明显优势。<br>
+    <br>
+    博闻社报道全文：<a href="http://bowenpress.com/news/bowen_103834.html">点击这里</a><br>
+    <br>
+    -
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201606022053" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3892053       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606011322.shtml" target="boxun-mirror">博讯记者西诺专访凤姐：自信比金钱更重要</a>
 </h2>
 <p><tr>
@@ -676,22 +722,6 @@
 <b></p>
 <p>
 	<small> ============== 17天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605161459.shtml" target="boxun-mirror">反思文革民运领袖魏京生揭秘习家挨整真相请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>反思文革 民运领袖魏京生揭秘习家挨整真相<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月16日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201605161459" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     由《魏京生基金会》主办的《文革50周年反思研讨会》在华盛顿于216年5月13－14日举行，来自全美各地的与会者都有文革的亲身经历，从文革的发动，结束，被否定。他们的人生坎坷蹉跎无不与中国政治动荡息息相关。<br>
-    <br>
-    他们的经历，人生感悟和反思，广阔的国际视角，多年来为推动中国的民主事业所付出的牢狱代价等，使得他们对文革的反思，对文革认识和总结比他人要更加深刻，这些思考也是在他们的人生历经沧桑后得出的成果。<br>
-    <br>
-    他们的反思对没经历过这场运动，或者至今还没从这场运动的创伤中走出来的人都是一次宝贵的觉悟</p>
-<p>
-	<small> ============== 18天前</small>
 </p>
 <table>
     <tr>
