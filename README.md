@@ -92,6 +92,58 @@
 <p>
 	<small> ============== 7小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606041434.shtml" target="boxun-mirror">“中共恐怖暴行展”及“民主女神”雕像在美国会前展出／视请看博讯热点：六四</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>“中共恐怖暴行展”及“民主女神”雕像在美国会前展出／视<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201606041434" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     “中共国家恐怖主义暴行展”及陈维明先生制作的12尺高“民主女神”雕像于2016年6月2日下午在华盛顿DC美国国会前展出。<br>
+        <br>
+    自5月中从洛杉矶启程的中共国家恐怖主义暴行展及陈维明先生制作的12尺高“民主女神”雕像在长途跋涉一路展出数千英哩后，6月1日，到达位于美国东部的首都华盛顿，并于2016年6月2日下午在美国国会山的国会大厦之西展出。<br>
+        <br>
+    展览地点在美国国会于美国国家纪念碑（方尖碑）的中轴线上，国家纪念碑－－中国的民主女神像－－美国国会连城一线。<br>
+        <br>
+    这项活动由洛杉矶中国民主平台、中国民主党、魏京生基金会、公民研究所、中国民主教育基金会、中国妇权、中国访民、民主女神基金会共同主办，活动经过了近一年时间的准备。<br>
+        <br>
+    魏京生基金会执行主任黄慈萍将主持这场会议。会议结束后，展览小组就地支起了大屏幕，用幻灯机播放了展览组制作的纪念“六。四”的音像资料，此刻有国会大草坪上的游人都聚拢过来，和举办者一起感受27年前震撼人心的场景。<br>
+        <br>
+    除了雕像、图片、音像等内容，来自华盛顿及全美各地的民主人士及活动家们在下午2时至5时时踊跃发言。发言者激情演讲的视频如下：<br>
+        <br>
+         1. 中国民主运动海外联席会议主席魏京生；<br>
+        <iframe width="560" height="315" src="https://www.youtube.com/embed/I98aqnTb-uQ" frameborder="0" allowfullscreen></iframe><br>
+         2. 活动的发起、策划和组织者陈维明；<br>
+        <iframe width="560" height="315" src="https://www.youtube.com/embed/ByyeTRRjaXE" frameborder="0" allowfullscreen></iframe><br>
+         3. 生命垂危的良心犯郭飞雄之妻张菁；<br>
+         <iframe width="420" height="315" src="https://www.youtube.com/embed/NmBaPg3GksA" frameborder="0" allowfullscreen></iframe><br>
+        4. 89六四镇压的亲历者Leslie Levy;<br>
+         <iframe width="420" height="315" src="https://www.youtube.com/embed/_mIAkgM3N0I" frameborder="0" allowfullscreen></iframe><br>
+        5. 前纽约时报记者赵岩；<br>
+        <iframe width="420" height="315" src="https://www.youtube.com/embed/Kol01EKdj3A" frameborder="0" allowfullscreen></iframe><br>
+        6. 前中共海军司令部中校参谋姚诚；<br>
+        <iframe width="420" height="315" src="https://www.youtube.com/embed/Nb4iCEWtRog" frameborder="0" allowfullscreen></iframe><br>
+         7. 全美学自联理事陆文禾博士；<br>
+        <iframe width="560" height="315" src="https://www.youtube.com/embed/Ulizq38FVfo" frameborder="0" allowfullscreen></iframe><br>
+         8. 洛杉矶中国民主平台成员张家瑞；<br>
+        <iframe width="420" height="315" src="https://www.youtube.com/embed/IUi9AXu53P4" frameborder="0" allowfullscreen></iframe> <br>
+        9. 民主墙老将、六四亲历者孙延；<br>
+        <iframe width="560" height="315" src="https://www.youtube.com/embed/QgSob8aH1CQ" frameborder="0" allowfullscreen></iframe><br>
+         10. 中国民主党青年委员会主席秦伟平；<br>
+        <iframe width="560" height="315" src="https://www.youtube.com/embed/rXrOTad4WQM" frameborder="0" allowfullscreen></iframe><br>
+         11. 洛杉矶中国民主平台成员子元；<br>
+        <iframe width="420" height="315" src="https://www.youtube.com/embed/CSckpjero8M" frameborder="0" allowfullscreen></iframe><br>
+         12. 美国智库加图研究所客座研究员夏业良教授。<br>
+        <iframe width="420" height="315" src="https://www.youtube.com/embed/RnjbFWFiXno" frameborder="0" allowfullscreen></iframe><br>
+        13.魏京生基金会执行主任黄慈萍将主持这场会议。<br>
+        <iframe width="560" height="315" src="https://www.youtube.com/embed/F6mvnuHrTms" frameborder="0" allowfullscreen></iframe><br>
+        <br>
+    <br>
+    <b>不忘89.64 美国国会前艺术家陈维民为    黄雀行动“六哥”陈达</b>
+</td></tr></p>
+<p>
+	<small> ============== 7小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606041342.shtml" target="boxun-mirror">中共暴行及“民主女神”雕像在美国会前展出请看博讯热点：六四</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -687,49 +739,6 @@
     <br>
     蔡英文亦是有名的爱猫者，她收养的两只猫儿──想想与阿才──在社交媒体上极有人气，并引来国际媒体的关注。
  [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605200322451.jpg http://upload.bx.tl/news/temp14/201605200320061.png http://upload.bx.tl/news/temp14/201605200324241.jpg http://upload.bx.tl/news/temp14/201605200316221.jpg--> 3971822       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/05/201605202158.shtml" target="boxun-mirror">周永康保健医生跳楼自杀传涉案达10亿人民币请看博讯热点：周永康</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>周永康保健医生跳楼自杀 传涉案达10亿人民币<br><font color="blue" size="2">请看博讯热点：<a href="/hot/zyk.shtml">周永康
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月20日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605202158china1.jpg" alt="周永康保健医生跳楼自杀 传涉案达10亿人民币"><p><br>
-    （石应康曾担任周永康保健医生。）<br>
-    <br>
-    【博闻社】北京时间5月15日上午，四川大学华西医院原院长石应康遗体告别仪式在成都东郊殡仪馆悼念大厅举行，数千人到现场告别。5月11日中午，65岁的华西医院原院长石应康从其20楼的居所跳楼身亡。最新的消息指，周永康在四川担任书记期间，石应康在华西医院担任院长，成为周永康的保健医生。<br>
-    <br>
-    5月21日是石应康65岁生日，也是他的研究生论文答辩时间，但他没有等到。5月11日中午12点多，65岁的华西医院原院长石应康从其20楼的居所跳楼身亡。其所在小区居民表示，石应康从20层坠楼，恰逢午休时间，没有多少人看到。派出所接警后赶到现场，石应康已经没有生命迹像了，“用了一个多小时清理现场”。<br>
-    <br>
-    成都一资深媒体人透露，在2008年汶川5.12地震之后就有传闻，说石应康被举报，涉及到经济问题。但传闻并没有得到证实。5月11日石应康被纪委约谈，之后从彩虹桥附近的国嘉华庭20楼一跃而下。国嘉华庭所在位置接近华西附一院。<br>
-    <br>
-    传言指，石应康的离世可能涉及到周永康。周永康在四川担任书记期间，石应康在华西医院担任院长，石成为周永康的保健医生。周永康的心脏有问题，石应康刚好是心脏外科专家。周离开四川后，就一直在查他，周都保住了。现在周倒台了，继续查他。据说涉案金额有点多。但传言未获官方证实。<br>
-    <br>
-    事发后，石应康的女儿石运莹在其朋友圈发道：“他心凉了，厌了，所以想走了。勤勤恳恳为华西奉献二十年，换来的是这样的结局，不得不说是社会的悲哀，制度的悲哀。尽管有人不惋惜，甚至幸灾乐祸，觉得多年的苟且经营最终达到目的，但我相信清者自清，做的恶都是要还的。一路走好，天堂里安息！”<br>
-    <br>
-    石应康妻子王兰兰表示：“谢谢大家为石应康送上祝福，他不是一个完人，但他是一个一心为公，没有私心的人，他选择离开的方式就是他的性格，我和女儿接受了，谢谢大家，我们会挺过去的。再次谢谢！”<br>
-    <br>
-    5月12日，财新网引知情人士消息透露，华西医院近期被纪委巡视。2015年8月，四川省委启动第二轮巡视工作，其中有8所省属高校。近年，因为害怕巡视、审计而自杀而跳楼自杀的官员不少，就在石应康跳楼自杀的次日，湖北省财政厅的一位退休官员也在湖北省委巡视组在该厅巡视过程中，也选择了跳楼自尽。<br>
-    <br>
-    舆论普遍认为，巡视期间自杀的官员都是由于恐惧贪腐渎职问题被发现，而哪怕死亡致调查终止、不被法律追究，但在人心、公论中几乎都被视为事实上的贪污腐败分子。<br>
-    <br>
-    从1993年到2013年，石应康曾执掌华西医院20余年，系中国任职时间最长的公立医院院长。有网民传石应康掌管医院20年间，违纪金额高达10亿元人民币，该说法仍有待证实。<br>
-    <br>
-    石应康去世后，朋友圈被刷屏。有媒体人指：审计署正在审核华西医院，已经有几个月了，据说现在反腐要从医院开始。纪委部门正在巡视医院，第一个巡视的，就 是国内顶尖级别的川大华西医院。下一步反腐重点，将是教育领域。石应康一生功成名就，硕果累累，不愿意自己晚年还遭此变故，毁掉一生英名，因此选择了自 杀。<br>
-    <br>
-    石应康出身名门，其父石美森是儿科专家，原重庆医科大学儿科学院创始人兼院长，于文革时被逼自缢辞世；其母是著名妇产科专家；其伯父石美鑫是著名胸心外科专家，曾任上海第一医学院院长。<br>
-    <br>
-    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_90976.html" style="color:red;">点此链接</a>）
- [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605200700451.jpg--> 3962158       
 </p>
 <hr>
 <table width="620"><tr><td>
