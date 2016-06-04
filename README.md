@@ -75,7 +75,7 @@
 <center><font size="4"><b>2016年六四清</b></font></center>
 </td></tr></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606040027.shtml" target="boxun-mirror">独家报道：张德江赴港考察涉中联办班子调整事宜</a>
 </h2>
@@ -89,6 +89,57 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606041342.shtml" target="boxun-mirror">中共暴行及“民主女神”雕像在美国会前展出请看博讯热点：六四</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>中共暴行及“民主女神”雕像在美国会前展出<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201606041342" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     “中共国家恐怖主义暴行展”及陈维明先生制作的12尺高“民主女神”雕像于2016年6月2日下午在华盛顿DC美国国会前展出。<br>
+    <br>
+    自5月中从洛杉矶启程的中共国家恐怖主义暴行展及陈维明先生制作的12尺高“民主女神”雕像在长途跋涉一路展出数千英哩后，6月1日，到达位于美国东部的首都华盛顿，并于2016年6月2日下午在美国国会山的国会大厦之西展出。<br>
+    <br>
+    展览地点在美国国会于美国国家纪念碑（方尖碑）的中轴线上，国家纪念碑－－中国的民主女神像－－美国国会连城一线。<br>
+    <br>
+    这项活动由洛杉矶中国民主平台、中国民主党、魏京生基金会、公民研究所、中国民主教育基金会、中国妇权、中国访民、民主女神基金会共同主办，活动经过了近一年时间的准备。<br>
+    <br>
+    魏京生基金会执行主任黄慈萍将主持这场会议。会议结束后，展览小组就地支起了大屏幕，用幻灯机播放了展览组制作的纪念“六。四”的音像资料，此刻有国会大草坪上的游人都聚拢过来，和举办者一起感受27年前震撼人心的场景。<br>
+    <br>
+    除了雕像、图片、音像等内容，来自华盛顿及全美各地的民主人士及活动家们在下午2时至5时时踊跃发言。发言者激情演讲的视频如下：<br>
+    <br>
+     1. 中国民主运动海外联席会议主席魏京生；<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/I98aqnTb-uQ" frameborder="0" allowfullscreen></iframe><br>
+     2. 活动的发起、策划和组织者陈维明；<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/ByyeTRRjaXE" frameborder="0" allowfullscreen></iframe><br>
+     3. 生命垂危的良心犯郭飞雄之妻张菁；<br>
+     <iframe width="420" height="315" src="https://www.youtube.com/embed/NmBaPg3GksA" frameborder="0" allowfullscreen></iframe><br>
+    4. 89六四镇压的亲历者Leslie Levy;<br>
+     <iframe width="420" height="315" src="https://www.youtube.com/embed/_mIAkgM3N0I" frameborder="0" allowfullscreen></iframe><br>
+    5. 前纽约时报记者赵岩；<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/Kol01EKdj3A" frameborder="0" allowfullscreen></iframe><br>
+    6. 前中共海军司令部中校参谋姚诚；<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/WbjkqtsWoL0" frameborder="0" allowfullscreen></iframe><br>
+     7. 全美学自联理事陆文禾博士；<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/Ulizq38FVfo" frameborder="0" allowfullscreen></iframe><br>
+     8. 洛杉矶中国民主平台成员张家瑞；<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/IUi9AXu53P4" frameborder="0" allowfullscreen></iframe> <br>
+    <br>
+    9. 民主墙老将、六四亲历者孙延；<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/QgSob8aH1CQ" frameborder="0" allowfullscreen></iframe><br>
+     10. 中国民主党青年委员会主席秦伟平；<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/rXrOTad4WQM" frameborder="0" allowfullscreen></iframe><br>
+     11. 洛杉矶中国民主平台成员子元；<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/CSckpjero8M" frameborder="0" allowfullscreen></iframe><br>
+     12. 美国智库加图研究所客座研究员夏业良教授。<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/RnjbFWFiXno" frameborder="0" allowfullscreen></iframe><br>
+    13.魏京生基金会执行主任黄慈萍将主持这场会议。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/F6mvnuHrTms" frameborder="0" allowfullscreen></iframe><br>
+    <br><br><b>不忘89.64 美国国会前艺术家陈维民为    黄雀行动“六哥”陈达</b>
+</td></tr></p>
 <p>
 	<small> ============== 6小时前</small>
 </p><h2>
@@ -685,55 +736,6 @@
 <b></p>
 <p>
 	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/05/201605191706.shtml" target="boxun-mirror">紫禁来鸿：习近平为什么突然开哲学社会科学座谈会请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁来鸿：习近平为什么突然开哲学社会科学座谈会<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605191706" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605191706china1.jpg" alt="紫禁来鸿：习近平为什么突然开哲学社会科学座谈会"><p><br>
-    （5月17日的社科座谈会背后喻意深长。）<br>
-    <br>
-    【博闻社】5月17日，中共中央召开哲学社会科学工作座谈会，中共总书记习近平亲自主持并发表讲话，提出“加快构建中国特色哲学社会科学”。北京消息指，习近平要借此次会议对冲平衡当天凌晨当局为压制左派借文革50周年大肆掀起歪风让《人民日报》发文产生的效应，另外，当局或要加速构建“习氏”思想理论体系。<br>
-    <br>
-    北京消息人士透露，这次会议并非既定安排，而是临时决定的活动，习近平突然提出参加并亲自主持这次会议。中央和国家机关有关部门、中央军委政治工作部负责同志，各省区市和新疆生产建设兵团党委宣传部部长，中共马克思主义理论研究专家学者等近150人参加的了会议。新华社，央视高调报道，显得非同寻常。<br>
-    <br>
-    习近平在会上指出，"坚持和发展中国特色社会主义，哲学社会科学具有不可替代的重要地位，哲学社会科学工作者具有不可替代的重要作用。"强调坚持以马克思主义为指导，呼吁要构建“中国特色哲学社会科学，在指导思想、学科体系、学术体系、话语体系等方面充分体现中国特色、中国风格、中国气派"。<br>
-    <br>
-    这次会议有很强的左味，应邀与会的专家学者基本都是中共左派代表，包括中国社科院研究员汝信、北京大学国家发展研究院教授林毅夫、中国社科院马克思主义研究院研究员钟君、敦煌研究院研究员樊锦诗、复旦大学中国研究院教授张维为、北京师范大学文学院教授康震、中国政法大学教授马怀德、武汉大学马克思主义学院教授沈壮海、国防大学战略研究所教授金一南、中国人民大学重阳金融研究院研究员王文等。<br>
-    <br>
-    曾任中共中央党校刊物《学习时报》副主编的邓聿文在新浪微博上写道："从今天哲学社会科学座谈会发言人的名单来看，右派知识分子彻底失去了执政党的信任，中国模式派走向舞台。"故有分析认为，这次会议目的之一，是习近平要平衡当天凌晨《人民日报》为5.16文革五十周年发表的那篇文章，那篇文章对文化大革命以及左的思想意识形态提出严肃批评。<br>
-    <br>
-    北京消息人士对博闻社指出，习近平一再强调马列主义理论的重要性，与其说是要回归中共的正统意识形态，不如说是反映了他意欲建立自己的政治理论体系的渴望。与其几位前任相比，习近平对共产主义思想理论显示出更大的热情，上任以来他已主持了多次有关马克思主义理论的中共高层会议，其中包括三次政治局会议。<br>
-    <br>
-    北京消息人士透露，习近平手下一些重臣智库正在为推出“习近平思想理论体系”进行策划，有智囊给习的报告提出这个问题，获得习正面肯定的答复。如果一切顺利，明年底的十九大后，“习近平思想理论体系”将会正式出台。<br>
-    <br>
-    在周二的座谈会上，习近平要求各级党委"要把哲学社会科学工作纳入重要议事日程，加强政治领导和工作指导，一手抓繁荣发展、一手抓引导管理"。他还提出要抓好教材体系建设，形成适应中国特色社会主义发展要求、立足国际学术前沿、门类齐全的哲学社会科学体系。<br>
-    <br>
-    《人民日报》海外版微信公号“侠岛客”发表解读文章称，这次座谈会背景是，当代中国正经历历史上最为广泛而深刻的社会变革，也正在进行着人类历史上最为宏大而独特的实践创新。“这是一个需要理论而且一定能够产生理论的时代，这是一个需要思想而且一定能够产生思想的时代。”<br>
-    <br>
-    换句话说，中国应当有符合这个时代、符合实践要求的理论和思想。<br>
-    <br>
-    文章指，当前，中国有效知识的供给不足。在过去的30多年里，中国的改革取得了巨大的成就，具有了丰富的实践经验。但是，无论是理论界还是政策研究界，都没有能力解释中国经验。长期以来，中国所具有的只是从西方进口的经济学，马克思主义经济学又没有通过结合中国实际情况而得到发展。<br>
-    <br>
-    十八大以来似乎一切都变了，但唯独中国学术界和政策界的知识短缺局面没有变化，甚至更加严重了。例如，十八大前后，高层提出“顶层设计”的概念，意在改变之前政策设计过于分散，受制于既得利益的局面。但“顶层设计”演变成一场全国性的运动。不仅中央政府讲，地方政府也在讲。<br>
-    <br>
-    近来提出了“一带一路”倡议，意在解决资本、产能过剩问题，通过和其他国家在资本、产能和技术方面的合作，既达到国内的可持续发展，又帮助沿岸沿边国家的发展；但已经被严重泛化和庸俗化。就是把经济的“一带一路”滥用到外交、战略甚至军事领域，使得很多国家以为“一带一路”就是中国从事帝国主义或者新殖民主义的工具。把所有的东西都和“一带一路”关联起来，好像从前什么都没有发生过，现在有了“一带一路”，什么东西都有了。<br>
-    <br>
-    侠岛客认为，从这个意义上说，建设中国新型智库具有了非常的意义。希望智库建设，如果不能改革目前重于清谈的学院派，至少能够把学院派和智库分离开来，使得智库能够侧重于中国知识建设，从而改变知识短缺的局面。<br>
-    <br>
-    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_90440.html" style="color:red;">点此链接</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201605191706" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605190209071.jpg--> 3491706       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
 </p>
 <table>
     <tr>
