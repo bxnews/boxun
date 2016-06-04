@@ -19,6 +19,64 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/06/201606041136.shtml" target="boxun-mirror">六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼请看博讯热点：六四</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201606041136" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     今天是六四屠杀27周年的日子，在严厉打压下，中国大陆民众纪念六四的勇气高涨。截至到4日中午网友统计，已经有超过30人因纪念六四被捕。以下是博讯从相关群组获得的图文资料。<br>
+    <br>
+    “六四精神不灭”、“屠杀有罪、悼念无罪 !”、“回忆27年前六四，纪念牺牲的英烈！”、<br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china1.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china2.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china3.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <br><br><b>北京纪念六四死难者 刑拘5人后</b><br>
+    5月31日北京市公安局丰台分局以寻衅滋事罪刑拘于室内纪念六四死难者的赵常青、徐彩虹、张宝成、马新立、梁太平并羁押于丰台区看守所。6月2日晚上8时许，北京人权捍卫者李美青亦遭刑事传唤被带走。 <br>
+    据网上媒体报道，此前一张北京公民聚会的照片在网上流传。照片上，赵常青、张宝成、徐彩虹、梁太平、李蔚、马新立、李美青等人坐在一起。桌面上点燃着多支白色蜡烛，背后的墙上贴有「纪念六四，勿忘国伤，释放郭飞雄，于世文」的标语。<br>
+    <br>
+    梁太平5月31日接受媒体采访时表示，聚会时间是5月29日。大家除了纪念六四外，也希望公众能够免于恐惧。<br>
+    <br>
+    到六四博讯发稿时，梁太平、赵常青、张宝成、马新立、徐彩虹被刑拘（寻衅滋事）；李美青现被传讯到派出所（寻衅滋事）、李蔚失联<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china4.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china5.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    2013年，赵常青、张宝成、李蔚、马新立曾因“新公民运动财产公示案”先后获刑，于2015年释放出狱。<br>
+    <br></p>
+<center><font size="4"><b>国内纪念六四图片</b></font></center>
+<br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china6.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china7.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china8.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china9.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china10.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china11.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china12.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china13.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china14.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china15.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606041136china16.jpg" alt="六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼"></p>
+<p><br>
+    <br></p>
+<center><font size="4"><b>2016年六四清</b></font></center>
+</td></tr></p>
+<p>
+	<small> ============== 3小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606040027.shtml" target="boxun-mirror">独家报道：张德江赴港考察涉中联办班子调整事宜</a>
 </h2>
 <p><tr>
@@ -676,34 +734,6 @@
 <b></p>
 <p>
 	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605172122.shtml" target="boxun-mirror">中国承建委内瑞拉高铁项目烂尾李克强宏图再受挫请看博讯热点：深度报道</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>中国承建委内瑞拉高铁项目烂尾 李克强宏图再受挫<br><font color="blue" size="2">请看博讯热点：<a href="/hot/investigative.shtml">深度报道
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年5月17日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605172122intl1.jpg" alt="中国承建委内瑞拉高铁项目烂尾 李克强宏图再受挫"><p><br>
-    （中国工程人员营地现已废弃。美联社）<br>
-    <br>
-    【博闻社】由中国中铁领导的财团负责兴建的委内瑞拉的蒂纳科――阿纳科铁路，曾是南美首项高铁计划，被视为社会主义国家友好的象征。也是中国高铁技术和中国资金走向世界的标志。但该铁路项目现已被放弃，沦为经济崩溃的象征。至此，中国政府视以为荣的高铁技术输出之梦几乎全盘崩溃。<br>
-    <br>
-    美国business insider网报道，约10年前，委内瑞拉由已故总统查韦斯执政时，为吸引人民移居中部平原地区促进发展，他构思兴建蒂纳科――阿纳科铁路。构思的铁路横跨468公里，高铁火车以时速220公里行驶，每年接载五百万名乘客，运送980万公吨货物。<br>
-    <br>
-    当时查韦斯请求中国提供资金及技术援助，双方签订价值75亿美元的铁路合同，由中国中铁领导的国企财团负责兴建，令委内瑞拉成为中国最大债仔。但工程已变成反对派口中的「红色大象」，即有政治目的的大白象工程，竣工时间已超时4年，而且进程缓慢。<br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605172122intl2.jpg" alt="中国承建委内瑞拉高铁项目烂尾 李克强宏图再受挫"></p>
-<p><br>
-    （已开始建的高铁设施成废墟。）<br>
-    <br>
-    小镇萨拉萨设有运动场般大的工厂，用来生产水泥铁路轨枕，但工厂最后一批中国经理在2015年1月离去后，当地一些暴民抢掠工厂，抢走一切有价值的东西，破 坏建筑物，抢走铜线、金属壁板等建筑材料。<br>
-    <br>
-    居民罗德里格斯表示抢掠历时两星期，目击者称抢掠当着国民</p>
-</td></tr></p>
-<p>
-	<small> ============== 18天前</small>
 </p>
 <table>
     <tr>
