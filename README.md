@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11分钟前</small>
+	<small> ============== 16分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606022053.shtml" target="boxun-mirror">六四未到六二也敏感中共防陈希同「阴魂不散」请看博讯热点：六四</a>
 </h2>
