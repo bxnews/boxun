@@ -90,7 +90,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606041342.shtml" target="boxun-mirror">中共暴行及“民主女神”雕像在美国会前展出请看博讯热点：六四</a>
 </h2>
@@ -141,7 +141,7 @@
     <br><br><b>不忘89.64 美国国会前艺术家陈维民为    黄雀行动“六哥”陈达</b>
 </td></tr></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606022053.shtml" target="boxun-mirror">六四未到六二也敏感中共防陈希同「阴魂不散」请看博讯热点：六四</a>
 </h2>
