@@ -19,6 +19,16 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/06/201606052127.shtml" target="boxun-mirror">博闻现场：六四之夜的天安门与香港维园判若两极</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>博闻现场：六四之夜的天安门 与香港维园判若两极<br><font color="#000fC0"><small>(博讯北京时间2016年6月05日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201606052127" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/06/201606052127china1.jpg" alt="博闻现场：六四之夜的天安门 与香港维园判若两极"><br>    （六四之夜的天安门，在荷枪武警守</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606041136.shtml" target="boxun-mirror">六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼请看博讯热点：六四</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -664,16 +674,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 16天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/05/201605210420.shtml" target="boxun-mirror">蔡英文上任，马晓力发震撼言论:极左破坏力最大</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>蔡英文上任，马晓力发震撼言论:极左破坏力最大<br><font color="#000fC0">(<small>博讯北京时间2016年5月21日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605210420" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     赵岩按：马晓力朋友透露，刚刚用猛烈的语言炮</td></tr></p>
 <p>
 	<small> ============== 16天前</small>
 </p>
