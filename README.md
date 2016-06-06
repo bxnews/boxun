@@ -19,6 +19,164 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606060645.shtml" target="boxun-mirror">六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开烛光点亮请看博讯热点：六四</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201606060645" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     纪念“六四”事件27周年，在中国驻美国大使馆门前2016年6月4日6点开始，竖起了“民主女神”塑像，在大使馆门前的小花园全面铺开了“中共国家恐怖主义暴行展”的展板和展车。<br>
+    <br>
+    由全美中国学生学者自治联合会主办及魏京生基金会、大华府华人支持民运联络委员会、中国民主运动海外联席会议、争取越南民主团结、华盛顿地区藏青会、中国民主党青年委员会、华盛顿海外香港华人联会协办的烛光纪念会在全场为六四死难者默哀中拉开序幕。近百名来自世界各地的异议人士聚集在此，共同纪念1989年“六四”民主运动。烛光在这里亮起。<br>
+    <br>
+    在烛光纪念会期间，中国驻美国大使馆内外显得格外安静，不断有美国警车来回巡逻，虽然闪着警灯，但没拉警笛，也算安静。大使馆基本上黑着灯，整个活动，没有受到干扰。大使馆门前的场地，包括停车位等都被纪念活动占据。27年后的今天，至少这半夜，纪念者短暂的占据着美国华盛顿中国驻美国大使馆的门前花园。<br>
+    <br>
+    全美学自联理事会候补理事陈闯创致开幕词：“我绝对相信我们不需要再等另外一个27年，我们才能进到对面的大使馆里，以中国政府的名义来正式的悼念1989年6月那些为中国自由、民主而捐躯的学生和市民们，那些先烈。”<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/EOjRlzQU0Zc" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    特别讲话：天安门母亲群体负责人尤维洁通过录音致辞。。<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/e_pVwd_6OmA" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    民主女神像揭幕典礼，艺术家陈维民感言：“现在我们面对的是用中国人的鲜血染红的旗帜，我们在对中国共产党这个国家恐怖主义说不，我们要把他的暴行展示于天下。”在接受本台采访时，他说：“我们认为这个政权不属于人民，因为他们没有经过人民合法的选举，所以说它是非法的。”<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/BBotKiTtu0A" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    中国民主运动海外联席会议主席魏京生揭幕8964至少有七千人在北京死亡，呼吁海外民主人士坚定信心，团结奋斗。<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/PaLaamYGYXo" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    首任全球总盟理事长 全球民主和平联盟 巫和怡博士<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/L03fL_8ymFE" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    共产主义受难者纪念碑董事会主席 爱德华博士  同声翻译：蔡世雯<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/E9gH2A83Whg" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    大华府华人支持民运联络委员会主席 严笑梅女士  同声翻译：蔡世雯<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/V7unM0Kn6NY" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    越南民主社团主席阮医生 独立作家余杰。<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/33YonomLAh0" frameborder="0" allowfullscreen></iframe><br>
+    2016年全美学自联自由精神奖<br>
+    <br><br><b> 全美学自联理事会理事黄慈萍宣布2016年全美学自联自由精神奖获奖者为：张海涛 郭飞雄 。</b><br>
+    <br>
+    全美学自联理事会候补理事 秦邦宣读获奖词后由郭飞雄的妻子张青女士带领郭飞雄的一儿一女领奖，张青女士做了领奖感言。<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/6oHIQstsggg" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    89六四镇压的亲历者Leslie Levy 女士，在烛光下用诗歌把与会者带到了27年前哪个血腥的北京之夜。<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/37KUVt_UYGw" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    80后 蔡世雯小姐讲述对六四的影像。<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/eI8nDUXug5A" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    前北京大学教授夏业良<br>
+    <br>
+    <iframe width="“420”" height="315" src="https://www.youtube.com/embed/lXRi7i5pf7w" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    科学家朱学渊的激情演讲把晚会的气氛推向新的高潮。<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/N4V2GGmW-Ms" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    遇罗克的弟弟遇罗文声讨六四屠杀<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/Nrhm0TgpcBQ" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    六四南京学生领袖，后一直做牢的吴健民<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/zV9GOoTfpjQ" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    人权律师肖国珍<br>
+    <iframe width="“420”" height="315" src="https://www.youtube.com/embed/FxqCcgVkuag" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    政治犯的杨海的女儿杨健怡用中英文发言，与会者对青年一代的成长深受鼓舞。<br>
+    <br>
+    <iframe width="“420”" height="315" src="https://www.youtube.com/embed/7F0xuixib-c" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    民主运动老战士孙延<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/0RVz8O9obaY" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    远道而来的来宾发言<br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/1GsnI8Lobtk" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    夜已深，27年前的此刻北京天安门广场真是枪声大作，子弹横飞。陈维民民主女神巡展小组在战车上铺开屠杀死难者画像，点燃了蜡烛，小组成员现场用小提琴伴奏，陈维民深情一遍一遍的朗诵悼词。大家心情沉重。<br>
+    <br>
+    <iframe width="420" height="315" src="https://www.youtube.com/embed/M9e-aIzJn14" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl1.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl2.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl3.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl4.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl5.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl6.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl7.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl8.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl9.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl10.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl11.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl12.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl13.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl14.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl15.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl16.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl17.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl18.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl19.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl20.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl21.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl22.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl23.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl24.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl25.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl26.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl27.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl28.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl29.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl30.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
+<p>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201606060645" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201606051542131.JPG http://upload.bx.tl/news/temp14/201606051542132.JPG http://upload.bx.tl/news/temp14/201606051542133.JPG http://upload.bx.tl/news/temp14/201606051542134.JPG http://upload.bx.tl/news/temp14/201606051542551.JPG http://upload.bx.tl/news/temp14/201606051542552.JPG http://upload.bx.tl/news/temp14/201606051542553.JPG http://upload.bx.tl/news/temp14/201606051542554.JPG http://upload.bx.tl/news/temp14/201606051543301.JPG http://upload.bx.tl/news/temp14/201606051543302.JPG http://upload.bx.tl/news/temp14/201606051543303.JPG http://upload.bx.tl/news/temp14/201606051543304.JPG http://upload.bx.tl/news/temp14/201606051544361.JPG http://upload.bx.tl/news/temp14/201606051544362.JPG http://upload.bx.tl/news/temp14/201606051544363.JPG http://upload.bx.tl/news/temp14/201606051544364.JPG http://upload.bx.tl/news/temp14/201606051545281.JPG http://upload.bx.tl/news/temp14/201606051545282.JPG http://upload.bx.tl/news/temp14/201606051545283.JPG http://upload.bx.tl/news/temp14/201606051545284.JPG http://upload.bx.tl/news/temp14/201606051546341.JPG http://upload.bx.tl/news/temp14/201606051546342.jpg http://upload.bx.tl/news/temp14/201606051546343.jpg http://upload.bx.tl/news/temp14/201606051546344.jpg http://upload.bx.tl/news/temp14/201606051547311.jpg http://upload.bx.tl/news/temp14/201606051547312.jpg http://upload.bx.tl/news/temp14/201606051547313.jpg http://upload.bx.tl/news/temp14/201606051547314.jpg http://upload.bx.tl/news/temp14/201606051547571.jpg http://upload.bx.tl/news/temp14/201606051547572.jpg--> 4600645       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606052127.shtml" target="boxun-mirror">博闻现场：六四之夜的天安门与香港维园判若两极</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -660,22 +818,6 @@
 <b></p>
 <p>
 	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/05/201605212222.shtml" target="boxun-mirror">枉法事件不断：公安部大改组习近平勒令规范办案</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>枉法事件不断：公安部大改组 习近平勒令规范办案<br><font color="#000fC0"><small>(博讯北京时间2016年5月21日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201605212222" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/05/201605212222china1.jpg" alt="枉法事件不断：公安部大改组 习近平勒令“规范”办案"><br>    （云南通昭出动公安暴力对付抗拆迁民众。）<br>    <br>    【博闻社】北京公安涉嫌枉法打死雷洋事件沸沸扬扬之际，中共总书记习近平今天要求公安执法规范化，完善执法权力运行机制，让人民群众在每一项执法活动、每一起案件办理中都能感受到社会公平正义。同日，中国公安部宣布改组，习近平在福建时的心腹、北京市公安局长王小洪升公安部副部长，另一名副部长黄明升正部级。<br>    <br>    中共总书记、中央全面深化改革领导小组组长习近平5月20日上午主持召开中央全面深化改革领导小组第二十四次会议并发表重要讲话。中共政治局常委、中央全面深化改革领导小组副组长李克强、刘云山、张高丽出席会议。<br>    <br>    会议强调，深化公安执法规范化建设，要着眼于完善公安执法权力运行机制，构建完备的执法制度体系、规范的执法办案体系、系统的执法管理体系、实战的执法培训体系、有力的执法保障体系，实现执法队伍专业化、执法行为标准化、执法管理系统化、执法流程信息化，保障执法质量和执法公信力不断提高。<br>    <br>    会议要求公安要增强执法主体依法履职能力，树立执法为民理念，严格执法监督，解决执法突出问题，努力让人民群众在每一项执法活动、每一起案件办理中都能感受到社会公平正义。<br>    <br>    近日，疑被指嫖娼被北京昌平警方扣押期间突然死亡的雷洋，此案掀起社会舆论高潮。北京公安局表示，对雷洋案高度重视，相关人员已接受调查，决不护短。<br>    <br>    北京公安局19日发通告表示，北京市公安局对雷洋案高度重视，事发后立即责成昌平分局及时通报检察机关，并积极配合开展调查工作，相关人员接受调查。公安机关坚决尊重事实、尊重法律，坚决依纪依法处理，绝不护短。<br>    <br>    雷洋的妻子于5月16日向北京市检察院提交刑事报案书，文件于社交媒体广为流传。刑事报案书中，雷洋妻子正式要求北京市检察院立案调查雷洋一案，指北京市公安局昌平分局与案件相关的员警涉嫌故意伤害（致人死亡）罪、滥用职权罪、帮助伪造证据罪。<br>    <br>    雷洋妻子亦详细描述了雷洋尸体上的伤痕。她指出，雷洋嘴角有血，额头、颈部、手臂都有外伤。但雷妻的网文遭网管部门删除。<br>    <br>    中国公众就雷洋案提出一系列疑问，涉及到涉案便衣人员是否具有警察资格、警方执法程序是否公正、执法度是否合适等，折射出公众对中国政府建设法治社会的宏伟目标和社会基层实际状况落差的态度。<br>    <br>    在中国国务院2004年发布《全面推进依法行政实施纲要》11年后，去年底，中国政法大学法治政府研究院组织编写和发布《中国法治政府评估报告2015》，对中国100个重要城市的法治政府建设状况进行评估和观察，显示大多社会公众对当前的法治政府建设情况是不满意的。<br>    <br>    调查结果称，中国仍然有超过三分之一的被评估城市的法治水平处于不及格状态，其中包括当地政府信息不够公开、执法人员素质差、机关人员行政腐败问题。<br>    <br>    雷洋案件到目前显示出一种不透明、缺乏追责的状态，这对公民与国家的关系是具有严重破坏性的。雷洋案也反映出在转型期中国的社会沟通、社会信任的不足。<br>    <br>    但此案在媒体上受到的关注、家属、律师的要求，北京检察机关的介入，也体现在社会公众和媒体对司法程序的推动下，官方认识到这个案件对法治社会建设整体可能产生的作用。<br>    <br>    现代社会的法律是建立在尊重公民权利的基础之上的，完全不同于两千多年前秦国的商鞅立法，后者是：国家即朝廷立法，不服也得服。秦国的灭亡也证明了不符合民众利益的恶法是要摧毁统治基础的。<br>    <br>    近期公安部领导班子经历较大幅度的调整。其中，之前担任公安部副部长、党委委员的黄明改任公安部党委副书记、副部长，并明确为正部长级。北京市副市长、市公安局局长王小洪同时担任公安部副部长、党委委员。<br>    <br>    昨日，公安部网站“领导信息”栏目作出更新。更新后的信息显示，黄明已经调任公安部党委副书记、副部长（正部长级），此次晋升正部级之后，黄明在公安部领导班子中的排名随之前移：由之前位于公安部副部长陈智敏、李伟之间前移至公安部新任常务副部长傅政华之后，公安部副部长孟宏伟之前。<br>    <br>    <div align="center"><img src="http://upload.bx.tl/news/temp14/201605210726031.png" width="500"></div>
-<br>    （习近平与王小洪早年合照）<br>    <br>    另外，公安部网站的信息还显示，以北京市副市长、市公安局局长身份获任公安部副部长、党委委员的王小洪，其排名位于中央纪委驻公安部纪检组组长邓卫平、副部长孟庆丰两人之间。<br>    <br>    58岁的王小洪在福建警界工作近40年，今年58岁的王小洪曾一直在福建省公安系统任职，并且在习近平担任福州市委书记期间担任闽侯县公安局长及福州市公安局副局长等职务，与习近平工作关系密切。他后来升任福州市公安局局长、漳州市公安局局长、福建省公安厅副厅长、厦门市副市长兼市公安局局长等职。<br>    <br>    2013年从厦门市副市长兼市公安局长任上，接替秦玉海担任河南省公安厅厅长。习近平1990年至1996年担任福州市委书记期间，王小洪先后在其手下担任过福州市闽侯县公安局局长、福州市公安局副局长等职,被视为习的亲信。<br>    <br>    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_90988.html" style="color:red;">点此链接</a>）[博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201605212222" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/5/21)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605210723201.jpg http://upload.bx.tl/news/temp14/201605210726031.png--> 4682222       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
 </p>
 <table>
     <tr>
