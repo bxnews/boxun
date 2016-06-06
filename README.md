@@ -175,7 +175,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 14分钟前</small>
+	<small> ============== 19分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606052127.shtml" target="boxun-mirror">博闻现场：六四之夜的天安门与香港维园判若两极</a>
 </h2>
