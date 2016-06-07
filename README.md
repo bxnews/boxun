@@ -56,7 +56,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606060645.shtml" target="boxun-mirror">六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开烛光点亮请看博讯热点：六四</a>
 </h2>
