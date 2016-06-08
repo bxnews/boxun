@@ -19,6 +19,54 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/pubvp/2016/06/201606081421.shtml" target="boxun-mirror">多视频：纽约时代广场纪念六四27周年颁奖和讲话请看博讯热点：六四</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>多视频：纽约时代广场纪念六四27周年 颁奖和讲话<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月08日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201606081421" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    八九“六四”27周年。大纽约地区的民运组织及持不同政见人士联合举办的追讨”六四“失去正义，建立民主自由中国，纪念”六四”27周年系列活动在6月3日正式拉开帷幕。首场活动于6月3日晚5时至晚8时在纽约时报广场举行。中国民主党全国委员会的一百多名党员及二十位嘉宾参加了纪念集会。<br>
+    <br>
+    纪念活动开始，全体与会人员向“六四”屠杀中被中共政权屠杀的群众、学生默哀。与会的89“六四”亲历者，时事评论人士，维权律师及各界代表嘉宾先后发言。有的嘉宾在发言中，对中共极权政府动用军队，对天安门广场对手无寸铁的群众及学生血腥屠杀的罪行进行控诉和声讨；有的嘉宾在发言中希望用历史审判那些天安门屠杀的侩子手，为死难者讨回公道；还有的发言嘉宾大声疾呼，结束一党专政，建立民主国家，完成89“六四“那些英烈们用鲜血和生命唱响的民主之歌。<br>
+    <br>
+    纪念活动中，向因公祭”六四”被中共当局关押的“六四”学生领袖于世文颁发了年度中国人权奖；向因言获刑被判19年的张海涛颁发了年度刘晓波良知奖；向著名华人艺术家陈维明颁发了“六四”27周年特别纪念奖。<br>
+    <br>
+    以下视频由博讯记者西诺拍摄：<br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/1CjNj_MYo2g" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/eaqwlr8nx4k" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/07Fi2vBCVtY" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/wPb5arOvDq4" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/GkbywgUol_0" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/5vFZpmyvA98" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/7XW58QLuydw" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/_FZsjXL6FXY" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/hpukzszQtY4" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/Z3kT4QyxJs0" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/ltn6oCAt-c0" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/Y4M9b1n4wVw" frameborder="0" allowfullscreen></iframe>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201606081421" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
+<!----> 2111421       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 6小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606071354.shtml" target="boxun-mirror">开国上将陈伯钧后人流亡海外谷俊山倒台之后九旬老母仍无处伸冤</a>
 </h2>
 <p><tr>
@@ -724,68 +772,6 @@
 </td></tr></p>
 <p>
 	<small> ============== 15天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/05/201605232032.shtml" target="boxun-mirror">独家：日本操控G7议题北京紧张峰会或上演“反华剧”</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：日本操控G7议题 北京紧张峰会或上演“反华剧”<br><font color="#000fC0">(<small>博讯北京时间2016年5月23日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201605232032" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/05/201605232032intl1.jpg" alt="独家：日本操控G7议题 北京紧张峰会或上演“反华剧”"><p><br>
-    （北京高度关注安倍政府借主办G7会议导演的“反华”剧。）<br>
-    <br>
-    【博闻社日本仙台特别报道】2016年G7财长和央行行长会议当地时间5月20-21日分别在日本仙台落幕。虽然没有像上月中的 G7外长会议通过针对中国的所谓南海问题决议，但更为令人关注的G7首脑峰会，将于5月26-27日在日本观光胜地伊势志摩揭幕。博闻社记者了解到，G7峰会是否会如G7外长会议成为日美操纵下批评中国的平台，成为北京关注焦点。<br>
-    <br>
-    G7即西方七国集团，包括美国、英国、法国、德国、意大利、加拿大和日本。日本自获邀加入G7，就一直以西方国家自居。过去几年日中在东海的主权纠纷，以及中国在钓鱼岛问题的步步进逼，令日本疲于奔命；去年以来中国在南海填海引起周边国家和美国反弹，使日本终于找到反击中方的机会。2016年的G7系列会议由日本当东道主，日本出于自己的目的，把南海问题塞入G7会议内容。<br>
-    <br>
-    4月11日G7外长会议在日本落幕时，在日本操纵下发表了特别文件《海洋安保声明》，强调有必要基于相关国际法，来维持经济海域无障碍通航的权利和自由，又敦促所有国家通过国际法庭仲裁等国际承认的司法手段来解决纠纷，并遵守有约束力的判决；文件没点中国名，但普遍认为是针对中国南海填海造岛，及声援美军近月于南海巡航宣示国际海域飞航自由，和菲律宾向海牙国际法庭提出涉及菲中南海主权争议的仲裁要求。<br>
-    <br>
-    4月12日，中国外交部批评 G7「为一己私利绑架、炒作南海问题」。中国外交部发言人陆慷指，中国在南海岛礁上建造设施，完全是中国国家主权范围内的事，东海、南海的飞航自由亦不存在任何问题。陆慷对 G7 炒作南海等问题，挑起地区矛盾感到「强烈不满」，敦促 G7 应聚焦全球经济治理与合作，停止一切不负责任的言行，为地区和平稳定发挥建设性作用。<br>
-    <br>
-    博闻社记者从北京获悉，虽然G7财长和央行行长会议当地时间5月20-21日在日本仙台收兵；没有涉及南海争议问题，但更为令北京关注的G7首脑峰会，即将于5月26-27日，在日本观光胜地伊势志摩上演。<br>
-    <br>
-    博闻社特约记者注意到，仙台的G7财长和央行行长会，包括G7全部财长和央行行长、国际货币基金组织（IMF）总裁杰拉德、世界银行（World Bank）行长金镛和欧洲央行（ECB）行长德拉基在内的“大佬”们悉数出席，日本财长成为最忙碌的人，先后与美法财长以及IMF总裁等分别举行了双边会晤；从早餐会到官方晚宴，即使是会议间隙，也竭尽所能，当好东道主。<br>
-    <br>
-    遗憾的是，本次会议在关键问题上并未取得实质性突破；尤其是日元汇率及到底采取何种干预措施才能有效提升世界经济等方面，分歧较为明显。在世界经济持续低迷、各国汇率纷争不断、货币大战硝烟再起、英国脱欧扑朔迷离和国际油价依然如过山车般的氛围中，G7财长和央行行长财神们驾临仙台，但没能为世界经济带来仙气。<br>
-    <br>
-    不过，博闻社特约记者注意到，作为即将举行的G7首脑峰会前最重要热身，本次G7财长和央行行长会议，还是留下了一些令人难忘的时刻：<br>
-    <br>
-    当地时间5月19日晚，日方在著名的Sendai International Center举行隆重欢迎仪式和官方招待晚宴；并专门安排全家福拍摄。作为本次会议正式的官方“全家福”，在20日的主会场Hotel Sakan又特别另行设置。<br>
-    <br>
-    东道主还特别安排“311”日本大地震遗址和重建的参观环节，日本财长全程陪同且担任了编外导游；在为期2天的正式会议间隙，还举行了多场新闻发布会。<br>
-    <br>
-    博闻社特约记者忙里偷闲，于当地时间昨日特别前往东北大学和仙台博物馆，亲身感受了一下当年鲁迅在仙台弃医从文的心路历程；但无法确认的是，不知鲁迅雕塑旁的哪颗树是中国前任国家主席江泽民，在上个世纪亲自栽下的那棵“红梅”？<br>
-    <br>
-    博闻社特约记者今天转赴伊势志摩，准备采访作为本年度重要的国际会议之一2016年G7首脑峰会。<br>
-    <br>
-    这次峰会，美国总统奥巴马是最后一次以首脑身份与会；德国总理默克尔似乎正面临国内严峻挑战；“压力山大”的卡梅隆对英国是否脱欧仍然心里没底。对法国而言，国内恐怖威胁未除，埃航空难又起，总统如何面对？“小鲜肉”加拿大美男总理能否挑起大梁而不是一味“卖萌”？意大利总理如何积极扭转只做“陪衬”的尴尬境地？<br>
-    <br>
-    而最受北京关注的是，东道主日本首相安倍是否在峰会上又提出南海问题。其实日本经济形势更不容乐观；日圆波动正处风口浪尖，“安倍经济学”面临诸多挑战，如果安倍又把南海议题搬上峰会，势必会激怒中方。<br>
-    <br>
-    博闻社特约记者获悉，与G7并不相干的中国已成为此次首脑峰会国际媒体尤为关注的焦点，因为南海问题一定会摆上伊势志摩桌面；而因巴拿马文件曝光，跨国洗钱、逃税和避税，以及共同维护国际金融秩序等，G7的首脑们也非常希望联手行动。<br>
-    <br>
-    另一方面，此次首脑峰会即使不会专题研究俄罗斯，但是“普京和他的俄罗斯”至少也会成为与会首脑们酒足饭饱后的私聊话题。<br>
-    <br>
-    可以肯定的是，没有中国和俄罗斯参加的G7首脑峰会，各国元首首脑似乎确可以口无遮拦畅所欲言；但将中国和俄罗斯挡在门外国际会议，似乎也越来越无趣或者淡而无味。<br>
-    <br>
-    真正最具“亮点”的，或许已经不是此次G7首脑峰会，而是会后美国总统去日本被美国原子弹轰炸过的广岛。日本是全球唯一遭受原子弹攻击的国家，当年美军用两颗原子弹，改变了二战亚洲局势，但美方已公开表示，奥巴马不会就70年前那两颗投在日本领土上、导致几十万人死亡的原子弹道歉。外界一直批评，安倍政府欲借此次G7会议，把自己包装成二战的受害者。<br>
-    <br>
-    中共对2016年在日本举行的G7会议直忧心忡忡，担心成为会议的靶子。博闻社特约记者获悉，尽管中共官媒此次也派报道团队往日本，但出发前官媒高层就已接到禁令，要「低调处理G7及随后的奥巴马广岛之旅」。<br>
-    <br>
-    令人夜不能寐的是，盛传大东京地区近期可能面临强震，且日本专家已为此发出警告。与东京相距300公里的仙台，历史上已经多次遭遇地震，在“311”大地震发生时，更是首当其冲；幸运的是G7财长和央行行长会议已在仙台平安落下帷幕。<br>
-    <br>
-    无论等待伊势志摩的是什么，2016年的G7首脑峰会将再次聚焦世界的目光；美国总统奥巴马旋风式到访，也一定会在70年前被蘑菇云笼罩的广岛引发强震。博闻社将对G7首脑峰会和奥巴马广岛之行进行跟踪报道，敬请关注。<br>
-    <br>
-    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_91383.html?variant=zh-hans" style="color:red;">点此链接</a>）
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201605232032" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201605230534581.jpg--> 4972032       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 16天前</small>
 </p>
 <table>
     <tr>
