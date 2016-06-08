@@ -65,7 +65,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606071354.shtml" target="boxun-mirror">开国上将陈伯钧后人流亡海外谷俊山倒台之后九旬老母仍无处伸冤</a>
 </h2>
