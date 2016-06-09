@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/06/201606081421.shtml" target="boxun-mirror">多视频：纽约时代广场纪念六四27周年颁奖和讲话请看博讯热点：六四</a>
 </h2>
