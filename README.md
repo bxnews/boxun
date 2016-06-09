@@ -355,7 +355,7 @@
 <center><font size="4"><b>2016年六四清</b></font></center>
 </td></tr></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606041942.shtml" target="boxun-mirror">独家：周永康案内幕审查时住三房气势压过审查者</a>
 </h2>
