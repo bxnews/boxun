@@ -415,7 +415,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606062118.shtml" target="boxun-mirror">香格里拉对话北京四面受敌扬言中国军队服理不服霸</a>
 </h2>
