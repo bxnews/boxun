@@ -46,7 +46,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606141852.shtml" target="boxun-mirror">紫禁城来鸿：陆家嘴论坛规格缩水中共政坛山雨欲来</a>
 </h2>
@@ -61,7 +61,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606131037.shtml" target="boxun-mirror">湛江前市委书记刘小华在家上吊身亡刚任省委副秘书长请看博讯热点：官员自杀、被杀</a>
 </h2>
@@ -74,7 +74,7 @@
     <br>
      当地消息透露，昨天（12日）是内地端午节放假后首天上班，下午4时17分，广州市公安局天河分局五山派出所接报，指汇景新城汇景南路227号J1栋301房有人上吊自杀，值班的派出所副所长</td></tr></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606120013.shtml" target="boxun-mirror">加华裔官员挺王毅言论致诚信受质疑发声明重申效忠</a>
 </h2>
@@ -125,7 +125,7 @@
     陈国治表示，《环球邮报》报道引述肯尼的说法，被指在一些华人社区活动高呼“</p>
 </td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606122037.shtml" target="boxun-mirror">云南盐津一村40多人涉"盲井"命案有近亲一同犯案</a>
 </h2>
@@ -140,7 +140,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606102102.shtml" target="boxun-mirror">视频：“就看你漂亮”！深圳警察要胁少女脱衣检查请看博讯热点：警察、官员恶行</a>
 </h2>
@@ -182,7 +182,7 @@
     <br>
     @快-乐-就-好</td></tr></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606091844.shtml" target="boxun-mirror">博闻观察：美中战略对话情调各异中方吹嘘美国含蓄</a>
 </h2>
@@ -197,7 +197,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606092025.shtml" target="boxun-mirror">里外不是人：广电总局遭中央巡视组批“管得太不够”</a>
 </h2>
@@ -214,7 +214,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/06/201606081421.shtml" target="boxun-mirror">多视频：纽约时代广场纪念六四27周年颁奖和讲话请看博讯热点：六四</a>
 </h2>
@@ -262,7 +262,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606071354.shtml" target="boxun-mirror">开国上将陈伯钧后人流亡海外谷俊山倒台之后九旬老母仍无处伸冤</a>
 </h2>
@@ -301,7 +301,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606060645.shtml" target="boxun-mirror">六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开烛光点亮请看博讯热点：六四</a>
 </h2>
@@ -469,7 +469,7 @@
 </center>
             <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/06/201606062118china1.jpg" alt="香格里拉对话北京四面受敌 扬言中国军队服理不服霸"><br>    孙建国（左）与美国防长卡特在香格里拉唇枪舌剑<br>    <br>    【博</td></tr></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606052127.shtml" target="boxun-mirror">博闻现场：六四之夜的天安门与香港维园判若两极</a>
 </h2>
@@ -479,7 +479,7 @@
 </center>
             <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/06/201606052127china1.jpg" alt="博闻现场：六四之夜的天安门 与香港维园判若两极"><br>    （六四之夜的天安门，在荷枪武警守</td></tr></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606041136.shtml" target="boxun-mirror">六四27周年：在严厉打压下纪念，要让六四之火烧赵家楼请看博讯热点：六四</a>
 </h2>
@@ -552,7 +552,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606040027.shtml" target="boxun-mirror">独家报道：张德江赴港考察涉中联办班子调整事宜</a>
 </h2>
@@ -567,7 +567,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606041434.shtml" target="boxun-mirror">“中共恐怖暴行展”及“民主女神”雕像在美国会前展出／视请看博讯热点：六四</a>
 </h2>
@@ -619,7 +619,7 @@
     <b>不忘89.64 美国国会前艺术家陈维民为    黄雀行动“六哥”陈达</b>
 </td></tr></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606041342.shtml" target="boxun-mirror">中共暴行及“民主女神”雕像在美国会前展出请看博讯热点：六四</a>
 </h2>
@@ -670,7 +670,7 @@
     <br><br><b>不忘89.64 美国国会前艺术家陈维民为    黄雀行动“六哥”陈达</b>
 </td></tr></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606022053.shtml" target="boxun-mirror">六四未到六二也敏感中共防陈希同「阴魂不散」请看博讯热点：六四</a>
 </h2>
@@ -716,7 +716,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12天前</small>
+	<small> ============== 13天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606011322.shtml" target="boxun-mirror">博讯记者西诺专访凤姐：自信比金钱更重要</a>
 </h2>
@@ -777,7 +777,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 13天前</small>
+	<small> ============== 14天前</small>
 </p>
 <table>
     <tr>
