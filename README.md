@@ -46,7 +46,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606141852.shtml" target="boxun-mirror">紫禁城来鸿：陆家嘴论坛规格缩水中共政坛山雨欲来</a>
 </h2>
@@ -61,7 +61,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606131037.shtml" target="boxun-mirror">湛江前市委书记刘小华在家上吊身亡刚任省委副秘书长请看博讯热点：官员自杀、被杀</a>
 </h2>
