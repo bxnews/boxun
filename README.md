@@ -92,7 +92,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606150730.shtml" target="boxun-mirror">“习近平委托孟建柱看望美国司法部长”？中办下令撤稿</a>
 </h2>
@@ -137,7 +137,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606141842.shtml" target="boxun-mirror">“军中妖姬”汤灿日前获假释军方从未交代其已服刑请看博讯热点：周永康</a>
 </h2>
