@@ -87,7 +87,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606150726.shtml" target="boxun-mirror">深度透视：内地校园毒跑道为何屡喝不绝继续杀人请看博讯热点：草菅人命</a>
 </h2>
