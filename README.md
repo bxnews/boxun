@@ -89,6 +89,23 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/06/201606161843.shtml" target="boxun-mirror">紫禁城来鸿：李克强错党章八千万党员“抄党章”赔罪</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>紫禁城来鸿：李克强错党章 八千万党员“抄党章”赔罪<br><font color="#000fC0"><small>(博讯北京时间2016年6月16日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201606161843" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->        <br>    <div align="center"><img src="http://upload.bx.tl/news/temp14/201606160344212.png" width="600"></div>
+<br>    （江西新婚夫妇洞房花烛夜抄党章将活动演绎到尽头。）<br>    <br>    【博闻社独家】中共目前正在全党开展“学习党章党规、学习系列讲话（即习近平系列重要讲话），做合格党员”的活动。这个简称为“两学一做”的活动又以“抄党章”最为令人津津乐道。其实这一切的起因，就因为李克强说错了一句话，习近平大为不满，导致八千万党员要抄党章赔罪。<br>    <br>    今年二月底，中共中央办公厅下发《关于在全体党员中开展“学党章党规、学系列讲话，做合格党员”学习教育方案》,要求全体党员以“学党章”为切入点，进行一次党员思想教育，到了基层则演变成“抄党章”的具体模式，各地掀起“抄党章”热潮，以至异像百出，江西一对夫妇在洞房花烛夜抄党章的宣传，把民间对此活动的调侃推向高潮。<br>    <br>    中南海消息人士对博闻社透露，中办之所以要推行这个活动，与前不久总理李克强在一次内部讲话有关。在那次内部讲话时李克强引用党章说事，不料引用出错，习近平听了非常不高兴，所以要求全党，特别是党的领导干部，要好好学习党章党规，要补这一课。<br>    <br>    消息人士没有透露李克强到底引用错了哪一句党章内容，也没有透露李克强是在什么场合引错了党章，但是消息人士称，习近平对这件事耿耿于怀，认为李克强作为党的高级领导人，居然不知道党章对错，这种情况绝不是个别的，而是有非常典型的意义，反映出党员对党章的淡漠与忽视。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/06/201606161843china2.jpg" alt="紫禁城来鸿：李克强错党章 八千万党员“抄党章”赔罪"><br>    （李克强引用党章出错，八千万党员“受累”。）<br>    <br>    中南海消息人士指，“李克强引错党章”导致八千万党员要以“抄党章”的方式赔罪，说起来有些荒唐，但是却被习近平抓到事件的本质，再结合过去十几二十年党的中心工作集中在经济建设，党员的思想建设基本上被忽略，党内腐败丛生，与此不无关系，习近平认为“要补这一课”，有必要在全党再进行一次学习党章的活动。<br>    <br>    另一方面，事件也透露出习李之间“既合作又斗争”的微妙关系。中南海消息人士指，目前习李之间除了在经济工作上有分歧，两人的矛盾几乎已经公开化，在政治思想领域，两人也在明争暗斗。李克强利用总理工作之便，大打亲民牌，民主牌；而习近平则忙于扩张权力，巩固权力，在意识形态上，由于他崇尚毛泽东的基因，导致他自觉不自觉地向左滑行，<br>    <br>    中南海消息人士指，文革50周年由于习近平不想“得罪”左派，容忍左派种种活动，导致左派在全国兴风作浪，人民大会堂唱文革红歌，公开纪念5.16五十周年，甚至公开为文革种种反人类的行为招魂，引起举国不安，中南海诸君都不知道习想什么。终于民怨达到爆发前夕，5.16前半夜，让人民日报搞了一个否定文革的稿子发表，以正视听。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/06/201606161843china3.jpg" alt="紫禁城来鸿：李克强错党章 八千万党员“抄党章”赔罪"><br>    （民工们在法院门外抄党章，另类方式维权）<br>    <br>    “文革臭名昭著，他完全应该理正词严表态反对，应该断然制止党内为文革招魂的做法。但是他没有这样做，变相纵容为文革招魂，等于把自己推到极左的一边。”消息人士称，在这点上党内不少人认为，李克强完胜于习近平。<br>    <br>    “抄党章运动如果再进一步演绎下去，很有可能就会回到文化大革命‘老三篇天天读’的老路，跟薄熙来在重庆搞唱红打黑，没什么分别。”中南海消息人士指，习近平是否意识到自己正在把中国带回过去时代，外界拭目以待。<br>    <br>    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_107231.html" style="color:red;">点此链接</a>） [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201606161843" target="_new">支持此文作者/记者</a><br><!--(Modified on 2016/6/16)--><!--bodyend-->       
+                  
+           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201606160344212.png http://upload.bx.tl/news/temp14/201606160344211.jpg http://upload.bx.tl/news/temp14/201606160344213.jpg--> 61843       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606150726.shtml" target="boxun-mirror">深度透视：内地校园毒跑道为何屡喝不绝继续杀人请看博讯热点：草菅人命</a>
 </h2>
 <p><tr>
@@ -756,58 +773,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606041434.shtml" target="boxun-mirror">“中共恐怖暴行展”及“民主女神”雕像在美国会前展出／视请看博讯热点：六四</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>“中共恐怖暴行展”及“民主女神”雕像在美国会前展出／视<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201606041434" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     “中共国家恐怖主义暴行展”及陈维明先生制作的12尺高“民主女神”雕像于2016年6月2日下午在华盛顿DC美国国会前展出。<br>
-        <br>
-    自5月中从洛杉矶启程的中共国家恐怖主义暴行展及陈维明先生制作的12尺高“民主女神”雕像在长途跋涉一路展出数千英哩后，6月1日，到达位于美国东部的首都华盛顿，并于2016年6月2日下午在美国国会山的国会大厦之西展出。<br>
-        <br>
-    展览地点在美国国会于美国国家纪念碑（方尖碑）的中轴线上，国家纪念碑－－中国的民主女神像－－美国国会连城一线。<br>
-        <br>
-    这项活动由洛杉矶中国民主平台、中国民主党、魏京生基金会、公民研究所、中国民主教育基金会、中国妇权、中国访民、民主女神基金会共同主办，活动经过了近一年时间的准备。<br>
-        <br>
-    魏京生基金会执行主任黄慈萍将主持这场会议。会议结束后，展览小组就地支起了大屏幕，用幻灯机播放了展览组制作的纪念“六。四”的音像资料，此刻有国会大草坪上的游人都聚拢过来，和举办者一起感受27年前震撼人心的场景。<br>
-        <br>
-    除了雕像、图片、音像等内容，来自华盛顿及全美各地的民主人士及活动家们在下午2时至5时时踊跃发言。发言者激情演讲的视频如下：<br>
-        <br>
-         1. 中国民主运动海外联席会议主席魏京生；<br>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/I98aqnTb-uQ" frameborder="0" allowfullscreen></iframe><br>
-         2. 活动的发起、策划和组织者陈维明；<br>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/ByyeTRRjaXE" frameborder="0" allowfullscreen></iframe><br>
-         3. 生命垂危的良心犯郭飞雄之妻张菁；<br>
-         <iframe width="420" height="315" src="https://www.youtube.com/embed/NmBaPg3GksA" frameborder="0" allowfullscreen></iframe><br>
-        4. 89六四镇压的亲历者Leslie Levy;<br>
-         <iframe width="420" height="315" src="https://www.youtube.com/embed/_mIAkgM3N0I" frameborder="0" allowfullscreen></iframe><br>
-        5. 前纽约时报记者赵岩；<br>
-        <iframe width="420" height="315" src="https://www.youtube.com/embed/Kol01EKdj3A" frameborder="0" allowfullscreen></iframe><br>
-        6. 前中共海军司令部中校参谋姚诚；<br>
-        <iframe width="420" height="315" src="https://www.youtube.com/embed/Nb4iCEWtRog" frameborder="0" allowfullscreen></iframe><br>
-         7. 全美学自联理事陆文禾博士；<br>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/Ulizq38FVfo" frameborder="0" allowfullscreen></iframe><br>
-         8. 洛杉矶中国民主平台成员张家瑞；<br>
-        <iframe width="420" height="315" src="https://www.youtube.com/embed/IUi9AXu53P4" frameborder="0" allowfullscreen></iframe> <br>
-        9. 民主墙老将、六四亲历者孙延；<br>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/QgSob8aH1CQ" frameborder="0" allowfullscreen></iframe><br>
-         10. 中国民主党青年委员会主席秦伟平；<br>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/rXrOTad4WQM" frameborder="0" allowfullscreen></iframe><br>
-         11. 洛杉矶中国民主平台成员子元；<br>
-        <iframe width="420" height="315" src="https://www.youtube.com/embed/CSckpjero8M" frameborder="0" allowfullscreen></iframe><br>
-         12. 美国智库加图研究所客座研究员夏业良教授。<br>
-        <iframe width="420" height="315" src="https://www.youtube.com/embed/RnjbFWFiXno" frameborder="0" allowfullscreen></iframe><br>
-        13.魏京生基金会执行主任黄慈萍将主持这场会议。<br>
-        <iframe width="560" height="315" src="https://www.youtube.com/embed/F6mvnuHrTms" frameborder="0" allowfullscreen></iframe><br>
-        <br>
-    <br>
-    <b>不忘89.64 美国国会前艺术家陈维民为    黄雀行动“六哥”陈达</b>
-</td></tr></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
