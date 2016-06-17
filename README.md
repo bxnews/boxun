@@ -183,7 +183,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606162225.shtml" target="boxun-mirror">南希佩洛西就达赖喇嘛尊者历史性访问国会发表声明请看博讯热点：西藏问题</a>
 </h2>
