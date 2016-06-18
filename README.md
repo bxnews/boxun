@@ -19,6 +19,16 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/taiwan/2016/06/201606181819.shtml" target="boxun-mirror">铜锣湾事件怒火延烧香港多团体组“向强权说不”游行</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>铜锣湾事件怒火延烧 香港多团体组“向强权说不”游行<br><font color="#000fC0"><small>(博讯北京时间2016年6月18日 综合报道)</small></font>
+</center>
+            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/06/201606181819taiwan1.jpg" alt="铜锣湾事件怒火延烧 香港多团体组“向强权说不”游行"><br>    （林荣基登高号召港人站出来。）<br>    <br>    【博闻社】铜锣湾书店店长林荣基豁出去公开被失踪真相，激励香港人向强权说不，有传媒随即引宁波公安局称将启动与港警的工作机制，暗示不会就此了 事，白色恐怖笼罩全香港。多个政党今天发起“向强权说不”游行，下午3时由铜锣湾东角道集合，游行到中联办，抗议中共破坏一国两制。<br>    <br>    下午2时，有泛民成员已在游行起步点、铜锣湾书店前架起横额，呼吁市民“向强权说不”，要求“捍卫言论和人身自由”，惟铜锣湾书店并无开业。记者现场目测，至少有近30名军装警员戒备，亦有便衣警员。<br>    <br>    教育人员专业操守议会上任主席韩连山、女长毛雷玉莲现身撑场。韩连山指，铜锣湾事件令港人人心惶惶，希望更多港人关注事件，更多人撑林荣基，指林挺身爆料后，人身安全一定受威胁，他希望政府依法保护香港人。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/06/201606181819taiwan2.jpg" alt="铜锣湾事件怒火延烧 香港多团体组“向强权说不”游行"><br>    （右首议员何俊仁与单仲楷、林荣基。）<br>    <br>    林荣基于民主党立法会议员何俊仁及单仲偕陪同下现身，林手持一封市民支持信，信封面写有“烦请何俊仁先生转交林荣基先生”，林荣基则指“多谢香港人”。林上台带领喊“向强权说不，香港有底线”口号，台下随即鼓掌，亦有人高喊“加油！”林指，香港法例保障出版自由，但中央政府以暴力摧毁书店，收窄港人自由。<br>    <br>    林荣基指，李波人虽在港，但背后仍被操控，指理解李波“要讲违心</td></tr></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606172105.shtml" target="boxun-mirror">达赖喇嘛尊者会见奥巴马总统并参与美国国家民主基金会活动请看博讯热点：西藏问题</a>
 </h2>
 <p><tr>
@@ -767,164 +777,6 @@
 <b></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606060645.shtml" target="boxun-mirror">六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开烛光点亮请看博讯热点：六四</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月06日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201606060645" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     纪念“六四”事件27周年，在中国驻美国大使馆门前2016年6月4日6点开始，竖起了“民主女神”塑像，在大使馆门前的小花园全面铺开了“中共国家恐怖主义暴行展”的展板和展车。<br>
-    <br>
-    由全美中国学生学者自治联合会主办及魏京生基金会、大华府华人支持民运联络委员会、中国民主运动海外联席会议、争取越南民主团结、华盛顿地区藏青会、中国民主党青年委员会、华盛顿海外香港华人联会协办的烛光纪念会在全场为六四死难者默哀中拉开序幕。近百名来自世界各地的异议人士聚集在此，共同纪念1989年“六四”民主运动。烛光在这里亮起。<br>
-    <br>
-    在烛光纪念会期间，中国驻美国大使馆内外显得格外安静，不断有美国警车来回巡逻，虽然闪着警灯，但没拉警笛，也算安静。大使馆基本上黑着灯，整个活动，没有受到干扰。大使馆门前的场地，包括停车位等都被纪念活动占据。27年后的今天，至少这半夜，纪念者短暂的占据着美国华盛顿中国驻美国大使馆的门前花园。<br>
-    <br>
-    全美学自联理事会候补理事陈闯创致开幕词：“我绝对相信我们不需要再等另外一个27年，我们才能进到对面的大使馆里，以中国政府的名义来正式的悼念1989年6月那些为中国自由、民主而捐躯的学生和市民们，那些先烈。”<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/EOjRlzQU0Zc" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    特别讲话：天安门母亲群体负责人尤维洁通过录音致辞。。<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/e_pVwd_6OmA" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    民主女神像揭幕典礼，艺术家陈维民感言：“现在我们面对的是用中国人的鲜血染红的旗帜，我们在对中国共产党这个国家恐怖主义说不，我们要把他的暴行展示于天下。”在接受本台采访时，他说：“我们认为这个政权不属于人民，因为他们没有经过人民合法的选举，所以说它是非法的。”<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/BBotKiTtu0A" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    中国民主运动海外联席会议主席魏京生揭幕8964至少有七千人在北京死亡，呼吁海外民主人士坚定信心，团结奋斗。<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/PaLaamYGYXo" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    首任全球总盟理事长 全球民主和平联盟 巫和怡博士<br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/L03fL_8ymFE" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    共产主义受难者纪念碑董事会主席 爱德华博士  同声翻译：蔡世雯<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/E9gH2A83Whg" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    大华府华人支持民运联络委员会主席 严笑梅女士  同声翻译：蔡世雯<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/V7unM0Kn6NY" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    越南民主社团主席阮医生 独立作家余杰。<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/33YonomLAh0" frameborder="0" allowfullscreen></iframe><br>
-    2016年全美学自联自由精神奖<br>
-    <br><br><b> 全美学自联理事会理事黄慈萍宣布2016年全美学自联自由精神奖获奖者为：张海涛 郭飞雄 。</b><br>
-    <br>
-    全美学自联理事会候补理事 秦邦宣读获奖词后由郭飞雄的妻子张青女士带领郭飞雄的一儿一女领奖，张青女士做了领奖感言。<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/6oHIQstsggg" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    89六四镇压的亲历者Leslie Levy 女士，在烛光下用诗歌把与会者带到了27年前哪个血腥的北京之夜。<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/37KUVt_UYGw" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    80后 蔡世雯小姐讲述对六四的影像。<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/eI8nDUXug5A" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    前北京大学教授夏业良<br>
-    <br>
-    <iframe width="“420”" height="315" src="https://www.youtube.com/embed/lXRi7i5pf7w" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    科学家朱学渊的激情演讲把晚会的气氛推向新的高潮。<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/N4V2GGmW-Ms" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    遇罗克的弟弟遇罗文声讨六四屠杀<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/Nrhm0TgpcBQ" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    六四南京学生领袖，后一直做牢的吴健民<br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/zV9GOoTfpjQ" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    人权律师肖国珍<br>
-    <iframe width="“420”" height="315" src="https://www.youtube.com/embed/FxqCcgVkuag" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    政治犯的杨海的女儿杨健怡用中英文发言，与会者对青年一代的成长深受鼓舞。<br>
-    <br>
-    <iframe width="“420”" height="315" src="https://www.youtube.com/embed/7F0xuixib-c" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    民主运动老战士孙延<br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/0RVz8O9obaY" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    远道而来的来宾发言<br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/1GsnI8Lobtk" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    夜已深，27年前的此刻北京天安门广场真是枪声大作，子弹横飞。陈维民民主女神巡展小组在战车上铺开屠杀死难者画像，点燃了蜡烛，小组成员现场用小提琴伴奏，陈维民深情一遍一遍的朗诵悼词。大家心情沉重。<br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/M9e-aIzJn14" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl1.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"><p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl2.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl3.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl4.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl5.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl6.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl7.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl8.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl9.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl10.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl11.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl12.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl13.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl14.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl15.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl16.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl17.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl18.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl19.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl20.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl21.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl22.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl23.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl24.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl25.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl26.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl27.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl28.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl29.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606060645intl30.jpg" alt="六四”27周年大使馆前“民主女神”竖起“中共暴行展”铺开 烛光点亮"></p>
-<p>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201606060645" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201606051542131.JPG http://upload.bx.tl/news/temp14/201606051542132.JPG http://upload.bx.tl/news/temp14/201606051542133.JPG http://upload.bx.tl/news/temp14/201606051542134.JPG http://upload.bx.tl/news/temp14/201606051542551.JPG http://upload.bx.tl/news/temp14/201606051542552.JPG http://upload.bx.tl/news/temp14/201606051542553.JPG http://upload.bx.tl/news/temp14/201606051542554.JPG http://upload.bx.tl/news/temp14/201606051543301.JPG http://upload.bx.tl/news/temp14/201606051543302.JPG http://upload.bx.tl/news/temp14/201606051543303.JPG http://upload.bx.tl/news/temp14/201606051543304.JPG http://upload.bx.tl/news/temp14/201606051544361.JPG http://upload.bx.tl/news/temp14/201606051544362.JPG http://upload.bx.tl/news/temp14/201606051544363.JPG http://upload.bx.tl/news/temp14/201606051544364.JPG http://upload.bx.tl/news/temp14/201606051545281.JPG http://upload.bx.tl/news/temp14/201606051545282.JPG http://upload.bx.tl/news/temp14/201606051545283.JPG http://upload.bx.tl/news/temp14/201606051545284.JPG http://upload.bx.tl/news/temp14/201606051546341.JPG http://upload.bx.tl/news/temp14/201606051546342.jpg http://upload.bx.tl/news/temp14/201606051546343.jpg http://upload.bx.tl/news/temp14/201606051546344.jpg http://upload.bx.tl/news/temp14/201606051547311.jpg http://upload.bx.tl/news/temp14/201606051547312.jpg http://upload.bx.tl/news/temp14/201606051547313.jpg http://upload.bx.tl/news/temp14/201606051547314.jpg http://upload.bx.tl/news/temp14/201606051547571.jpg http://upload.bx.tl/news/temp14/201606051547572.jpg--> 4600645       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
