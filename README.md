@@ -41,7 +41,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/06/201606181819.shtml" target="boxun-mirror">铜锣湾事件怒火延烧香港多团体组“向强权说不”游行</a>
 </h2>
