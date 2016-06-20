@@ -77,7 +77,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606192206.shtml" target="boxun-mirror">达赖喇嘛尊者出席《女性--富有同情心之领导者》早餐会请看博讯热点：西藏问题</a>
 </h2>
