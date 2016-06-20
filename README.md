@@ -100,7 +100,7 @@
     <img src="http://www.boxun.com/news/images/2016/06/201606192206intl1.jpg" alt="达赖喇嘛尊者出席《女性--富有同情心之领导者》早餐会"><p><br>
     当尊者步入早餐会现场时，已大约有275位嘉宾于餐桌就坐，其中不乏有影响力的女性、首席执行官、艺人和媒体代表。在播放了介绍尊者人生历程的视频之后，Mimi 和 Maribel Unanue与大家</p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/06/201606192137.shtml" target="boxun-mirror">习近平的最后一个公知支持者黯然退场/陈智立请看博讯热点：习近平观察</a>
 </h2>
@@ -372,7 +372,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606171800.shtml" target="boxun-mirror">紫禁城来鸿：权威人士难挽经济颓势官媒演兔死狐悲</a>
 </h2>
@@ -467,7 +467,7 @@
     <br>
     华盛顿 D.C.――达赖喇嘛尊者在美国国会会见国会两党议员并出席国会两院联合午餐会，民主党领袖南希・佩洛西在会后发表声明：  “今天，我们再一次荣幸地欢迎达赖喇嘛尊者来到美利坚合众国国会。尊者的出席，以及他每次访问都和我们</p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606162209.shtml" target="boxun-mirror">李鹏马仔近日再惹麻烦曝李鹏家族家受王岐山保护请看博讯热点：李鹏家族</a>
 </h2>
