@@ -88,7 +88,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2分钟前</small>
+	<small> ============== 7分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606201357.shtml" target="boxun-mirror">韦石对“新华网”投诉其注册域名xinhua.news的回应请看博讯热点：网络封锁和压制</a>
 </h2>
