@@ -88,7 +88,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606211840.shtml" target="boxun-mirror">独家：中共军队落实加薪师长月薪逾三万元人民币</a>
 </h2>
