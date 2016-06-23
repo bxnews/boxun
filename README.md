@@ -493,7 +493,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606170833.shtml" target="boxun-mirror">达赖喇嘛尊者访问国会山和国际声援西藏运动组织请看博讯热点：西藏问题</a>
 </h2>
@@ -659,7 +659,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606162225.shtml" target="boxun-mirror">南希佩洛西就达赖喇嘛尊者历史性访问国会发表声明请看博讯热点：西藏问题</a>
 </h2>
