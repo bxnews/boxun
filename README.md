@@ -88,7 +88,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606230430.shtml" target="boxun-mirror">达赖喇嘛:应以对话妥善解决问题、爱和同情心是必需品请看博讯热点：西藏问题</a>
 </h2>
