@@ -56,7 +56,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606241303.shtml" target="boxun-mirror">达赖喇嘛:希望有一天流亡藏人可以在西藏与同胞团聚请看博讯热点：西藏问题</a>
 </h2>
