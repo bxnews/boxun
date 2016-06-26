@@ -245,7 +245,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606230430.shtml" target="boxun-mirror">达赖喇嘛:应以对话妥善解决问题、爱和同情心是必需品请看博讯热点：西藏问题</a>
 </h2>
@@ -315,7 +315,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/06/201606232056.shtml" target="boxun-mirror">从铜锣湾书店到域名之争中共外宣的“定点清除”术</a>
 </h2>
@@ -372,7 +372,7 @@
     <br>
     “然而，传承佛经并领悟佛法的唯一途径是学习和实践，我们必须不断研读经文，勤修戒定慧三学。除此之外，别无他途。我们必须对佛陀的教导反复思考。今年我将满81周岁，但我仍认为自己是一个学生。古印度传统培育了止与观的修禅方法，并通过这样的禅定发展出对意念和情绪的深刻理解。如何应对负面情绪和培养积极情绪，是我们可以与世界</p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606220104.shtml" target="boxun-mirror">绑架孙逼迫林祖恋“认罪”，驱赶记者，乌坎镇压在即/视频</a>
 </h2>
@@ -453,7 +453,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606211840.shtml" target="boxun-mirror">独家：中共军队落实加薪师长月薪逾三万元人民币</a>
 </h2>
@@ -551,7 +551,7 @@
     <img src="http://www.boxun.com/news/images/2016/06/201606192206intl1.jpg" alt="达赖喇嘛尊者出席《女性--富有同情心之领导者》早餐会"><p><br>
     当尊者步入早餐会现场时，已大约有275位嘉宾于餐桌就坐，其中不乏有影响力的女性、首席执行官、艺人和媒体代表。在播放了介绍尊者人生历程的视频之后，Mimi 和 Maribel Unanue与大家</p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/06/201606192137.shtml" target="boxun-mirror">习近平的最后一个公知支持者黯然退场/陈智立请看博讯热点：习近平观察</a>
 </h2>
@@ -823,7 +823,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606171800.shtml" target="boxun-mirror">紫禁城来鸿：权威人士难挽经济颓势官媒演兔死狐悲</a>
 </h2>
