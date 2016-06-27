@@ -33,7 +33,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606261958.shtml" target="boxun-mirror">博闻观察：一周以来习近平苦心孤诣外交动作的背后</a>
 </h2>
@@ -49,7 +49,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2016/06/201606252138.shtml" target="boxun-mirror">博论:把乌坎维权领袖和杀人毒跑道捏一块腐败之极请看博讯热点：草菅人命</a>
 </h2>
@@ -117,7 +117,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606251752.shtml" target="boxun-mirror">周永康情妇央视主播叶迎春辞去全国政协委员职务</a>
 </h2>
@@ -132,7 +132,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606250447.shtml" target="boxun-mirror">无界网涉辞职信事件未了执行总裁被拘三月仍未获释</a>
 </h2>
@@ -171,7 +171,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606252142.shtml" target="boxun-mirror">两个视频打了王毅的嘴:比鬼子还凶、人不如狗请看博讯热点：警察、官员恶行</a>
 </h2>
@@ -190,7 +190,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606241303.shtml" target="boxun-mirror">达赖喇嘛:希望有一天流亡藏人可以在西藏与同胞团聚请看博讯热点：西藏问题</a>
 </h2>
@@ -347,7 +347,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606221210.shtml" target="boxun-mirror">达赖喇嘛尊者出席加州DieuNgu佛寺开光大典请看博讯热点：西藏问题</a>
 </h2>
@@ -398,7 +398,7 @@
 </center>
             <!--bodystart-->      （博讯报道）乌坎村民5年前坚持抗争，政府被迫软处理，但5年后还是被秋后算账。据了解，该村被抢夺土地变卖几十亿的资金至今没给村民，这样大的贪腐，肯定牵涉各级政府乃至常委家族有份。因此，对乌坎的维权从上到下的官员不会让步，对贪腐不会调查，乌坎算是检验北京政府反腐到底是权斗还是真反腐的试金石。乌坎村民团结，一旦镇压将是大规模的，现任领导层将沾上更多鲜血，中国和平转型将进入绝路。<br>    <br>    <a href="http://bowenpress.com/news/bowen_107906.html">乌坎书记林祖恋18日被抓</a>，6月20日，林祖恋即被上电视“认罪”，但明显看出，他在念预备好的稿件（视频见下）。实际上，林祖恋被抓后，<a href="http://bowenpress.com/news/bowen_108544.html">他的孙子也被绑架</a>，因此他“认罪”并不奇怪。中共自红军时期就开始用绑架老幼妇孺要挟地主的手段要钱、要粮。<br>    <iframe width="420" height="315" src="https://www.youtube.com/embed/W5M1DbtlJko" frameborder="0" allowfullscreen></iframe><br>    <br>    官方播放的视频中，林祖恋神态放松，地方口音浓重，一字一句念稿子。林祖恋称，“由于自己对法律知识的淡薄和无知，在民生工程中收受了回扣，以及在村集体购买资产中也收受了巨大的回扣，这点是我最大的犯罪行为。我在这问题上一定如实地向检察机关投案自首，对这点我会如实坦白地交待。”<br>    <br>    许多网友对官方强制电视认罪表达了怀疑，</td></tr></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606210103.shtml" target="boxun-mirror">达赖喇嘛尊者发表公开讲话并传授口传药师佛随许请看博讯热点：西藏问题</a>
 </h2>
@@ -484,7 +484,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606201357.shtml" target="boxun-mirror">韦石对“新华网”投诉其注册域名xinhua.news的回应请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -544,7 +544,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606192206.shtml" target="boxun-mirror">达赖喇嘛尊者出席《女性--富有同情心之领导者》早餐会请看博讯热点：西藏问题</a>
 </h2>
@@ -626,7 +626,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606190931.shtml" target="boxun-mirror">专访视频：钱其琛张冠李戴的吴建民谈六四请看博讯热点：六四</a>
 </h2>
@@ -650,7 +650,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/06/201606181819.shtml" target="boxun-mirror">铜锣湾事件怒火延烧香港多团体组“向强权说不”游行</a>
 </h2>
@@ -660,7 +660,7 @@
 </center>
             <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/06/201606181819taiwan1.jpg" alt="铜锣湾事件怒火延烧 香港多团体组“向强权说不”游行"><br>    （林荣基登高号召港人站出来。）<br>    <br>    【博闻社】铜锣湾书店店长林荣基豁出去公开被失踪真相，激励香港人向强权说不，有传媒随即引宁波公安局称将启动与港警的工作机制，暗示不会就此了 事，白色恐怖笼罩全香港。多个政党今天发起“向强权说不”游行，下午3时由铜锣湾东角道集合，游行到中联办，抗议中共破坏一国两制。<br>    <br>    下午2时，有泛民成员已在游行起步点、铜锣湾书店前架起横额，呼吁市民“向强权说不”，要求“捍卫言论和人身自由”，惟铜锣湾书店并无开业。记者现场目测，至少有近30名军装警员戒备，亦有便衣警员。<br>    <br>    教育人员专业操守议会上任主席韩连山、女长毛雷玉莲现身撑场。韩连山指，铜锣湾事件令港人人心惶惶，希望更多港人关注事件，更多人撑林荣基，指林挺身爆料后，人身安全一定受威胁，他希望政府依法保护香港人。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/06/201606181819taiwan2.jpg" alt="铜锣湾事件怒火延烧 香港多团体组“向强权说不”游行"><br>    （右首议员何俊仁与单仲楷、林荣基。）<br>    <br>    林荣基于民主党立法会议员何俊仁及单仲偕陪同下现身，林手持一封市民支持信，信封面写有“烦请何俊仁先生转交林荣基先生”，林荣基则指“多谢香港人”。林上台带领喊“向强权说不，香港有底线”口号，台下随即鼓掌，亦有人高喊“加油！”林指，香港法例保障出版自由，但中央政府以暴力摧毁书店，收窄港人自由。<br>    <br>    林荣基指，李波人虽在港，但背后仍被操控，指理解李波“要讲违心</td></tr></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606172105.shtml" target="boxun-mirror">达赖喇嘛尊者会见奥巴马总统并参与美国国家民主基金会活动请看博讯热点：西藏问题</a>
 </h2>
