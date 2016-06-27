@@ -753,7 +753,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606170833.shtml" target="boxun-mirror">达赖喇嘛尊者访问国会山和国际声援西藏运动组织请看博讯热点：西藏问题</a>
 </h2>
