@@ -33,7 +33,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6小时前</small>
+	<small> ============== 7小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606261958.shtml" target="boxun-mirror">博闻观察：一周以来习近平苦心孤诣外交动作的背后</a>
 </h2>
