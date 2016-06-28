@@ -55,6 +55,59 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/06/201606282303.shtml" target="boxun-mirror">李源潮夫人现身中央音乐学院显示被抓传闻不实请看博讯热点：李源潮</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>李源潮夫人现身中央音乐学院 显示被抓传闻不实<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liyuanchao.shtml">李源潮
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月28日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    http://bowenpress.com/news/bowen_110350.html<br>
+     （今天从大陆微信圈传出李源潮夫人参加座谈会的照片。） 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_education-article-embed_chinese -->
+<div id="box011">
+<script type="text/javascript">
+
+</script>
+</div>
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    【博闻社】中共政治局委员、国家副主席李源潮心腹大秘被抓，习近平王岐山剑指李源潮，震惊外界。有海外网站“顺杆爬”立即跟进报道，指李源潮的夫人高建进和司机也被有关部门带走调查，抢尽眼球。<br>
+    <br>
+    不过，本社获得的消息显示，李源潮本人和他的夫人高建进至少到发稿时为止，并没有出事被带走。<br>
+    <br>
+    有知情者在微信朋友圈贴出一张据称是今天中央音乐学院学生拍的照片，照片中，一班身穿毕业袍的学生围成一圈，旁边桌上摆着水果，似乎是在开座谈会。<br>
+    <br>
+    而在最左上方坐着一位年长的女士，齐耳短发，似乎是在听学生发言。消息指这是高建进老师今天参加学生的毕业座谈会。<br>
+    <br>
+    高建进1979年毕业于上海音乐学院外国音乐史专业本科，毕业后留校任教。后来曾任中央音乐学院附中理论学科主任。1998年，出任中央音乐学院音乐学系音乐教育教研组长。<br>
+    <br>
+    1999年起，担任中央音乐学院音乐教育系第一任系主任。高建进是南京师范大学特聘教授、中央音乐学院音乐教育系教授、博士生导师。她在中央音乐学院开设西方音乐教育史、教学法、教学实习等课程。<br>
+    <br>
+    李源潮与高建进育有一个儿子李海进，美国耶鲁大学毕业。<br>
+    <br>
+    消息显示，李源潮的问题涉及经济部分，很大部分原因与夫人的弟弟高全建有关。博闻社曾经披露，李源潮的妻弟从商，在长江三角洲，特别是江苏一带的政商两界，无人不知。除了利用姐夫的影响力从商赚钱，还利用姐夫掌管中组部的便利，帮官场跑官卖官。<br>
+    <br>
+    2013年2月，有海外媒体引述记者高瑜的消息称，李源潮的小舅子因赌博被中纪委扣查。据高瑜向德国之声透露，李源潮的小舅子在2011年，在澳门赌博输掉2000万人民币，被赌场扣住，事件惊动中纪委。<br>
+    <br>
+    据说，当时广州军区动用军款才把人赎回来；为堵上这笔军款窟窿，当局耗时一年。消息指，李源潮的小舅子仍被中纪委审查，李妻高建进也因涉案被中纪委问话23个小时。<br>
+    <br>
+    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_110350.html" style="color:red;">点此链接</a>）
+ [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 4732303       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606280257.shtml" target="boxun-mirror">独家：心腹大秘被抓李源潮落马开始倒数请看博讯热点：李源潮</a>
 </h2>
 <p><tr>
@@ -699,30 +752,6 @@
     陈智立 6.18 
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201606192137" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
 <!----> 3822137       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606190931.shtml" target="boxun-mirror">专访视频：钱其琛张冠李戴的吴建民谈六四请看博讯热点：六四</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>专访视频：钱其琛张冠李戴的吴建民谈六四<br><font color="blue" size="2">请看博讯热点：<a href="/hot/64.shtml">六四
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201606190931" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     1989年爆发学潮，吴建民是南京在校大学生，多次的游行示威活动后，被学生们推举成学生领导人。五月底吴建民发起和领导了南京高自联徒步北上运动。六四北京枪响的那一天，吴建民正率领着千余名南京地区各大高校的学生，徒步行军走在北上途中的安徽滁州，当日被江苏省和安徽省两省政府率武警强行拦劫回南京。1990年，被南京市国家安全局逮捕，1991年7月，南京市中院，以吴建民组织领导反革命集团罪首犯的罪名，将吴建民和另外来自南京中医药大学和南京机械专科学校的其他三名被告人，分别判处了10年、8年、3年、2年的有期徒刑。<br>
-    <br>
-        比较戏剧的是：时任外交部长的钱其琛出书《外交十记》中纪述，美国国务卿贝克曾向他拿出一份六四被捕名单，其中有吴建民。而钱其琛将现场的新闻司司长叫吴建民“充数”，贝克不熟悉，中国人重名多，打哈哈过去。钱其琛却将此情节作为美国名单不实的证据。<br>
-    <br>
-    外交部的吴建民日前车祸去世，以下视频是六四被捕的吴建民在纽约接受博讯记者西诺专访的谈话：（按：记者提问有口误）<br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/NbnzDXhj9EM" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/uStb95-DMas" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201606190931" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3280931       
 <hr>
 <table width="620"><tr><td>
 <b></p>
