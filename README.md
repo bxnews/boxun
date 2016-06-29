@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606280013.shtml" target="boxun-mirror">独家：中共把网络当战场“五毛”要正规化成军</a>
 </h2>
@@ -47,7 +47,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606280120.shtml" target="boxun-mirror">视频：湖北仙桃装甲车、坦克开进，传涉李源潮利益请看博讯热点：突发事件</a>
 </h2>
@@ -68,7 +68,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606282303.shtml" target="boxun-mirror">李源潮夫人现身中央音乐学院显示被抓传闻不实请看博讯热点：李源潮</a>
 </h2>
@@ -121,7 +121,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606280257.shtml" target="boxun-mirror">独家：心腹大秘被抓李源潮落马开始倒数请看博讯热点：李源潮</a>
 </h2>
@@ -162,7 +162,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606271216.shtml" target="boxun-mirror">视频：冯建维谈水利部机构改革混乱、腐败内幕</a>
 </h2>
@@ -178,7 +178,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606261958.shtml" target="boxun-mirror">博闻观察：一周以来习近平苦心孤诣外交动作的背后</a>
 </h2>
@@ -194,7 +194,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/editorial/2016/06/201606252138.shtml" target="boxun-mirror">博论:把乌坎维权领袖和杀人毒跑道捏一块腐败之极请看博讯热点：草菅人命</a>
 </h2>
@@ -262,7 +262,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606251752.shtml" target="boxun-mirror">周永康情妇央视主播叶迎春辞去全国政协委员职务</a>
 </h2>
@@ -277,7 +277,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606250447.shtml" target="boxun-mirror">无界网涉辞职信事件未了执行总裁被拘三月仍未获释</a>
 </h2>
@@ -316,7 +316,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606252142.shtml" target="boxun-mirror">两个视频打了王毅的嘴:比鬼子还凶、人不如狗请看博讯热点：警察、官员恶行</a>
 </h2>
@@ -335,7 +335,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606241303.shtml" target="boxun-mirror">达赖喇嘛:希望有一天流亡藏人可以在西藏与同胞团聚请看博讯热点：西藏问题</a>
 </h2>
@@ -492,7 +492,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606221210.shtml" target="boxun-mirror">达赖喇嘛尊者出席加州DieuNgu佛寺开光大典请看博讯热点：西藏问题</a>
 </h2>
@@ -543,7 +543,7 @@
 </center>
             <!--bodystart-->      （博讯报道）乌坎村民5年前坚持抗争，政府被迫软处理，但5年后还是被秋后算账。据了解，该村被抢夺土地变卖几十亿的资金至今没给村民，这样大的贪腐，肯定牵涉各级政府乃至常委家族有份。因此，对乌坎的维权从上到下的官员不会让步，对贪腐不会调查，乌坎算是检验北京政府反腐到底是权斗还是真反腐的试金石。乌坎村民团结，一旦镇压将是大规模的，现任领导层将沾上更多鲜血，中国和平转型将进入绝路。<br>    <br>    <a href="http://bowenpress.com/news/bowen_107906.html">乌坎书记林祖恋18日被抓</a>，6月20日，林祖恋即被上电视“认罪”，但明显看出，他在念预备好的稿件（视频见下）。实际上，林祖恋被抓后，<a href="http://bowenpress.com/news/bowen_108544.html">他的孙子也被绑架</a>，因此他“认罪”并不奇怪。中共自红军时期就开始用绑架老幼妇孺要挟地主的手段要钱、要粮。<br>    <iframe width="420" height="315" src="https://www.youtube.com/embed/W5M1DbtlJko" frameborder="0" allowfullscreen></iframe><br>    <br>    官方播放的视频中，林祖恋神态放松，地方口音浓重，一字一句念稿子。林祖恋称，“由于自己对法律知识的淡薄和无知，在民生工程中收受了回扣，以及在村集体购买资产中也收受了巨大的回扣，这点是我最大的犯罪行为。我在这问题上一定如实地向检察机关投案自首，对这点我会如实坦白地交待。”<br>    <br>    许多网友对官方强制电视认罪表达了怀疑，</td></tr></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606210103.shtml" target="boxun-mirror">达赖喇嘛尊者发表公开讲话并传授口传药师佛随许请看博讯热点：西藏问题</a>
 </h2>
@@ -629,7 +629,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606201357.shtml" target="boxun-mirror">韦石对“新华网”投诉其注册域名xinhua.news的回应请看博讯热点：网络封锁和压制</a>
 </h2>
@@ -689,7 +689,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606192206.shtml" target="boxun-mirror">达赖喇嘛尊者出席《女性--富有同情心之领导者》早餐会请看博讯热点：西藏问题</a>
 </h2>
