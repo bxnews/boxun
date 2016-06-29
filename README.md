@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606280013.shtml" target="boxun-mirror">独家：中共把网络当战场“五毛”要正规化成军</a>
 </h2>
