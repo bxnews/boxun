@@ -19,6 +19,21 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/06/201606300253.shtml" target="boxun-mirror">鲁炜去职网信办另有重用</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>鲁炜去职网信办 另有重用<br><font color="#000fC0"><small>(博讯北京时间2016年6月30日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201606300253" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       <br>    <small>鲁炜去职原来是有望升官</small><br>    <img src="<img" alt="鲁炜去职网信办 另有重用"><br>    <br>    博闻社北京消息 中共今天宣告鲁炜不再担任中央网络安全和信息化领导小组办公室主任职务。外界一度传他被中纪委查，但本社获得最新的权威消息指，鲁炜实际上回到中宣部解决中央巡视组发现的问题，显示鲁不但没有问题，相反获重用。鲁一直是中宣部部长级副部长，但一直专注网络管控，对中宣部对事务参与不多。<br>    <br>    消息指，鲁以严厉治网获习近平赏识重用，而习专门从浙江调到中宣部「渗沙子」的中宣部常务副部长黄坤明，由于表现欠佳，故鲁炜也是接刘奇葆出任中宣部长的人选之一。<br>    <br>    网信办是中央网络安全和信息化领导小组的办事机构，而小组长由习近平亲自担任，故网信办主任位高权重。“网信办”是中国式网络监管的代名词，国际媒体称鲁炜为“中国网络掌门人”，民间称之为“网络沙皇”。<br>    <br>    鲁炜在2013年接管国家互联网信息办公室，并于今年5月成为以国家主席习近平为首的一个权力很大的互联网领导小组的负责人。自那以后，他进一步加强了中国网络审查的力度，而它原本就是世界上最繁复的网络审查制度。<br>    <br>    纽约时报曾报道，2014年6月在伦敦的一次贸易会议上，他理直气壮地为中国需要进行更严格的网络控制进行辩护。10月，在北京的一次新闻发布会上，他又直白地表示，Facebook不能指望在中国不受限制的运营。<br>    <br>    自习近平“819讲话”以来，中国当局全面开启运动式净网，今年是第三年，网络管制层层升级，传各种严苛的所谓“管制专项”都有鲁炜操的影子。<br><br> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201606300253" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/6/30)--> <!--bodyend-->       
+           (博讯 boxun.com) <br><!----> 1130253       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606290559.shtml" target="boxun-mirror">独家：李源潮两度被中纪委约谈到底抓还是不抓？</a>
 </h2>
 <p><tr>
@@ -690,29 +705,6 @@
 <b></p>
 <p>
 	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/06/201606192206.shtml" target="boxun-mirror">达赖喇嘛尊者出席《女性--富有同情心之领导者》早餐会请看博讯热点：西藏问题</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>达赖喇嘛尊者出席《女性--富有同情心之领导者》早餐会<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tibet.shtml">西藏问题
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201606192206" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    美国加州洛杉矶，2016年6月17日 <br>
-    <br>
-    作者: 达赖喇嘛尊者办公室<br>
-    译者：小凡<br>
-    提供者：达赖喇嘛尊者北美代表办公室<br>
-    照片来源：达赖喇嘛尊者办公室<br>
-    <a href="http://www.dalailama.com/news/post/1407-his-holiness-the-dalai-lama-participates-in-a-women-in-compassionate-leadership-breakfast">英文原稿（དབྱིན་ཡིག་མ་རྩོམ།）</a><br>
-    <br>
-    昨天，尊者从华盛顿飞往位于美国大陆另一边的洛杉矶。今天早上，达赖喇嘛尊者在出席女性与充满爱心之领导力早餐会之前告诉人们，尽管他会忘记他们的名字，但他们的音容笑貌仍会在他的脑海中保留几十年。当他回答一个关于政治家是否可能变得更有同情心的问题时，他回顾说，自己曾告诉美国前副总统戈尔，人类有能力临危不惧。他比喻说，海洋的表面看似波涛汹涌，但在海的深处依然保持着安静。这才是正确的处世之道。<br>
-    <img src="http://www.boxun.com/news/images/2016/06/201606192206intl1.jpg" alt="达赖喇嘛尊者出席《女性--富有同情心之领导者》早餐会"><p><br>
-    当尊者步入早餐会现场时，已大约有275位嘉宾于餐桌就坐，其中不乏有影响力的女性、首席执行官、艺人和媒体代表。在播放了介绍尊者人生历程的视频之后，Mimi 和 Maribel Unanue与大家</p>
-<p>
-	<small> ============== 11天前</small>
 </p>
 <table>
     <tr>
