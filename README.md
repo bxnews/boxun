@@ -44,7 +44,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7分钟前</small>
+	<small> ============== 12分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606302040.shtml" target="boxun-mirror">习近平撂狠话：领导干部不干不净累党面临沟沟坎坎</a>
 </h2>
