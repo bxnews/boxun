@@ -19,6 +19,33 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607010039.shtml" target="boxun-mirror">铜锣湾书店事件：汪珉黄奔解读香港危局/视频请看博讯热点：习近平观察</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>铜锣湾书店事件：汪珉黄奔解读香港危局/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607010039" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     【博闻社】媒体报道，铜锣湾书店事件源于出版领导人情人的书。而铜锣湾事件后，民间甚至包括香港传媒议论称，铜锣湾书店出版那些八卦是错误的做法，有人甚至认为“罪有应得”。似乎大家忽视了，美国等西方国家，这种八卦领导人和名人的杂志摆放在所有书报摊、食品店，它们的摆放普及率高于严肃报纸。以食品店为例，严肃报纸一般在某个地方，而八卦杂志则在每个收银台都有。<br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607010039china1.jpg" alt="铜锣湾书店事件：汪珉黄奔解读香港危局/视频"><p><br>
+    美国八卦到什么地步？希拉里三个乳房、她搞同性恋，奥巴马总统要和第一夫人离婚， 《National Enquirer》封面文章标题“Obama Divorce Bombshell!”（奥巴马要和大胸女离婚）。几乎各界在任总统都被被这些杂志编造离奇绯闻抢眼球，但这些杂志的生命力比纽时等不差，各大报纸巨额亏本时，这些杂志一直盈利。其实，在一个自由社会，打压这种八卦等于是侵犯自由言论，接下来会损害正常的报道。<br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607010039china2.jpg" alt="铜锣湾书店事件：汪珉黄奔解读香港危局/视频"></p>
+<p><br>
+    铜锣湾书店曾具有言论自由的香港，它的命运和被打压方式，不仅是大陆政治的一个缩影，更显示香港的现在和未来令人堪忧。<br>
+    <br>
+    本视频是西诺对民运人士汪珉、黄奔的采访。他们谈话有以美国八卦杂志来比较铜锣湾事件。<br>
+    <br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/XVEx3Gl0VGU" frameborder="0" allowfullscreen></iframe><br>
+     
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607010039" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4050038       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606302040.shtml" target="boxun-mirror">习近平撂狠话：领导干部不干不净累党面临沟沟坎坎</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -635,21 +662,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201606210103" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201606201000501.jpg http://upload.bx.tl/news/temp14/201606201000502.jpg http://upload.bx.tl/news/temp14/201606201000503.jpg http://upload.bx.tl/news/temp14/201606201000504.jpg http://upload.bx.tl/news/temp14/201606201000505.jpg http://upload.bx.tl/news/temp14/201606201000506.jpg http://upload.bx.tl/news/temp14/201606201000507.jpg--> 1720103       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 10天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/06/201606211840.shtml" target="boxun-mirror">独家：中共军队落实加薪师长月薪逾三万元人民币</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：中共军队落实加薪 师长月薪逾三万元人民币<br><font color="#000fC0"><small>(博讯北京时间2016年6月21日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201606211840" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/06/201606211840china1.jpg" alt="独家：中共军队落实加薪 师长月薪逾三万元人民币"><br>    （中共解放军部队已全面落实加薪。）<br>    <br>    【博闻社独家】中共军队改革后的首次军官加薪已经落实，加幅从最底等的下士250元(人民币，下同)，到师长近1500元不等。加薪后师长(正师级)月薪可达30070元，而最底级的士官可领到5750元。<br>    <br>    博闻社从军方获得的加薪消息透露，此次晋升加薪分无职务晋升及有职务晋升(2011年3月1日后)。无职务晋升者，加薪后的排职可领10360元；副连11270元；正连12190元；副营13340元；正营17020元；副团20700元，正团26070元；副师29440元；正师34270元。<br>    <br>    有职务晋升者，副连10470元，正连11390元，副营12340元，正营13820元；副团17600元；正团21270元；副师25640元；正师30070元。<br>    <br>    士官加薪后的月薪为下士5750元，中士(2009年7月1日后无军衔晋升者)7820元；上士10120元；四级军士长12420。2010年7月1日后晋升为现军衔者，中士6290元，上士8420元；四级军士长10720元。<br>    <br>    军方消息士对博闻社表示，以上只是陆军军官的薪金调整情况，海、空军因为还有专业津贴，故月收入要较陆军高。消息指，习近平上台后对军队的加薪幅度是过往前几任军委主席所没有的，现在军人的月收入已远远超过地方同级别官员的收入，导致中国军费开始出现人头费大幅上涨的趋势。<br>    <br>    这次加薪由去年七月分开始算起。这是1949年以来，解放军进行的第9次薪酬改革，对上一次在一年前执行。消息称，是次加薪早有定案，但迟迟不公布就是为了等军改尘埃落定，再向军队打下强心针，以安抚军心，提振士气。<br>    <br>    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_108476.html" style="color:red;">点此链接</a>） [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201606211840" target="_new">支持此文作者/记者</a> <!--(Modified on 2016/6/21)--> <!--bodyend-->       
-           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201606210344041.jpg--> 1511840       
 <hr>
 <table width="620"><tr><td>
 <b></p>
