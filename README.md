@@ -44,7 +44,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 22分钟前</small>
+	<small> ============== 27分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607010814.shtml" target="boxun-mirror">时事聚焦：夏业良、王军涛谈李源潮大秘被抓/视频请看博讯热点：李源潮</a>
 </h2>
@@ -76,7 +76,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 24分钟前</small>
+	<small> ============== 29分钟前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/06/201606302040.shtml" target="boxun-mirror">习近平撂狠话：领导干部不干不净累党面临沟沟坎坎</a>
 </h2>
