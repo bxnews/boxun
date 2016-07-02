@@ -77,6 +77,21 @@
 <p>
 	<small> ============== 10小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607021816.shtml" target="boxun-mirror">独家：台湾误射导弹习近平指示如越线拦截击毁</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：台湾误射导弹 习近平指示如越线拦截击毁<br><font color="#000fC0"><small>(博讯北京时间2016年7月02日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607021816" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/07/201607021816china1.jpg" alt="独家：台湾误射导弹 习近平指示如越线拦截击毁"><br>    （台军昨误射导弹大陆军方紧张万分。）<br>    <br>    【博闻社北京消息】台湾军方罕见向大陆方向误射导弹，震惊两岸。本社从中共军方消息人士获悉，福建沿海前线驻军雷达的确已侦测到台方向大陆方向发射导弹，但未能侦测到落点；东部战区高度紧张，一度启动应急预案准备反击，司令部转往地下掩体。军委主席习近平亲自过问。东部战区前指接到指示，若台方导弹越过台海中线，立即应对摧毁。<br>    <br>    7月1号，台湾海军131舰队金江舰在高雄左营码头实施操演验收，在雄三飞弹系统测试时发生误射，该飞弹射向大陆方向，最后落入澎湖东吉东南方海域，直接贯穿炸毁一艘台湾渔船，导致一死三伤。台湾雷达站随即扫描到中国军方开启飞弹射控雷达，似乎准备反击。<br>    <br>    博闻社从东部战区军中获悉独家消息，台湾误射导弹后，中国大陆东部战区司令部全部进入地下指挥所或掩体。因为当时大陆军方雷达侦测到发射，但没有侦测到落在哪里，也就是说，不排除导弹越线，因此异常紧张。<br>    <br>    军方消息向博闻社透露，中央军委为此直接打电话到东部战区司令部询问，战区司令刘粤军视频连线向军委主席习近平汇报情况，习近平指示谨慎处理。消息指，东部战区接到的指令称，如果导弹越过海峡中线，应立即以反导系统给予摧毁。<br>    <br>    消息指，大陆军方目前仍在检讨为何未能侦测到导弹落点，以及正在判研如何堵塞漏洞。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/07/201607021816china2.jpg" alt="独家：台湾误射导弹 习近平指示如越线拦截击毁"><br>    （被台军导弹射穿的台湾渔船。）<br>    <br>    据台湾军方表示，在事件发生后，台军副参谋总长进入衡山指挥所预防大陆还击。<br>    <br>    博闻社今年5月曾独家披露，针对蔡英文当选中华民国总统，解放军在福建增加数个导弹营，装备东风DF21导弹。这些迹象显示，台海双方都在提升备战。<br>    <br>    有关大陆东部战区如何发现及应变的详情，博闻社视频(youtube)北京时间今晚将有详尽的解读和分析，欢迎大家点击收看。<br>    <br>    <a href="http://bowenpress.com/news/bowen_111367.html?variant=zh-hans" style="color:red;">点此链接</a> [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607021816" target="_new">支持此文作者/记者</a> <br><!--(Modified on 2016/7/02)--><!--bodyend-->       
+           (博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201607020319091.jpg http://upload.bx.tl/news/temp14/201607020319092.jpg--> 4201816       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/07/201607011918.shtml" target="boxun-mirror">台湾向大陆误射导弹击中渔船致1死3伤几酿战事</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -625,22 +640,6 @@
 <p>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201606230430" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201606221330001.jpg http://upload.bx.tl/news/temp14/201606221330002.jpg http://upload.bx.tl/news/temp14/201606221330003.jpg http://upload.bx.tl/news/temp14/201606221330004.jpg http://upload.bx.tl/news/temp14/201606221330005.jpg http://upload.bx.tl/news/temp14/201606221330006.jpg http://upload.bx.tl/news/temp14/201606221330007.jpg--> 30429       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/pubvp/2016/06/201606232056.shtml" target="boxun-mirror">从铜锣湾书店到域名之争中共外宣的“定点清除”术</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>从铜锣湾书店到域名之争 中共外宣的“定点清除”术<br><font color="#000fC0"><small>(博讯北京时间2016年6月23日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=pubvp201606232056" target="_new">支持此文作者/记者</a>)</small></font>
-</center>
-            <!--bodystart-->       <br>    <img src="http://www.boxun.com/news/images/2016/06/201606232056pubvp1.jpg" alt="从铜锣湾书店到域名之争 中共外宣的“定点清除”术"><br>    （铜锣湾书店事件是中共定点清除敌对意识形态的初试。）<br>    <br>    【博闻社】中共权力更迭似乎按部就班进行，但是对言论的严控却一成不变，甚至变本加厉；习近平上任至今，中国在全球所有新闻和言论自由度的各大排行榜上，都几乎垫底。但是，中共近几年对外争夺舆论阵地方面，却常常让人刮目相看。<br>    <br>    香港铜锣湾书店事件，很显然是中共对海外“敌对意识形态”实行“定点清除”的动作之一，只是有关部门自摆乌龙，没有设计好，导致破绽百出；最近又冒出新华网为所谓“域名侵权”与博讯网创始人韦石对簿公堂的事件，两者貌似不相干，其实都是一个目的，那就是抢夺海外话语权，即所谓“大国外宣”战略的重要组成部分。<br>    <br>    中共外宣的千篇一律和苍白无力，公信力早已经每况愈下。无病呻吟和矫揉造作的官媒，已经很难胜任对外吹鼓手的角色，只能对内继续忽悠亿万百姓；而海外中文书籍和新型媒体却层出不穷，令中共当局如坐针毡，恨之入骨。<br>    <br>    所以，斗不过你我就要消灭你，即“定点清除”就成为中共外宣的基本策略，禁书和禁网则是其主要手段；经过多年的周密跟踪和精心部署，中共选定了一批在海外有影响力，对其构成直接威胁的媒体、出版商，作为他们“定点清除”的目标。<br>    <br>    这就是铜锣湾书店和xinhua.news之争这两件事件的共同背景。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/06/201606232056pubvp2.jpg" alt="从铜锣湾书店到域名之争 中共外宣的“定点清除”术"><br>    （新华社与韦石争夺域名也是中共外宣“定点争夺”的一部分。）<br>    <br>    铜锣湾书店这个“反动书籍大本营”虽然成功地被“拔掉”，但是付出的代价不可谓不高：给中共留下一个跨国跨境绑架的污名，使邓小平开创的一国两制遭到重创，香港社会开始与北京离心离德，台湾更是越走越远。<br>    <br>    外界有理由相信，有关部门的这个动作，只是有关部门为了邀功请赏而自行其事，没有经过中共最高当局的许可。<br>    <br>    同样的，新华网为了争夺一个互联网域名，要将韦石诉诸法律的行为，显然也未经高层批准，充其量不过是换一种形式，想向高层表忠；新华网表面上振振有辞，实际上某种程度恰恰暴露了中共海外“禁言”的做派，犯了大错。<br>    <br>    因为邀功和表示效忠，中共各级部门常常拍马过头，弄巧成拙，结果适得其反，这样的例子不胜枚举。<br>    <br>    我们虽然暂时无法证实铜锣湾书店和博讯网，或者铜锣湾书店的多名股东和博讯网创始人韦石，是否已被列入上述中共海外“定点清除”名单；但是事件反映出中共要将打击敌对势力的“定点清除”方式，用于对付“敌对媒体”和“敌对出版商”。<br>    <br>    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_108735.html" style="color:red;">点此链接</a>）[博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=pubvp201606232056" target="_new">支持此文作者/记者</a> <br><!--(Modified on 2016/6/23)--><!--bodyend-->       
-           (博讯 boxun.com)<center><font size="2" color="#C0C0C0">(本文只代表作者或者发稿团体的观点、立场)</font></center>
-<!-- http://upload.bx.tl/news/temp14/201606230600051.jpg http://upload.bx.tl/news/temp14/201606230559481.jpg--> 3102056       
 <hr>
 <table width="620"><tr><td>
 <b></p>
