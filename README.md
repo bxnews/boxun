@@ -75,7 +75,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607021816.shtml" target="boxun-mirror">独家：台湾误射导弹习近平指示如越线拦截击毁</a>
 </h2>
