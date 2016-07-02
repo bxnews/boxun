@@ -90,7 +90,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607021821.shtml" target="boxun-mirror">独家：军队提薪幅度过高方案遭曝光被军委否决请看博讯热点：军队高层</a>
 </h2>
@@ -118,7 +118,7 @@
     “请注意军方舆论及军队智库、学者对这个问题的表述。＂军方知情者对博闻社指，"他们现在比较喜欢拿中国军人的薪金待与跟美军比，这其实是在</p>
 </td></tr></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/taiwan/2016/07/201607011918.shtml" target="boxun-mirror">台湾向大陆误射导弹击中渔船致1死3伤几酿战事</a>
 </h2>
