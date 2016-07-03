@@ -19,6 +19,35 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607030302.shtml" target="boxun-mirror">达赖喇嘛尊者到访犹他西藏人协会:谈西藏文化和宗教请看博讯热点：西藏问题</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>达赖喇嘛尊者到访犹他西藏人协会:谈西藏文化和宗教<br><font color="blue" size="2">请看博讯热点：<a href="/hot/tibet.shtml">西藏问题
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月03日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201607030302" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     原标题：达赖喇嘛尊者到访犹他西藏人协会<br>
+    <br>
+    美国犹他州盐湖城 2016年6月22日<br>
+    <br>
+    作者: 达赖喇嘛尊者办公室<br>
+    译者：小凡<br>
+    提供者：达赖喇嘛尊者北美代表办公室<br>
+    照片来源：达赖喇嘛尊者办公室<br>
+    <a href="http://www.dalailama.com/news/post/1412-his-holiness-the-dalai-lama-visits-utah-tibetan-association">英文原稿（དབྱིན་ཡིག་མ་རྩོམ།）</a><br>
+    <br>
+    耶稣基督后期圣徒教会的全球总部位于盐湖城。今天早晨尊者达赖喇嘛在乘车前往新建成的犹他藏人社区中心之前，特地向教会的三位长老拜访。到达藏人社区中心的尊者受到扎西雪巴（吉祥舞）舞者和手持传统西藏糌粑粉（吉祥品）的孩子们热情欢迎，协会主席洛桑次仁向他献上洁白的哈达。在尊者走向台上就坐，大厅内人们脸上洋溢着喜悦之情，他们纷纷微笑着与尊者握手，一群孩子们为尊者演唱歌曲。<br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607030302intl1.jpg" alt="达赖喇嘛尊者到访犹他西藏人协会:谈西藏文化和宗教"><p><br>
+    在报告中，洛桑此仁提到如何获得社区大楼的经过以及藏人协会目前关于教授藏人孩子藏语课遇到的困难――尽管如此，他们也有决心继续尝试下去。他的报告以尊者健康长寿的祝词结束。盐湖城市长Ben McAdams在发言中表示自己能够在尊者的活动中出席倍感荣幸，并宣布他代表一个具有慈悲心的社区群体，这个群体致力于帮助无家可归、年迈和其他需要帮助的人们。他说：<br>
+    <br>
+    “我们都有照顾彼此的能力。尊者您一直鼓励着我们把慈悲心付诸实际行动。”<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607030302intl2.jpg" alt="达赖喇嘛尊者到访犹他西藏人协会:谈西藏文化和宗教"></p>
+<p><br>
+    尊者在讲话中首先告诉犹他州的藏人同胞：“我今天想聊有关西藏文化和宗教，因为它们是我们藏人在命运沉浮中的生命力所在。在过去的1000多年中我们保存了自己的语言和文字。歌唱与舞蹈也是我们文化的一部分，但歌舞中没有太多可以与他人</p>
+<p>
+	<small> ============== 2分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607021357.shtml" target="boxun-mirror">秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉</a>
 </h2>
 <p><tr>
@@ -537,25 +566,6 @@
     <br>
     博闻社报道全文：<a href="http://bowenpress.com/news/bowen_109438.html">点击这里</a>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201606250447" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3520447       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/06/201606252142.shtml" target="boxun-mirror">两个视频打了王毅的嘴:比鬼子还凶、人不如狗请看博讯热点：警察、官员恶行</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>两个视频打了王毅的嘴:比鬼子还凶、人不如狗<br><font color="blue" size="2">请看博讯热点：<a href="/hot/jingcha.shtml">警察、官员恶行
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月25日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201606252142" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     这是博讯收到的两个视频，算是警察、城管对中共外交部长王毅的回应，不，是打了他的嘴，其实王毅的嘴每天被打。<br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/Fs9KaapxU9A" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="420" height="315" src="https://www.youtube.com/embed/btCxlG3RleY" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201606252142" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 3762142       
 <hr>
 <table width="620"><tr><td>
 <b></p>
