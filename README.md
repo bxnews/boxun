@@ -32,7 +32,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607041818.shtml" target="boxun-mirror">独家：深圳万科争夺战背后涉习近平家族？</a>
 </h2>
@@ -70,7 +70,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607040700.shtml" target="boxun-mirror">视频：徐文立谈当年送美国过程，和习近平执政等</a>
 </h2>
@@ -96,7 +96,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607040630.shtml" target="boxun-mirror">达赖喇嘛：比外在美更重要的是拥有一颗炽热的心请看博讯热点：西藏问题</a>
 </h2>
@@ -132,7 +132,7 @@
     <br>
     “所有这些宗教传统都提倡爱和同情心。它们更传授了宽容和宽恕。因为愤怒往往与贪婪相辅相成，又为了实践保护利他主义的修行, </td></tr></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607032214.shtml" target="boxun-mirror">博闻独家：中国舰载机电磁弹射试验获成功</a>
 </h2>
