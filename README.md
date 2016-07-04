@@ -19,6 +19,44 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607041818.shtml" target="boxun-mirror">独家：深圳万科争夺战背后涉习近平家族？</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：深圳万科争夺战背后涉习近平家族？<br><font color="#000fC0">(<small>博讯北京时间2016年7月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607041818" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607041818china1.jpg" alt="独家：深圳万科争夺战背后涉习近平家族？"><p>(王石。)<br>
+    <br>
+    【博闻社独家】深圳万科与宝能系之间的权力之争大战，被指背后黑幕重重。本社收到的举报指，宝能系背后主使是原华润置地董事长吴向华，吴自称与习近平家族有关，欲借此压地方政府支持宝能“倒王（石）”。但万科知情人士指，吴是诬陷习近平家族，别有用心。<br>
+    <br>
+    6月26日，深圳钜盛华及前海人寿(即宝能系)向万科董事会提请召开姑且股东大会，并提出罢免万科董事长王石，以及现任董事会10名董事及2名监事会成员的议案。<br>
+    <br>
+    消息人士向博闻社透露，深圳宝能姚振华背后策划者是原华润置地董事长吴向华。他在华润董事长宋林案被拘后，放出风声称，找到了一个自称与习家姐弟关系铁的人士吕长胜，在北京与深圳到处活动，想调度政府关系支持宝能。<br>
+    <br>
+    吴向华与吕长胜到处见地方领导，暗示宝能收购万科背后有习家利益，甚至有习近平本人首肯。本来按常理推断，就是一个地地道道的骗局，有关官员完全可以举报这两个人涉嫌造谣和诋毁习近平家族，但是不少人仍不明就里，信以为真。<br>
+    <br>
+    消息人士指，吕长胜原来曾经是打习家名大胆做事，曾经说习近平姐姐桥桥是其公司股东，收购万科一事曾与她商量并托她转信给习。这种谎话之大胆，为中共大力反贪腐以来所罕见。消息指吕有可能认识齐桥桥，但是不相信齐会介入此事，更不会参与谋篡万科财产。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607041818china2.jpg" alt="独家：深圳万科争夺战背后涉习近平家族？"></p>
+<p>（姚振华。）<br>
+    <br>
+    最近一段时间，万科股权之争事件愈演愈烈。港交所数据显示，深圳市钜盛华股份有限公司（简称钜盛华）12月10日在场内买入万科H股1.91亿股，每股均价19.33元，涉及资金36.92亿元；12月11日再次场内买入万科H股7864万股，每股均价19.728元，涉及资金15.51亿元，两天合计增持52.43亿元。对万科H股的持股比升至22.45%。<br>
+    <br>
+    12月7日，万科就曾发布第一大股东变更提示性公告，截至2015年12月4日，钜盛华通过资管计划在深圳证券交易所证券交易系统集中竞价交易买入公司A股股票549,091,001股，占公司总股本的4.969%。至此，钜盛华及其一致行动人前海人寿保险股份有限公司合计持有公司A股股票2,211,038,918股，占公司现在总股本的20.008%，为万科第一大股东。<br>
+    <br>
+    这是宝能系取代华润，再次成为万科的第一大股东。随即发生宝能动议要清洗王石以及万科原董事会的事件。<br>
+    <br>
+    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_111648.html" style="color:red;">点此链接</a>）
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607041818" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201607040320511.jpg http://upload.bx.tl/news/temp14/201607040320512.jpg--> 51818       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 10小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607040700.shtml" target="boxun-mirror">视频：徐文立谈当年送美国过程，和习近平执政等</a>
 </h2>
 <p><tr>
@@ -514,22 +552,6 @@
 <b></p>
 <p>
 	<small> ============== 6天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/06/201606271216.shtml" target="boxun-mirror">视频：冯建维谈水利部机构改革混乱、腐败内幕</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：冯建维谈水利部机构改革混乱、腐败内幕<br><font color="#000fC0">(<small>博讯北京时间2016年6月27日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201606271216" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     冯建维是水利系统前官员，目前旅居美国。本视频是记者西诺的专访。谈了水利部部长是否是巴拿马文件中的那个chen lei。<br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/82mwUd38Dus" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201606271216" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2031216       
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 7天前</small>
 </p>
 <table>
     <tr>
