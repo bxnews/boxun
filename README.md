@@ -19,6 +19,136 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607042338.shtml" target="boxun-mirror">令计划秘密审判内幕：宣判前才定刑期（附令案大事记）请看博讯热点：令计划</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>令计划秘密审判内幕：宣判前才定刑期（附令案大事记）<br><font color="blue" size="2">请看博讯热点：<a href="/hot/ljh.shtml">令计划
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607042338" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     令计划4日突然宣判，审判过程秘密进行。<a href-http:>博闻社2日即根据获得的信息做相关报道</a>准备，其中提到“中南海消息人士向博闻社驻京记者透露，令计划案上月中旬就已全部审理结束，虽然由天津法院具体主审，但因此案的特殊性和复杂性，所有审理过程均需经中共多个部门层层把关；而且因为出于所谓‘国家机密’考虑，中纪委和最高法院以及外交、统战和国安部门，更是‘全程监督’。”，说明秘密审判是因为涉及“国家机密”，而这次保密也到家，滴水不漏。博闻社因为继续核实而未发稿。<br>
+    <br>
+     在5月14日，博闻社就独家披露，<a href="http://bowenpress.com/news/bowen_89331.html" target="_NEW">独家:令计划案6月开审</a>。 
+<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
+<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+
+<!-- boxun.com_300x250_article-embed_chinese -->
+<div id="box006">
+<script type="text/javascript">
+
+</script>
+</div>
+
+
+     </td></tr></table>
+</td></tr></table>
+<br>
+                       <br>
+    从博闻社揭秘的秘密审判内幕看，令计划的量刑在宣判前还在犹豫。<br>
+    <br>
+    博讯在披露令计划内幕重大环节上一直准确无误。以下是过去4年间令计划及其家族、朋党重大事件回顾： <br>
+    <br>
+                           <img src="http://www.boxun.com/news/images/2014/12/201412230054china1.jpg"><br>
+        <br>
+        <b>2012年6月2日</b>：博讯披露<a href="/news/gb/china/2012/06/201206022302.shtml" target="_NEW">令计划之子法拉利高速车震死亡细节</a>，其中提到令计划的儿子北京3・18车祸死亡，调查发现和周永康、薄熙来有关。接着，<a href="/news/gb/china/2012/06/201206030058.shtml" target="_NEW">博讯披露了周、令、薄同盟关系细节</a>。其中提到，周永康、薄熙来通过已经被捕的商人徐明，一直讨好周永康和薄熙来，提供女人，生活糜烂。在8年期间，徐明安排提供了超过100女子给薄熙来，其中一些薄熙来和周永康共享。徐明则和她们的多数上床，并支付有关费用。<a href="/news/gb/china/2012/06/201206030058.shtml" target="_NEW">令计划和周永康对车祸的隐瞒使得令计划得以成为下届常委的候选人之一</a>。<br>
+        <img src="http://www.boxun.com/news/images/2014/12/201412230039china1.jpg"><br>
+        <br>
+        2012年6月14日：<a href="/news/gb/china/2012/06/201206140354.shtml" target="_NEW">令计划全票当选18大代表</a>。世界日报报道称，令计划被报导「全票当选」，并且出镜亮相，与周永康一样，用意似都在破除不利传言。<br>
+        <br>
+        <b>2012年9月02日</b>：<a href="/news/gb/china/2012/09/201209020932.shtml" target="_NEW">博讯预测令计划接任统战部部长，但进政治局有难度</a>。<br>
+        <br>
+        2012年9月3日：官方宣布，<a href="/news/gb/china/2012/09/201209031051.shtml" target="_NEW">令计划不再任中央办公厅主任职务,兼任中央统战部部长</a>。其最大看点是令计划提前卸任中办主任一职，显示其仕途不妙。同日，香港《南华早报》9月3日发表未署名记者文章，称令计划成为统战部部长是一个虚职，文章揭出令计划政途受阻的原因为其子的 "法拉利车祸"丑闻，并指出博讯同年6月的车祸报道属实。<br>
+        <br>
+        2012年10月中：<a href="/news/gb/china/2012/10/201210200053.shtml" target="_NEW">令计划之子车祸校花上个月被打一针后猝逝</a>。<br>
+        <br>
+        2012年11月5日：明镜报道<a href="/news/gb/china/2012/11/201211050841.shtml" target="_NEW">令计划妻子谷丽萍 和谷开来一样喜欢捞钱</a>。<br>
+        <br>
+        2012年11月14日：<a href="/news/gb/china/2012/11/201211141258.shtml" target="_NEW">博讯独家披露</a>，石油帮中石油董事长蒋洁敏因卷入令计划儿子车祸案被调查。（<a href="/news/gb/china/2013/09/201309030231.shtml" target="_NEW">南华早报2013年9月报道</a>证实博讯的曝光）<br>
+        <br>
+        2012年12月4日：<a href="/news/gb/china/2012/12/201212060417.shtml" target="_NEW">纽约时报报导</a>，前中国中央办公厅主任令计划对儿子令谷3月开法拉利轿车车祸死亡事件的掩饰，改变了11月中共18大领导层的接班。<br>
+        <br>
+        <b>2012年12月6日</b>：博讯报道<a href="/news/gb/china/2012/12/201212060039.shtml" target="_NEW">令计划的弟弟令完成逃出中国、小舅子谷源旭被捕</a>。<br>
+        <br>
+        2013年3月12日：<a href="/news/gb/china/2013/03/201303121319.shtml" target="_NEW">全国政协十二届一次会议闭幕，令计划在90票反对、22票弃权下当选副主席，得票率最低</a>。<br>
+        <br>
+        2013年8月17日：<a href="/news/gb/china/2013/08/201308170401.shtml" target="_NEW">博讯独家披露</a>，周永康的白手套吴兵交代，涉令计划等高层。<br>
+        <br>
+        2014年1月13日：<a href="/news/gb/china/2014/12/201412172124.shtml" target="_NEW">博讯杂志披露</a>，令计划请辞政协副主席。<br>
+        <br>
+        2014年6月19日：<a href="/news/gb/china/2014/06/201406200620.shtml" target="_NEW">官方宣布</a>，令计划之兄令政策接受调查。7月初，令政策被免去山西政协副主席。<br>
+        <br>
+        2014年7月13日：<a href="/news/gb/china/2014/07/201407130717.shtml" target="_NEW">芮成钢直播前被带走 </a>，此前明镜披露芮成钢和令计划妻子关系密切。<br>
+        <br>
+        2014年7月17日：<a href="/news/gb/china/2014/07/201407171630.shtml" target="_NEW">博讯独家披露</a>，令计划弟、侄逃亡美国，疑和网络谣言有关。报道指，令计划集团在北戴河会议前，利用和某海外组织多年的关系，散布有关高层的谣言，这些谣言包括贾庆林、曾庆红被抓，宋祖英和江泽民的关系等<br>
+        <br>
+        2014年7月25日：<a href="/news/gb/china/2014/07/201407250909.shtml" target="_NEW">南华早报报道</a>，令计划的姐夫、山西运城原副市长王健康已被拘留。同日，<a href="/news/gb/china/2014/07/201407260610.shtml" target="_NEW">令计划现身北京藏学研究中心“辟谣”</a>。<br>
+        <img src="http://www.boxun.com/news/images/2014/07/201407250909china1.jpg"><br>
+        <img src="http://www.boxun.com/news/images/2014/07/201407260610china1.jpg"><br>
+        <br>
+        2014年7月27日：博讯刊文，首提<a href="/news/gb/china/2014/07/201407270419.shtml" target="_NEW">令计划朋党</a>，文中列举六大罪状，应该是内部对令计划的定性。<br>
+        <br>
+        2014年7月30日：<a href="/news/gb/china/2014/07/201407300752.shtml" target="_NEW">博讯首揭乐视股东疑有令计划家股份</a>。<br>
+        <br>
+        2014年8月18日：<a href="/news/gb/china/2014/08/201408220436.shtml" target="_NEW">令计划姐夫王健康在消失50多天后再次出现在媒体</a>。<br>
+        <img src="http://www.boxun.com/news/images/2014/08/201408220436china1.jpg"><br>
+        <br>
+        2014年9月03日：<a href="/news/gb/china/2014/09/201409030936.shtml" target="_NEW">博讯报道</a>，山西前省委书记袁纯清被调查中。<br>
+        <br>
+        2014年9月19日：<a href="/news/gb/china/2014/09/201409191030.shtml" target="_NEW">博讯报道</a>，胡锦涛写信给中央谴责令计划。<br>
+        <br>
+        2014年10月03日：<a href="/news/gb/china/2014/10/201410032355.shtml" target="_NEW">博讯披露</a>，令计划家族涉的经济问题比想象的严重。<br>
+        <br>
+        2014年10月4日：博讯发表系列报道，<a href="/news/gb/china/2014/10/201410061622.shtml" target="_NEW">揭秘中宣部长蔡名照在令计划集团中扮演的角色</a>。<br>
+        <br>
+        2014年10月12日：博讯报道，<a href="/news/gb/china/2014/10/201410120810.shtml" target="_NEW">原中央外宣办干部高剑云移交司法，交待令计划朋党内幕</a>。<br>
+        <img src="http://www.boxun.com/news/images/2014/10/201410120810china1.jpg"><br>
+        <br>
+        2014年11月1日：<a href="/news/gb/china/2014/10/201410240030.shtml" target="_NEW">《博讯》11月号：四大金刚回京，令计划倒计时</a>。<br>
+        <br>
+        2014年10月26日：<a href="/news/gb/china/2014/10/201410261021.shtml" target="_NEW">博讯独家披露</a>，令计划之弟令完成因持假护照被美方遣返后被捕。<br>
+        <br>
+        2014年12月5日：中共中央政治局召开会议，分析研究2015年经济工作。中共中央总书记习近平主持会议，令计划再度出现在官方报道中，多维报道称“这或许也从一个侧面打破了此前关于令的种种传闻”。<br>
+        <br>
+        2014年12月7日：<a href="/news/gb/china/2014/12/201412071550.shtml" target="_NEW">博讯分析报道</a>，传令计划“六大罪”，和周永康的轨迹惊人相似。文章末尾提到，令计划应该数周内会有结果。<br>
+    <br>
+    2014年12月08日：博讯独家报道，<a href="/news/gb/china/2014/12/201412082209.shtml" target="_NEW">令完成招供：令计划收礼藏山西，搜出六卡车</a>。<br>
+        <br>
+        2014年12月12日：博讯报道，<a href="/news/gb/china/2014/12/201412121120.shtml" target="_NEW">李友等向令计划家人及朋党高额行贿</a>。<br>
+        <br>
+        2014年12月13日：<a href="/news/gb/china/2014/12/201412130304.shtml" target="_NEW">博讯报道</a>，方正总裁行贿5亿美元 李源潮令计划京都豪宅曝光。事后博讯获悉，此报道网络传播很广，博讯的报道引发高层震惊，加速了对令计划的收网。<br>
+        <br>
+        2014年12月19日：<a href="/news/gb/china/2014/12/201412211520.shtml" target="_NEW">警方荷枪实弹抓捕：方正集团上百人被控制，李友拒捕并被神秘人接走</a>。李友是日本豪宅送令计划、李源潮案的关键知情人。<br>
+        <br>
+        2014年12月22日：<a href="/news/gb/china/2014/12/201412222021.shtml" target="_NEW">官方宣布</a>，令计划涉嫌严重违纪 目前正接受组织调查。<br>
+    <br>
+    2014年12月24日:<a href="/news/gb/china/2014/12/201412241453.shtml" target="_NEW">薄熙来被双规后，令计划、周永康、李源潮秘密开会</a><br>
+    <br>
+    2015年02月06日:<a href="/news/gb/china/2015/02/201502060440.shtml" target="_NEW">京西宾馆总经理刘存水涉令计划案被查 令案更多细节曝光</a><br>
+    <br>
+    2015年02月11日:<a href="/news/gb/china/2015/02/201502111034.shtml" target="_NEW">加州豪宅曝光：令完成在加州房地产投资很大</a><br>
+    <br>
+    2015年03月03日:<a href="/news/gb/china/2015/03/201503030633.shtml" target="_NEW">《博讯》杂志：令完成卷巨资藏美，白手套曝光</a><br>
+    2015年07月19日:<a href="h/news/gb/china/2015/07/201507190022.shtml" target="_NEW">传令、周曾下令在美国暗杀博讯网创办人韦石等 </a><br>
+    2015年07月21日:<a href="/news/gb/china/2015/07/201507210921.shtml" target="_NEW">令计划宣布双开移交司法，接下来是郭伯雄</a><br>
+    2015年07月24日:<a href="/news/gb/china/2015/07/201507240943.shtml" target="_NEW">胡锦涛撇清和令计划关系 江泽民将去北戴河</a><br>
+    <br>
+    2015年07月25日:<a href="/news/gb/china/2015/07/201507250514.shtml" target="_NEW">周本顺落马内幕:服侍周永康介入令计划公子案</a><br>
+    <br>
+    2015年08月01日:<a href="/news/gb/china/2015/08/201508011323.shtml" target="_NEW">《博讯》杂志：令计划案公布后，令完成发声</a><br>
+    <br>
+    2015年08月17日:<a href="http://bowenpress.com/news/bowen_12553.html" target="_NEW">白宫警告北京在美非法「猎狐」 轰派间谍赴美威胁当事人</a><br>
+    <br>
+    2016年05月14日:<a href="http://bowenpress.com/news/bowen_89331.html" target="_NEW">独家:令计划案6月开审 死缓可能性大</a><br>
+    <br>
+    2016年07月04日:<a href="http://bowenpress.com/news/bowen_111786.html" target="_NEW">令计划因三罪并罚被判无期 受贿7708万元 </a><br>
+    <br>
+    2016年07月4日:<a href="http://bowenpress.com/news/bowen_111855.html" target="_NEW">内幕：习近平此时宣判令计划 为北戴河会议清理异己</a>
+</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607041825.shtml" target="boxun-mirror">令计划因三罪并罚被判无期受贿7708万元</a>
 </h2>
 <p><tr>
@@ -468,59 +598,6 @@
     <iframe width="420" height="315" src="https://www.youtube.com/embed/ls79llzpKiI" frameborder="0" allowfullscreen></iframe>
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201606280120" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201606271020511.jpg--> 2450120       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/06/201606282303.shtml" target="boxun-mirror">李源潮夫人现身中央音乐学院显示被抓传闻不实请看博讯热点：李源潮</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>李源潮夫人现身中央音乐学院 显示被抓传闻不实<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liyuanchao.shtml">李源潮
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年6月28日</small> <small>综合报道</small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    http://bowenpress.com/news/bowen_110350.html<br>
-     （今天从大陆微信圈传出李源潮夫人参加座谈会的照片。） 
-<table cellpadding="4" align="left" border="0" width="300" height="250"><tr><td>
-<table cellpadding="2" cellspacing="0" border="0"><tr><td align="center" style="line-height:18pt; font-family:宋体; font-size: 10pt;padding:10px;border-top:0">
-
-<!-- boxun.com_300x250_education-article-embed_chinese -->
-<div id="box011">
-<script type="text/javascript">
-
-</script>
-</div>
-
-     </td></tr></table>
-</td></tr></table>
-<br>
-                       <br>
-    【博闻社】中共政治局委员、国家副主席李源潮心腹大秘被抓，习近平王岐山剑指李源潮，震惊外界。有海外网站“顺杆爬”立即跟进报道，指李源潮的夫人高建进和司机也被有关部门带走调查，抢尽眼球。<br>
-    <br>
-    不过，本社获得的消息显示，李源潮本人和他的夫人高建进至少到发稿时为止，并没有出事被带走。<br>
-    <br>
-    有知情者在微信朋友圈贴出一张据称是今天中央音乐学院学生拍的照片，照片中，一班身穿毕业袍的学生围成一圈，旁边桌上摆着水果，似乎是在开座谈会。<br>
-    <br>
-    而在最左上方坐着一位年长的女士，齐耳短发，似乎是在听学生发言。消息指这是高建进老师今天参加学生的毕业座谈会。<br>
-    <br>
-    高建进1979年毕业于上海音乐学院外国音乐史专业本科，毕业后留校任教。后来曾任中央音乐学院附中理论学科主任。1998年，出任中央音乐学院音乐学系音乐教育教研组长。<br>
-    <br>
-    1999年起，担任中央音乐学院音乐教育系第一任系主任。高建进是南京师范大学特聘教授、中央音乐学院音乐教育系教授、博士生导师。她在中央音乐学院开设西方音乐教育史、教学法、教学实习等课程。<br>
-    <br>
-    李源潮与高建进育有一个儿子李海进，美国耶鲁大学毕业。<br>
-    <br>
-    消息显示，李源潮的问题涉及经济部分，很大部分原因与夫人的弟弟高全建有关。博闻社曾经披露，李源潮的妻弟从商，在长江三角洲，特别是江苏一带的政商两界，无人不知。除了利用姐夫的影响力从商赚钱，还利用姐夫掌管中组部的便利，帮官场跑官卖官。<br>
-    <br>
-    2013年2月，有海外媒体引述记者高瑜的消息称，李源潮的小舅子因赌博被中纪委扣查。据高瑜向德国之声透露，李源潮的小舅子在2011年，在澳门赌博输掉2000万人民币，被赌场扣住，事件惊动中纪委。<br>
-    <br>
-    据说，当时广州军区动用军款才把人赎回来；为堵上这笔军款窟窿，当局耗时一年。消息指，李源潮的小舅子仍被中纪委审查，李妻高建进也因涉案被中纪委问话23个小时。<br>
-    <br>
-    （博闻社原文报道：<a href="http://bowenpress.com/news/bowen_110350.html" style="color:red;">点此链接</a>）
- [博讯综合报道] <!--bodyend-->(博讯 boxun.com) <br><!----> 4732303       
 <hr>
 <table width="620"><tr><td>
 <b></p>
