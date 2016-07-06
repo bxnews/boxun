@@ -277,7 +277,7 @@
     2016年07月4日:<a href="http://bowenpress.com/news/bowen_111855.html" target="_NEW">内幕：习近平此时宣判令计划 为北戴河会议清理异己</a>
 </td></tr></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607041825.shtml" target="boxun-mirror">令计划因三罪并罚被判无期受贿7708万元</a>
 </h2>
