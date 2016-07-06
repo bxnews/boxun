@@ -58,7 +58,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607051818.shtml" target="boxun-mirror">紫禁城来鸿：庆建党演出习近平为何拒邀元老出席请看博讯热点：习近平观察</a>
 </h2>
