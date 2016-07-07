@@ -19,6 +19,68 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/finance/2016/07/201607072350.shtml" target="boxun-mirror">监控软件"手机潜伏者"军事化管理，政府公司领导信息曝光</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>监控软件"手机潜伏者"军事化管理，政府公司领导信息曝光<br><font color="#000fC0">(<small>博讯北京时间2016年7月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201607072350" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     博讯获悉，中国遵义有一家网络软件公司，他们为国安等部门开发监控软件，其中一款叫“手机潜伏者”（详细介绍在本文后），该公司已经实行军事化管理，他们自称“大数据+军队管理”，央视对此进行采访报道，过去两个月，当地政府领导和军区领导也亲自到该公司视察。可见其重要性。<br>
+    <br>
+    博文公司的创办者是何博文，当地知情者透露，此人在遵义本地非常嚣张，他在大学期间，因为攻击电信服务器导致遵义电信网络瘫痪3天，损失在几百万，此人通过疏通未受到任何刑事追究。从这个公司现在的情况看，当时他应该是承诺和政府合作。<br>
+    <br>
+    博讯据该公司内部人士透露，博文的软件除了提供给国安、军队，还私下监控当地政府和公司领导，照片、短信、电话语音一应俱全。以下就是样本：<br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance1.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"><p><br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance2.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance3.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance4.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance5.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <br>
+    图：该公司门口<br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance6.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <br>
+    该公司网站在对手机潜伏着III的介绍末尾，特别指出：“该产品只针对国家具有相关资质和通过国家有关部门授权的机关，不销售给任何个人，任何企业。该软件涉及用户隐私，所以不成为产品销售！” 博讯了解，这个软件自称只给政府使用，但民间秘密销售应该存在，因为有些人发现，自己手机上隐私图片被外泄。<br>
+    <br>
+    软件开发者：何博文<br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance7.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <br>
+    官方介绍是：<br>
+    <br>
+    　 职务：遵义博文软件开发有限公司董事长<br>
+    <br>
+    男，回族，思科网络工程师。2006-2008年在世界500强企业华为公司工作，任项目经理。后来抱着对家乡的热情，抱着对长辈尽孝道的思想，离开世界500强企业，回乡创业，于2008年年底创办了遵义博文软件开发有限公司，任董事长。<br>
+    <br>
+    曾为国家高铁总公司研发“高铁智能调度监控云平台”。为中国铁塔集团研发“基站健康度向量监控系统”。2015年公司产值突破5亿，进军互联网医疗行业。<br>
+    <br>
+    2016年5月30日下午，贵州省省委常委、贵州省军区司令员王盛槐，遵义市委常委、遵义军分区政治委员舒斌，遵义市副市长、公安局局长刘晓渝，南部新区领导到该公司观摩军队信息化：<br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance8.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance9.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance10.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <br>
+    2016年6月20日，遵义市市委常委、遵义市人民政府副市长王兴到该公司调研，陪同的还有遵义市工能委副主任杨茂麟，遵义市南部新区党工委委员、管委会副主任王远勋，遵义市红花岗区副区长陈灿。公司董事长何博文向王副市长一行详细汇报了公司的发展历程和目前的项目内容。说明政府对此公司重视：<br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance11.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
+<p><br>
+    <br>
+    手机潜伏者图示说明：<a href="/news/gb/finance/2016/07/201607072342.shtml">点击这里</a><br>
+    －
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=finance201607072350" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- /uploads/allimg/160608/2_160608124949_1.JPG /uploads/allimg/160530/2_160530164423_1.jpg /uploads/allimg/160530/2_160530164453_1.jpg /uploads/allimg/160530/2_160530164524_1.jpg /uploads/allimg/160620/2_160620120932_1.jpg--> 4632350       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607072058.shtml" target="boxun-mirror">紫禁城来鸿：中共修订境外“敌对势力”媒体名单</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -645,33 +707,6 @@
 </center>
             <!--bodystart-->       <br>    <div align="center"><img src="http://upload.bx.tl/news/temp14/201607010420081.png" width="600"></div>
 <br>    （误射的飞弹贯穿渔船造成1死3伤。）<br>    <br>    【博闻社】台湾军方发生罕见军事意外事件！海军131舰队金江舰今早（7月1号）实施甲类操演验收，在高雄左营码头进行雄三飞弹系统检查测试时发生误射，该飞弹射向大陆方向，最后落入澎湖东吉东南方海域，直接贯穿炸毁一艘台湾渔船，导致一死三伤。更为严重的是，台军此举差点酿成台海战事；台湾雷达站随即扫描到中国军方开启飞弹射控雷达，似乎准备反击。<br>    <br>    台湾《壹周刊》引述一名台湾海军雷达站的军官指出，由于中国雷达扫描几乎是涵盖台湾全岛，因此当雄三飞弹一发射离开金江舰后，随即被中国雷达侦测到，几乎不到一秒，台湾左营军港内的雷达站也随即扫到对岸福建省一带，出现异常雷达讯号。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/07/201607011918taiwan2.jpg" width="500" alt="台湾向大陆误射导弹击中渔船致1死3伤 几酿战事"><br>    （导弹射程示意图。）<br>    <br>    据了解目前中共解放军，部署在福建省等东南沿海、对准台湾的飞弹为短程地对地的DF15乙型、DF11甲型，及地对空的S300PMU2飞弹。<br>    <br>    台湾海军今误击一发雄三导弹至澎湖东吉东南方海域，同时一艘于附近海域作业的高雄籍“翔利升”渔船发生海难，酿1死3伤，国防部高层刚证实，不排除落弹贯穿渔船，详细原因还待相关鉴识单位调查。<br>    <br>    国防部发言人陈中吉证实，此事造成本国籍翔利升昊黄姓船长不幸身亡，其他船员送到台南市立医院都是轻伤已经出院，造成不幸身亡的船长与受伤船员，表达十二万分歉意，要求海军司令部与相关单位全力做好家属慰问与后续相关应该协助事项。<br>    <br>    翔利升渔船死伤名单：船长黄文忠（死亡），船员黄明泉（黄文忠儿子，轻伤），斐重文（越南籍，右小腿伤），卡拉（菲律宾籍，小腿受伤）。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/07/201607011918taiwan3.jpg" alt="台湾向大陆误射导弹击中渔船致1死3伤 几酿战事"><br>    （中共差点发射导弹还击。）<br>    <br>    黄明泉表示，爆炸时间是上午8时30分，当时他跟其他两名越南籍船员都在睡觉，突然间听到爆炸声音，身体遭到物品砸伤，立刻惊醒发现船舱起火，他赶紧查看，发现父亲头部重创，他赶紧打电话回家求援，其父当场死亡。<br>    <br>    翔利升号在12点30分已拖离澎湖事发现场，将拖往安平南堤四鲲</td></tr></p>
-<p>
-	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/07/201607010039.shtml" target="boxun-mirror">铜锣湾书店事件：汪珉黄奔解读香港危局/视频请看博讯热点：习近平观察</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>铜锣湾书店事件：汪珉黄奔解读香港危局/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/xijinping.shtml">习近平观察
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607010039" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【博闻社】媒体报道，铜锣湾书店事件源于出版领导人情人的书。而铜锣湾事件后，民间甚至包括香港传媒议论称，铜锣湾书店出版那些八卦是错误的做法，有人甚至认为“罪有应得”。似乎大家忽视了，美国等西方国家，这种八卦领导人和名人的杂志摆放在所有书报摊、食品店，它们的摆放普及率高于严肃报纸。以食品店为例，严肃报纸一般在某个地方，而八卦杂志则在每个收银台都有。<br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607010039china1.jpg" alt="铜锣湾书店事件：汪珉黄奔解读香港危局/视频"><p><br>
-    美国八卦到什么地步？希拉里三个乳房、她搞同性恋，奥巴马总统要和第一夫人离婚， 《National Enquirer》封面文章标题“Obama Divorce Bombshell!”（奥巴马要和大胸女离婚）。几乎各界在任总统都被被这些杂志编造离奇绯闻抢眼球，但这些杂志的生命力比纽时等不差，各大报纸巨额亏本时，这些杂志一直盈利。其实，在一个自由社会，打压这种八卦等于是侵犯自由言论，接下来会损害正常的报道。<br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607010039china2.jpg" alt="铜锣湾书店事件：汪珉黄奔解读香港危局/视频"></p>
-<p><br>
-    铜锣湾书店曾具有言论自由的香港，它的命运和被打压方式，不仅是大陆政治的一个缩影，更显示香港的现在和未来令人堪忧。<br>
-    <br>
-    本视频是西诺对民运人士汪珉、黄奔的采访。他们谈话有以美国八卦杂志来比较铜锣湾事件。<br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/XVEx3Gl0VGU" frameborder="0" allowfullscreen></iframe><br>
-     
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607010039" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4050038       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 7天前</small>
 </p>
