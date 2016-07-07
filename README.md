@@ -38,7 +38,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9小时前</small>
+	<small> ============== 10小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607060708.shtml" target="boxun-mirror">调查无界网"倒习公开信"未了张春贤重用嫌疑人</a>
 </h2>
