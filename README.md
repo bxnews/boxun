@@ -19,6 +19,21 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607072058.shtml" target="boxun-mirror">紫禁城来鸿：中共修订境外“敌对势力”媒体名单</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>紫禁城来鸿：中共修订境外“敌对势力”媒体名单<br><font color="#000fC0">(<small>博讯北京时间2016年7月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607072058" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607072058china1.jpg" alt="紫禁城来鸿：中共修订境外“敌对势力”媒体名单"><p><br>
+    （铜锣湾书店绝非中共打压敌对媒体的最后举动。）<br>
+    <br>
+    【博</p>
+</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607071226.shtml" target="boxun-mirror">原国家队医务组组长薛荫娴：运动员大规模用兴奋剂</a>
 </h2>
 <p><tr>
@@ -654,38 +669,6 @@
      
  [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607010039" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4050038       
 </p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 7天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/07/201607010814.shtml" target="boxun-mirror">时事聚焦：夏业良、王军涛谈李源潮大秘被抓/视频请看博讯热点：李源潮</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>时事聚焦：夏业良、王军涛谈李源潮大秘被抓/视频<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liyuanchao.shtml">李源潮
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月01日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607010814" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社】 本社日前独家披露现任国家副主席李源潮大秘被抓，而李源潮本人也已经被中纪委两次约谈。在本次博闻社《时事焦点》节目中，邀请了两位嘉宾解读有关报道，两位嘉宾是原北大教授、加图研究所客座教授夏业良和中国民主党主席王军涛博士。<br>
-    <br>
-    两位嘉宾一致认为，李源潮的危机源自政治斗争，而李源潮本人贪腐不严重，或者贪腐在高层人事变动中并不重要。<br>
-    <br>
-    夏业良谈话表示，李源潮和李克强是胡锦涛最信任的两人之一。李源潮的危机源自流传的一个政变名单，其中令计划做总书记、李源潮做总理。<br>
-    <br>
-    和李源潮有类似背景的王军涛称，李源潮的同班同学说李源潮是心智健全的人。他正派、稳重。王军涛曾从李源潮的品德和能力上看好他。李源潮是组织部长，他是团派的核心人物，外界曾认为李源潮布局团派。<br>
-    <br>
-    王军涛认为：令计划是媒体造出来的政变主谋，是为了清洗团派。严格上说，李源潮不属于团派。 清理李源潮的亲信，是选择性反腐。他和令计划曾有一个计划，通过海选将习近平选下台。<br>
-    <br>
-    夏业良教授还谈到习近平异军突起接班内幕，他分析，刘源最有资格成为接班人，但刘源自己不争气。大概2006年在中央党校摸底投票，习近平得票最高。这次摸底投票应该得到江泽民、曾庆红的支持和运作。<br>
-    <br>
-    两位嘉宾还谈了习近平面临的困境。王军涛认为，李源潮、令计划的历史地位，取决于习近平是否搞民主改革。<br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/hgfVxNpmZg4" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    博闻社关于李源潮更多报道：<a href="http://bowenpress.com/?s=%E6%9D%8E%E6%BA%90%E6%BD%AE">点击这里</a>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607010814" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4960814       
 <hr>
 <table width="620"><tr><td>
 <b></p>
