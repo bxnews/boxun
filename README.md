@@ -234,7 +234,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607072058.shtml" target="boxun-mirror">紫禁城来鸿：中共修订境外“敌对势力”媒体名单</a>
 </h2>
@@ -780,7 +780,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607021816.shtml" target="boxun-mirror">独家：台湾误射导弹习近平指示如越线拦截击毁</a>
 </h2>
