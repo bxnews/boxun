@@ -106,7 +106,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1小时前</small>
+	<small> ============== 2小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607081135.shtml" target="boxun-mirror">视频：中国医疗之殇习近平借“莆田系”打击李克强请看博讯热点：习近平观察</a>
 </h2>
