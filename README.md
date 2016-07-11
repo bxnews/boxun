@@ -19,6 +19,18 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607110139.shtml" target="boxun-mirror">房地产崩盘会引发中国经济崩？杨建利博士夏明教授如是说</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>房地产崩盘会引发中国经济崩？杨建利博士夏明教授如是说<br><font color="#000fC0">(<small>博讯北京时间2016年7月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607110139" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->     杨建利更多文章请看<a href="http://blog.boxun.com/my-cgi/post/display_all.cgi?cat=yangjianli">杨建利</a>专栏<br>
+     <br>
+    博闻社讯 近期中国媒体上有关房地产拐点来临，快要崩盘的预言不绝于耳，之前媒体多有报道：引用柴静的调查数据，目前中国空置房可容纳34亿人居住的鬼屋或者空置房。后我来查了一下可能是新规划城区可容纳34亿人居住。那么不管是哪个数字，都相当惊人。独立经济学家，玫瑰石顾问公司董事谢国忠在6月份说： 中 国的下一轮房地产下滑很快就要来临，6</td></tr></p>
+<p>
+	<small> ============== 4分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/07/201607102143.shtml" target="boxun-mirror">冯崇义：震动世界的“709大抓捕”一周年感言</a>
 </h2>
 <p><tr>
@@ -762,64 +774,6 @@
 <b></p>
 <p>
 	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/07/201607021357.shtml" target="boxun-mirror">秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉<br><font color="#000fC0">(<small>博讯北京时间2016年7月02日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607021357" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     <img src="http://www.boxun.com/news/images/2016/07/201607021357china1.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"><p><br>
-    秦永敏是中国著名的异议人士、中国民主党主要创党成员之一、中国民间网络团队「玫瑰团队」和中国人权观察（注册中）创办人、主要负责人，在遭遇强迫失踪长达1年零4个月之后于今年的5月12日被证实当局以煽动颠覆国家政权罪将其关押在武汉第二看守所，现已被提起公诉。<br>
-    <br>
-    附：秦永敏先生简介<br>
-    <br>
-    从1970年到2016年，秦永敏在45年间被非法抓捕、非法拘禁45次，失去自由超过24个寒暑，成为改革开放以来中国坐牢时间最长的政治犯，并被世人称为“中国的良心”和“坐牢皇”，以下是他的简介。  <br>
-    <br>
-    秦永敏，男，1953年8月11日出生于湖北省武汉市，祖籍湖北鄂城，是一位中国民间政治学者，著名异议人士，中国民主党的创建人之一。秦永敏作为中国大陆广为人知的几个主要政治犯之一，他的理念是中国应该认可普世价值，回归世界文明主流。为此，中国必须走“全民和解，人权至上，良性互动，和平转型”的道路。    <br>
-    <br>
-    1981年他因此在中共中央下达“81•9”文件――《关于取缔非法组织和非法刊物的通知》后被绑架抓捕，并于一年后的1982年3月，和全国十余名“民主墙运动”领袖一起报邓小平亲自审批定罪，被当局以“反革命宣传煽动罪”判处有期徒刑8年。<br>
-    <br>
-    1993年11月14日，秦永敏在北京起草了并发起了《和平宪章》运动，为中国的稳健反对派提出了“全民和解，人权至上，良性互动，和平转型”的战略方针。为此，秦永敏被抓回武汉劳教两年，《和平宪章》（草案）也成为1949年后中国大陆第一个民主运动纲领。 <br>
-    <br>
-    1998年9月，秦永敏领导成立了中国民主党湖北省党部，并任发言人。他因此被拘捕，被当局以“颠覆国家政权罪”判处有期徒刑12年，追加剥夺政治权利3年。随后，秦永敏被送进湖北省汉阳监狱。1999年，狱中的秦永敏被中国民主党人推选为四个联合主席之一，并和徐文立、王有才共获1999年诺贝尔和平奖提名。<br>
-    <br>
-    2013年伊始，秦永敏与刘兴联、潘露等人组建网络公民团队――玫瑰团队，连续发表致中共新任总书记习近平的公开信，建议中共十八大新的领导班子启动朝野对话机制，进行政治体制改革，推行和平转型，实现民主宪政。与此同时，秦永敏在全国范围内推进建设性反对派的大联合，并把这视为中国和平转型的基石。玫瑰团队的十六个字宗旨是――“全民和解、人权至上、良性互动、和平转型”。 <br>
-    <br>
-    2014年1月，秦永敏和100多名创始举办人共同发起中国人权观察，暂任首届理事长，开始走上合法注册的道路。由于中国大陆特殊的制度环境，中国人权观察的注册道路非常坎坷，截止2015年7月先后五次去北京民政部注册，一直被当局以各种理由拒绝。                      <br>
-    <br>
-    2015年1月9日秦永敏被武汉当局以“接受外媒采访及写文章过多”为由用空白拘留证行政拘留，1月19日秦夫人赵素利女士也从家中被当局带走。2015年6月19日，中国人权观察（注册中）秘书长刘兴联先生也被武汉公安局以“煽动颠覆国家政权罪”逮捕。2015年9月起，秦永敏被武汉公安局以“煽动颠覆国家政权罪”秘密逮捕，一直关押在武汉市第二看守所，秘密代号701。2016年6月17日，秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉。 <br>
-    <br>
-    2016年7月2日<br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china2.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china3.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china4.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china5.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china6.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china7.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china8.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china9.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china10.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607021357china11.jpg" alt="秦永敏再次被武汉当局以“煽动颠覆国家政权罪”起诉"></p>
-<p><br>
-    `
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607021357" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- http://upload.bx.tl/news/temp14/201607012258461.jpg http://upload.bx.tl/news/temp14/201607012258141.jpg http://upload.bx.tl/news/temp14/201607012258142.jpg http://upload.bx.tl/news/temp14/201607012258143.jpg http://upload.bx.tl/news/temp14/201607012258144.jpg http://upload.bx.tl/news/temp14/201607012258145.jpg http://upload.bx.tl/news/temp14/201607012258146.jpg http://upload.bx.tl/news/temp14/201607012258147.jpg http://upload.bx.tl/news/temp14/201607012258148.jpg http://upload.bx.tl/news/temp14/201607012258149.jpg http://upload.bx.tl/news/temp14/2016070122581410.jpg--> 1781357       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 9天前</small>
 </p>
 <table>
     <tr>
