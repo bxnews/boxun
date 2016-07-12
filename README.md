@@ -132,6 +132,19 @@
 <p>
 	<small> ============== 11小时前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607121914.shtml" target="boxun-mirror">海牙常设仲裁法庭“南海仲裁案裁决”全文</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>海牙常设仲裁法庭“南海仲裁案裁决”全文<br><font color="#000fC0">(<small>博讯北京时间2016年7月12日</small> <small>综合报道</small>)</font>
+</center>
+                <!--bodystart-->      <br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607121914intl1.jpg" alt="海牙常设仲裁法庭“南海仲裁案裁决”全文 "><p><br><br><b>南海仲裁案（菲律宾共和国 v. 中华人民共和国）海牙，2016年7月12日</b><br>
+    仲裁庭发布裁决</p>
+</td></tr></p>
+<p>
+	<small> ============== 11小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607120605.shtml" target="boxun-mirror">独家：南海仲裁料不利习近平下令做好开战准备请看博讯热点：南沙、西沙争端</a>
 </h2>
 <p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
@@ -807,32 +820,6 @@
                 <!--bodystart-->     【博闻社独家】北京消息人士告诉博闻社，中共政治局委员、国家副主席李源潮上周六被宣布限制在家，就其本人和家人所涉的问配合专案组调查。消息指，北戴河会议将商议对李的处理方式，估计秋天的六中全会会作出处理决定。<br>
     <br>
      消息人士表示，对李源潮的限制措施还没有达到「双规」地步，但事实上他已处于被「停职审查」的水平。按常规，中办应该已经安排更换李的秘书、司机和警</td></tr></p>
-<p>
-	<small> ============== 8天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607040700.shtml" target="boxun-mirror">视频：徐文立谈当年送美国过程，和习近平执政等</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>视频：徐文立谈当年送美国过程，和习近平执政等<br><font color="#000fC0">(<small>博讯北京时间2016年7月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201607040700" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     徐文立更多文章请看<a href="http://blog.boxun.com/my-cgi/post/display_all.cgi?cat=xuwl">徐文立</a>专栏<br>
-    【博闻社】 7月2日，纽约法拉盛举办卢沟桥七七事变79周年纪念活动，徐文立在会上讲话，谈了90年代中美双方达成默契，将已经被监禁12年的徐文立送到美国。<br>
-    <br>
-    以下视频为西诺拍摄编辑。<br>
-    <br>
-    在第二个视频和读者互动中，徐文立谈了习近平执政。<br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/0JxTLa2Veis" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/GMu_qzRwkpc" frameborder="0" allowfullscreen></iframe><br>
-    <br>
-    <iframe width="560" height="315" src="https://www.youtube.com/embed/oH9cplyj0hg" frameborder="0" allowfullscreen></iframe>
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201607040700" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 4430700       
-<hr>
-<table width="620"><tr><td>
-<b></p>
 <p>
 	<small> ============== 8天前</small>
 </p>
