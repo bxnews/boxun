@@ -94,7 +94,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607120605.shtml" target="boxun-mirror">独家：南海仲裁料不利习近平下令做好开战准备请看博讯热点：南沙、西沙争端</a>
 </h2>
