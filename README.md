@@ -130,7 +130,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607121914.shtml" target="boxun-mirror">海牙常设仲裁法庭“南海仲裁案裁决”全文</a>
 </h2>
@@ -143,7 +143,7 @@
     仲裁庭发布裁决</p>
 </td></tr></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607120605.shtml" target="boxun-mirror">独家：南海仲裁料不利习近平下令做好开战准备请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -154,7 +154,7 @@
 </center>
                 <!--bodystart-->      【博闻社北京特别报道】来自北京军方消息人士对博闻社透露，针对南海仲裁可能出现的不利结果，以及美国可能借有关裁决在南海掀起新一轮挑衅，中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍</td></tr></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607111946.shtml" target="boxun-mirror">独家：南海仲裁前夕中国海军召退役军人返回服役请看博讯热点：南沙、西沙争端</a>
 </h2>
