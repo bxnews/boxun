@@ -46,7 +46,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7小时前</small>
+	<small> ============== 8小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607120558.shtml" target="boxun-mirror">达赖喇嘛尊者在科罗拉多州和新墨西哥州亲切会见当地藏人请看博讯热点：西藏问题</a>
 </h2>
