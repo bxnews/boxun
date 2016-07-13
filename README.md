@@ -123,7 +123,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607121731.shtml" target="boxun-mirror">国际法庭裁定：中国南海九段线违法！请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -488,7 +488,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607072058.shtml" target="boxun-mirror">紫禁城来鸿：中共修订境外“敌对势力”媒体名单</a>
 </h2>
