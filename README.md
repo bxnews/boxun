@@ -19,6 +19,35 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607130302.shtml" target="boxun-mirror">视频:解读南海仲裁,习近平下令“准备开战”，能打赢吗？请看博讯热点：南沙、西沙争端</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频:解读南海仲裁,习近平下令“准备开战”，能打赢吗？<br><font color="blue" size="2">请看博讯热点：<a href="/hot/south_china_sea.shtml">南沙、西沙争端
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月13日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=intl201607130302" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社】南海仲裁结果出炉，不出所料对中方不利。中国断然拒绝承认仲裁结果。一方面则坚持9段线内领海主张，加大舆论攻势，抨击美国设“局”阻碍中国崛起，滥用“海洋法”上演一出闹剧，一边高调进行大规模海上军事演习，甚至征召海军退役士兵返回部队。<br>
+    <br>
+    据博闻社消息，习近平下达“准备作战”的命令。中国南部战区进入一级戒备，海军南海舰队及空军，火箭军进入临战状态。<br>
+    <br>
+    美国方面则声称必须尊重仲裁结果，坚持航行自由；保卫地区和平；同时重兵压境，派出两艘航母，10数艘先进战舰在南海和菲律宾展开军事演习，并极有可能以仲裁为理由，再次“自由进出”航行于中方控制的南海相关岛礁海域、空域范围，甚至可能进入12海里领海范围，挑战中方的主权和领海主张。<br>
+    <br>
+    南海危机一触即发之际。 菲律宾方面连续放出缓和信号，新总统声称要与中国双边谈判，后又称“即使裁决赢了也没办法赶走中国人”，美国方面也有传出“仲裁将是一张废纸”。 一时间局势错综复杂，波谲云诡。<br>
+    <br>
+    南海战事会不会暴发，中国和美国的意图和底线究竟是怎样，南海9段线内是不是“自古以来”的领海，南海危机又会如何收场？<br>
+    <br>
+    今天，博闻视频请到了两位嘉宾，分别是纽约哈德逊研究所客座研究员韩连潮博士，和美国嘉图研究所的夏业良教授，来为您解读南海仲裁以及仲裁后中美两国在南海剑拔弩张的情况。<br>
+    <br>
+    两位嘉宾的真知灼见，将为你打开了解南海风云的另一扇窗口。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/oP1Bzb3yPj8" frameborder="0" allowfullscreen></iframe>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=intl201607130302" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 1140302       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 5分钟前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607120558.shtml" target="boxun-mirror">达赖喇嘛尊者在科罗拉多州和新墨西哥州亲切会见当地藏人请看博讯热点：西藏问题</a>
 </h2>
 <p><tr>
@@ -807,19 +836,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 9天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/07/201607042355.shtml" target="boxun-mirror">独家快讯：李源潮上周六起被限制在家配合调查请看博讯热点：李源潮</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家快讯：李源潮上周六起被限制在家配合调查<br><font color="blue" size="2">请看博讯热点：<a href="/hot/liyuanchao.shtml">李源潮
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月04日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607042355" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     【博闻社独家】北京消息人士告诉博闻社，中共政治局委员、国家副主席李源潮上周六被宣布限制在家，就其本人和家人所涉的问配合专案组调查。消息指，北戴河会议将商议对李的处理方式，估计秋天的六中全会会作出处理决定。<br>
-    <br>
-     消息人士表示，对李源潮的限制措施还没有达到「双规」地步，但事实上他已处于被「停职审查」的水平。按常规，中办应该已经安排更换李的秘书、司机和警</td></tr></p>
 <p>
 	<small> ============== 9天前</small>
 </p>
