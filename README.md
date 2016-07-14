@@ -27,7 +27,7 @@
 </center>
             <!--bodystart-->       <br>    <small>中国对南沙发展有宏图</small><br>    <img src="http://www.boxun.com/news/images/2016/07/201607140418china1.jpg" alt="南海“无战事” 中南海“有预谋” 中共南海发展战略曝光"><br>    <br>    博</td></tr></p>
 <p>
-	<small> ============== 10小时前</small>
+	<small> ============== 11小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607130302.shtml" target="boxun-mirror">视频:解读南海仲裁,习近平下令“准备开战”，能打赢吗？请看博讯热点：南沙、西沙争端</a>
 </h2>
