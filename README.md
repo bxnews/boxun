@@ -852,7 +852,7 @@
     2016年07月4日:<a href="http://bowenpress.com/news/bowen_111855.html" target="_NEW">内幕：习近平此时宣判令计划 为北戴河会议清理异己</a>
 </td></tr></p>
 <p>
-	<small> ============== 11天前</small>
+	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
