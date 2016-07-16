@@ -41,7 +41,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607161702.shtml" target="boxun-mirror">土耳其政变宣布失败5名将军和29名上校被解除职务请看博讯热点：突发事件</a>
 </h2>
@@ -112,7 +112,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607151931.shtml" target="boxun-mirror">疑用“台独”艺人引爆舆论赵薇新电影撤换主角戴立忍</a>
 </h2>
