@@ -41,7 +41,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5小时前</small>
+	<small> ============== 6小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607151931.shtml" target="boxun-mirror">疑用“台独”艺人引爆舆论赵薇新电影撤换主角戴立忍</a>
 </h2>
