@@ -63,7 +63,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607181917.shtml" target="boxun-mirror">中共自由派的舆论阵地《炎黄春秋》宣布停刊请看博讯热点：深度报道</a>
 </h2>
@@ -112,7 +112,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607171857.shtml" target="boxun-mirror">紫禁城来鸿：土耳其未遂政变拉响中南海警钟请看博讯热点：突发事件</a>
 </h2>
