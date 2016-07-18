@@ -63,7 +63,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607181917.shtml" target="boxun-mirror">中共自由派的舆论阵地《炎黄春秋》宣布停刊请看博讯热点：深度报道</a>
 </h2>
@@ -112,7 +112,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607171857.shtml" target="boxun-mirror">紫禁城来鸿：土耳其未遂政变拉响中南海警钟请看博讯热点：突发事件</a>
 </h2>
@@ -179,7 +179,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 1天前</small>
+	<small> ============== 2天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607160003.shtml" target="boxun-mirror">大雨暴露贪污，武汉市委书记阮成发被立案调查</a>
 </h2>
@@ -203,7 +203,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607161702.shtml" target="boxun-mirror">土耳其政变宣布失败5名将军和29名上校被解除职务请看博讯热点：突发事件</a>
 </h2>
@@ -274,7 +274,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607151931.shtml" target="boxun-mirror">疑用“台独”艺人引爆舆论赵薇新电影撤换主角戴立忍</a>
 </h2>
@@ -332,7 +332,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607140418.shtml" target="boxun-mirror">南海“无战事”中南海“有预谋”中共南海发展战略曝光</a>
 </h2>
@@ -342,7 +342,7 @@
 </center>
             <!--bodystart-->       <br>    <small>中国对南沙发展有宏图</small><br>    <img src="http://www.boxun.com/news/images/2016/07/201607140418china1.jpg" alt="南海“无战事” 中南海“有预谋” 中共南海发展战略曝光"><br>    <br>    博</td></tr></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607130302.shtml" target="boxun-mirror">视频:解读南海仲裁,习近平下令“准备开战”，能打赢吗？请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -371,7 +371,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607120558.shtml" target="boxun-mirror">达赖喇嘛尊者在科罗拉多州和新墨西哥州亲切会见当地藏人请看博讯热点：西藏问题</a>
 </h2>
@@ -484,7 +484,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607121914.shtml" target="boxun-mirror">海牙常设仲裁法庭“南海仲裁案裁决”全文</a>
 </h2>
@@ -497,7 +497,7 @@
     仲裁庭发布裁决</p>
 </td></tr></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607120605.shtml" target="boxun-mirror">独家：南海仲裁料不利习近平下令做好开战准备请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -508,7 +508,7 @@
 </center>
                 <!--bodystart-->      【博闻社北京特别报道】来自北京军方消息人士对博闻社透露，针对南海仲裁可能出现的不利结果，以及美国可能借有关裁决在南海掀起新一轮挑衅，中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍</td></tr></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607111946.shtml" target="boxun-mirror">独家：南海仲裁前夕中国海军召退役军人返回服役请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -545,7 +545,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607110139.shtml" target="boxun-mirror">房地产崩盘会引发中国经济崩？杨建利博士夏明教授如是说</a>
 </h2>
@@ -557,7 +557,7 @@
      <br>
     博闻社讯 近期中国媒体上有关房地产拐点来临，快要崩盘的预言不绝于耳，之前媒体多有报道：引用柴静的调查数据，目前中国空置房可容纳34亿人居住的鬼屋或者空置房。后我来查了一下可能是新规划城区可容纳34亿人居住。那么不管是哪个数字，都相当惊人。独立经济学家，玫瑰石顾问公司董事谢国忠在6月份说： 中 国的下一轮房地产下滑很快就要来临，6</td></tr></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/07/201607102143.shtml" target="boxun-mirror">冯崇义：震动世界的“709大抓捕”一周年感言</a>
 </h2>
@@ -596,7 +596,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607090411.shtml" target="boxun-mirror">向徐才厚买官吐出赃款1.3亿中共空军前政委田修思上将落马</a>
 </h2>
@@ -685,7 +685,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607091748.shtml" target="boxun-mirror">紫禁城来鸿：中共元老集体告别陈锦华释放的信号</a>
 </h2>
@@ -696,7 +696,7 @@
             <!--bodystart-->        <br>    <div align="center"><img src="http://upload.bx.tl/news/temp14/201607090250371.png" width="600"></div>
 <br>    （习近平率全体常委告别陈锦华。）<br>    <br>    【博闻社北京报道】继博闻社日前披露习近平拒绝中共元老出席党的“生日Party”后，中共元老们终于不再失联，再度曝光。昨日（北京时间7月8日）习近平借陈锦华葬礼，向外界释放出了中共政坛的最新信号。<br>    <br>    消息人士指出，生前位至全国政协副主席的陈锦华的送别仪式，规格之高，令人吃惊；中共7常委全部亲临八宝山现场礼堂，中共前任国家主席江泽民为其“敬献花圈”，而胡锦涛更是亲自前往并向其遗体亲鞠三躬。<br>    <br>    博闻社记者特别注意到中共官方对陈锦华的盖棺论定是：“中国共产党的优秀党员，久经考验的忠诚的共产主义战士，我国经济建设战线的杰出领导人”。<br>    <br>    消息人士向博闻社表示，按中国传统和中共常规，符合标准的中共领导人在去世后的第7日，要举行正式的遗体送别仪式。自从陈锦华因病于7月2日在北京逝世之后，作为中办主任的栗战书就先向习近平征求送别陈锦华仪式的相关事宜，习近平当时并未明确表态。<br>    <br>    <img src="http://www.boxun.com/news/images/2016/07/201607091748china2.jpg" alt="紫禁城来鸿：中共元老集体告别陈锦华释放的信号"><br>    （陈锦华生前为副国级领导人，现任常委送别为正常规格。）<br>    <br>    消息人士指出，陈锦华的病情恶化程度无法预料，而庆祝党的生日活动早已安排；面对陈锦华去世的突发状况，习近平直到令计划案对外宣判后，才告知栗战书具体部署陈锦华遗体告别仪式。<br>    <br>    博闻社此前报道，习近平拒绝了所有中共元老出席建党95周年的音乐会和庆祝大会的提议；而令计划的最终量刑，习近平又特别听取了胡锦涛的意见。虽然暂无法确认习近平让中办精心安排陈锦华送别仪式的背后是否与博闻社的上述报道有关；但是胡锦涛的高调出席，似乎又是对习近平兑现免除令计划一死“承诺”的某种肯定和力挺。<br>    <br>    另一方面，消息人士向博闻社证实，与胡锦涛相比，江泽民尽管没有真人现身，但是“敬献花圈”同样意味深长，至少是其对如此长时间悄无声息潜水和隐身的主动回应；而官方公告将陈锦华视为“经济建设战线的杰出领导人”，则暗含了对总理李克强主抓的中国经济现状的不满情绪。<br>    <br>    匪夷所思的是，尽管陈锦华生前许多“老领导和老同志”都出席了其遗体告别仪式，但是包括中共前任三代总理李鹏、朱</td></tr></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607081135.shtml" target="boxun-mirror">视频：中国医疗之殇习近平借“莆田系”打击李克强请看博讯热点：习近平观察</a>
 </h2>
@@ -751,7 +751,7 @@
     <br>
     公开的资料显示，莆田系在中共体制内最重要的支持者，是同为莆田人的前国务委员陈至立。陈至立担任国务委员期间分管教科文</td></tr></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/finance/2016/07/201607072350.shtml" target="boxun-mirror">监控软件"手机潜伏者"军事化管理，政府公司领导信息曝光</a>
 </h2>
@@ -828,7 +828,7 @@
     【博</p>
 </td></tr></p>
 <p>
-	<small> ============== 11天前</small>
+	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
