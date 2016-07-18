@@ -114,6 +114,17 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607182339.shtml" target="boxun-mirror">独家：“709大抓捕”案近日将以“颠覆国家政权罪”宣判</a>
+</h2>
+<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>独家：“709大抓捕”案近日将以“颠覆国家政权罪”宣判<br><font color="#000fC0"><small>(博讯北京时间2016年7月18日 首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607182339" target="_new">支持此文作者/记者</a>)</small></font>
+</center>
+            <!--bodystart-->        <br>    <div align="center"><img src="http://upload.bx.tl/news/temp14/201607180840541.png" width="600"></div>
+<br>    （709大抓捕完全是中共高层的决策。）<br>    <br>    【博闻社独家】来自北京司法界的消息人士对本社透露，引起外界高度关注的「709」大抓捕案，源自中共最高层的指示，其中四名被捕人士日前已在天津起诉，亦是根据最高层指示执行；本案近日宣判，罪名将是颠覆国家政权罪；其他涉案者亦将陆续开审，根据指示，709案要在近期陆续开审，8月底左右结束。<br>    <br>    2016年7月15日，天津市人民检察院第二分院经审查决定，分别对周世锋、胡石根、翟岩民、勾洪国以涉嫌颠覆国家政权罪向天津市第二中级人民法院提起公诉。这是当局之前对赵威取保候审后对709案的又一重大行动。<br>    <br>    北京司法界知情人士对本社指，对709案进行审判的指示直接来自中共最高层，高层对本案十分重视，视之为捍</td></tr></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607171857.shtml" target="boxun-mirror">紫禁城来鸿：土耳其未遂政变拉响中南海警钟请看博讯热点：突发事件</a>
 </h2>
 <p><tr>
@@ -812,21 +823,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/07/201607072058.shtml" target="boxun-mirror">紫禁城来鸿：中共修订境外“敌对势力”媒体名单</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>紫禁城来鸿：中共修订境外“敌对势力”媒体名单<br><font color="#000fC0">(<small>博讯北京时间2016年7月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607072058" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      <br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072058china1.jpg" alt="紫禁城来鸿：中共修订境外“敌对势力”媒体名单"><p><br>
-    （铜锣湾书店绝非中共打压敌对媒体的最后举动。）<br>
-    <br>
-    【博</p>
-</td></tr></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
