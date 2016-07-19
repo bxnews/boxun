@@ -43,7 +43,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607181519.shtml" target="boxun-mirror">郭伯雄案已判决将于八一公布美国籍女儿涉案请看博讯热点：郭伯雄</a>
 </h2>
