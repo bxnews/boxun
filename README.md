@@ -19,6 +19,32 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607191653.shtml" target="boxun-mirror">视频：郭伯雄被抓前家设“风水炮”图避祸请看博讯热点：郭伯雄</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：郭伯雄被抓前家设“风水炮”图避祸<br><font color="blue" size="2">请看博讯热点：<a href="/hot/guoboxiong.shtml">郭伯雄
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月19日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607191653" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <iframe width="560" height="315" src="https://www.youtube.com/embed/MJpzx-U2zTQ" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    【博闻社独家消息】中共北戴河会议之际，前军委副主席郭伯雄案已经由解放军军事法院秘密审判完毕，郭将面临20年至终身监禁。案件八・一节前后公布。据透露，郭伯雄被抓前自知不妙，亲自拜见风水大师，经指点在家架设风水炮“避祸”，但仍然难逃覆灭命运。<br>
+    <br>
+    据博闻社报道，法庭认定郭自己及通过家人收受部下买官贿赂，涉及军官包括现役高级将领，如谷俊山就行贿数千万。其余贿款数额也极为巨大，但法庭认定其数目只是很少部分。案涉其妻子、儿子和女儿。其女儿已经入籍美国。<br>
+    <br>
+    消息人士透露，2012年底习近平上台后，厉言打贪反腐，郭伯雄自知不妙，于2013年以休闲为名，亲自走访河南少林寺等多个名寺，寻访风水大师，以“身体有恙”为由，求大师指点迷津，并得大师赐“密法”，回去于府上架设了一门“风水炮”，欲求“避祸”。不过，最后也是难逃一劫。<br>
+    <br>
+    <img src="http://www.boxun.com/news/images/2016/07/201607191653china1.jpg" alt="视频：郭伯雄被抓前家设“风水炮”图避祸"><p><br>
+    2013年4月郭伯雄便装走访少林寺，获方丈接待
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607191653" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 221653       
+</p>
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 9小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607181519.shtml" target="boxun-mirror">郭伯雄案已判决将于八一公布美国籍女儿涉案请看博讯热点：郭伯雄</a>
 </h2>
 <p><tr>
@@ -763,68 +789,6 @@
     公开的资料显示，莆田系在中共体制内最重要的支持者，是同为莆田人的前国务委员陈至立。陈至立担任国务委员期间分管教科文</td></tr></p>
 <p>
 	<small> ============== 11天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/finance/2016/07/201607072350.shtml" target="boxun-mirror">监控软件"手机潜伏者"军事化管理，政府公司领导信息曝光</a>
-</h2>
-<p><tr>
-<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>监控软件"手机潜伏者"军事化管理，政府公司领导信息曝光<br><font color="#000fC0">(<small>博讯北京时间2016年7月07日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=finance201607072350" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     博讯获悉，中国遵义有一家网络软件公司，他们为国安等部门开发监控软件，其中一款叫“手机潜伏者”（详细介绍在本文后），该公司已经实行军事化管理，他们自称“大数据+军队管理”，央视对此进行采访报道，过去两个月，当地政府领导和军区领导也亲自到该公司视察。可见其重要性。<br>
-    <br>
-    博文公司的创办者是何博文，当地知情者透露，此人在遵义本地非常嚣张，他在大学期间，因为攻击电信服务器导致遵义电信网络瘫痪3天，损失在几百万，此人通过疏通未受到任何刑事追究。从这个公司现在的情况看，当时他应该是承诺和政府合作。<br>
-    <br>
-    博讯据该公司内部人士透露，博文的软件除了提供给国安、军队，还私下监控当地政府和公司领导，照片、短信、电话语音一应俱全。以下就是样本：<br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance1.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"><p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance2.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance3.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance4.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance5.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <br>
-    图：该公司门口<br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance6.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <br>
-    该公司网站在对手机潜伏着III的介绍末尾，特别指出：“该产品只针对国家具有相关资质和通过国家有关部门授权的机关，不销售给任何个人，任何企业。该软件涉及用户隐私，所以不成为产品销售！” 博讯了解，这个软件自称只给政府使用，但民间秘密销售应该存在，因为有些人发现，自己手机上隐私图片被外泄。<br>
-    <br>
-    软件开发者：何博文<br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance7.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <br>
-    官方介绍是：<br>
-    <br>
-    　 职务：遵义博文软件开发有限公司董事长<br>
-    <br>
-    男，回族，思科网络工程师。2006-2008年在世界500强企业华为公司工作，任项目经理。后来抱着对家乡的热情，抱着对长辈尽孝道的思想，离开世界500强企业，回乡创业，于2008年年底创办了遵义博文软件开发有限公司，任董事长。<br>
-    <br>
-    曾为国家高铁总公司研发“高铁智能调度监控云平台”。为中国铁塔集团研发“基站健康度向量监控系统”。2015年公司产值突破5亿，进军互联网医疗行业。<br>
-    <br>
-    2016年5月30日下午，贵州省省委常委、贵州省军区司令员王盛槐，遵义市委常委、遵义军分区政治委员舒斌，遵义市副市长、公安局局长刘晓渝，南部新区领导到该公司观摩军队信息化：<br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance8.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance9.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance10.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <br>
-    2016年6月20日，遵义市市委常委、遵义市人民政府副市长王兴到该公司调研，陪同的还有遵义市工能委副主任杨茂麟，遵义市南部新区党工委委员、管委会副主任王远勋，遵义市红花岗区副区长陈灿。公司董事长何博文向王副市长一行详细汇报了公司的发展历程和目前的项目内容。说明政府对此公司重视：<br>
-    <img src="http://www.boxun.com/news/images/2016/07/201607072350finance11.jpg" alt="监控软件手机潜伏者军事化管理，政府公司领导信息曝光"></p>
-<p><br>
-    <br>
-    手机潜伏者图示说明：<a href="/news/gb/finance/2016/07/201607072342.shtml">点击这里</a><br>
-    －
- [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=finance201607072350" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!-- /uploads/allimg/160608/2_160608124949_1.JPG /uploads/allimg/160530/2_160530164423_1.jpg /uploads/allimg/160530/2_160530164453_1.jpg /uploads/allimg/160530/2_160530164524_1.jpg /uploads/allimg/160620/2_160620120932_1.jpg--> 4632350       
-</p>
-<hr>
-<table width="620"><tr><td>
-<b></p>
-<p>
-	<small> ============== 12天前</small>
 </p>
 <table>
     <tr>
