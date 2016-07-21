@@ -587,7 +587,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607121731.shtml" target="boxun-mirror">国际法庭裁定：中国南海九段线违法！请看博讯热点：南沙、西沙争端</a>
 </h2>
