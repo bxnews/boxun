@@ -82,7 +82,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607211241.shtml" target="boxun-mirror">视频：赵薇炒戴立忍事件专访"向中国道歉"发起人</a>
 </h2>
@@ -119,7 +119,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12小时前</small>
+	<small> ============== 1天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607191653.shtml" target="boxun-mirror">视频：郭伯雄被抓前家设“风水炮”图避祸请看博讯热点：郭伯雄</a>
 </h2>
@@ -145,7 +145,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 2天前</small>
+	<small> ============== 3天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607181519.shtml" target="boxun-mirror">郭伯雄案已判决将于八一公布美国籍女儿涉案请看博讯热点：郭伯雄</a>
 </h2>
@@ -191,7 +191,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607181917.shtml" target="boxun-mirror">中共自由派的舆论阵地《炎黄春秋》宣布停刊请看博讯热点：深度报道</a>
 </h2>
@@ -240,7 +240,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607182339.shtml" target="boxun-mirror">独家：“709大抓捕”案近日将以“颠覆国家政权罪”宣判</a>
 </h2>
@@ -251,7 +251,7 @@
             <!--bodystart-->        <br>    <div align="center"><img src="http://upload.bx.tl/news/temp14/201607180840541.png" width="600"></div>
 <br>    （709大抓捕完全是中共高层的决策。）<br>    <br>    【博闻社独家】来自北京司法界的消息人士对本社透露，引起外界高度关注的「709」大抓捕案，源自中共最高层的指示，其中四名被捕人士日前已在天津起诉，亦是根据最高层指示执行；本案近日宣判，罪名将是颠覆国家政权罪；其他涉案者亦将陆续开审，根据指示，709案要在近期陆续开审，8月底左右结束。<br>    <br>    2016年7月15日，天津市人民检察院第二分院经审查决定，分别对周世锋、胡石根、翟岩民、勾洪国以涉嫌颠覆国家政权罪向天津市第二中级人民法院提起公诉。这是当局之前对赵威取保候审后对709案的又一重大行动。<br>    <br>    北京司法界知情人士对本社指，对709案进行审判的指示直接来自中共最高层，高层对本案十分重视，视之为捍</td></tr></p>
 <p>
-	<small> ============== 3天前</small>
+	<small> ============== 4天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607171857.shtml" target="boxun-mirror">紫禁城来鸿：土耳其未遂政变拉响中南海警钟请看博讯热点：突发事件</a>
 </h2>
@@ -318,7 +318,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 4天前</small>
+	<small> ============== 5天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607160003.shtml" target="boxun-mirror">大雨暴露贪污，武汉市委书记阮成发被立案调查</a>
 </h2>
@@ -342,7 +342,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607161702.shtml" target="boxun-mirror">土耳其政变宣布失败5名将军和29名上校被解除职务请看博讯热点：突发事件</a>
 </h2>
@@ -413,7 +413,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 5天前</small>
+	<small> ============== 6天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607151931.shtml" target="boxun-mirror">疑用“台独”艺人引爆舆论赵薇新电影撤换主角戴立忍</a>
 </h2>
@@ -471,7 +471,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 6天前</small>
+	<small> ============== 7天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607140418.shtml" target="boxun-mirror">南海“无战事”中南海“有预谋”中共南海发展战略曝光</a>
 </h2>
@@ -481,7 +481,7 @@
 </center>
             <!--bodystart-->       <br>    <small>中国对南沙发展有宏图</small><br>    <img src="http://www.boxun.com/news/images/2016/07/201607140418china1.jpg" alt="南海“无战事” 中南海“有预谋” 中共南海发展战略曝光"><br>    <br>    博</td></tr></p>
 <p>
-	<small> ============== 7天前</small>
+	<small> ============== 8天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607130302.shtml" target="boxun-mirror">视频:解读南海仲裁,习近平下令“准备开战”，能打赢吗？请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -510,7 +510,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 8天前</small>
+	<small> ============== 9天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607120558.shtml" target="boxun-mirror">达赖喇嘛尊者在科罗拉多州和新墨西哥州亲切会见当地藏人请看博讯热点：西藏问题</a>
 </h2>
@@ -623,7 +623,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/intl/2016/07/201607121914.shtml" target="boxun-mirror">海牙常设仲裁法庭“南海仲裁案裁决”全文</a>
 </h2>
@@ -636,7 +636,7 @@
     仲裁庭发布裁决</p>
 </td></tr></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607120605.shtml" target="boxun-mirror">独家：南海仲裁料不利习近平下令做好开战准备请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -647,7 +647,7 @@
 </center>
                 <!--bodystart-->      【博闻社北京特别报道】来自北京军方消息人士对博闻社透露，针对南海仲裁可能出现的不利结果，以及美国可能借有关裁决在南海掀起新一轮挑衅，中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍</td></tr></p>
 <p>
-	<small> ============== 9天前</small>
+	<small> ============== 10天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607111946.shtml" target="boxun-mirror">独家：南海仲裁前夕中国海军召退役军人返回服役请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -684,7 +684,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607110139.shtml" target="boxun-mirror">房地产崩盘会引发中国经济崩？杨建利博士夏明教授如是说</a>
 </h2>
@@ -696,7 +696,7 @@
      <br>
     博闻社讯 近期中国媒体上有关房地产拐点来临，快要崩盘的预言不绝于耳，之前媒体多有报道：引用柴静的调查数据，目前中国空置房可容纳34亿人居住的鬼屋或者空置房。后我来查了一下可能是新规划城区可容纳34亿人居住。那么不管是哪个数字，都相当惊人。独立经济学家，玫瑰石顾问公司董事谢国忠在6月份说： 中 国的下一轮房地产下滑很快就要来临，6</td></tr></p>
 <p>
-	<small> ============== 10天前</small>
+	<small> ============== 11天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/07/201607102143.shtml" target="boxun-mirror">冯崇义：震动世界的“709大抓捕”一周年感言</a>
 </h2>
@@ -735,7 +735,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11天前</small>
+	<small> ============== 12天前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607090411.shtml" target="boxun-mirror">向徐才厚买官吐出赃款1.3亿中共空军前政委田修思上将落马</a>
 </h2>
@@ -824,7 +824,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 12天前</small>
+	<small> ============== 13天前</small>
 </p>
 <table>
     <tr>
