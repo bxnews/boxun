@@ -82,7 +82,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607211241.shtml" target="boxun-mirror">视频：赵薇炒戴立忍事件专访"向中国道歉"发起人</a>
 </h2>
@@ -119,7 +119,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607191653.shtml" target="boxun-mirror">视频：郭伯雄被抓前家设“风水炮”图避祸请看博讯热点：郭伯雄</a>
 </h2>
