@@ -48,6 +48,25 @@
 <p>
 	<small> ============== 1天前</small>
 </p><h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607222226.shtml" target="boxun-mirror">博闻热点：关于“共和国脊梁”倪萍移民美国</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>博闻热点：关于“共和国脊梁”倪萍移民美国<br><font color="#000fC0">(<small>博讯北京时间2016年7月22日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607222226" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      <iframe width="660" height="430" src="https://www.youtube.com/embed/c2j4WYODQHU" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    这两天一则消息让中国善良的普通民众傻眼――共和国脊梁倪萍移民美国了。<br>
+    <br>
+    其实富人移民大家都司空见惯，贪官跑美国也毫不稀奇。只是大家没想到的是被称为共和国脊梁的，代表中华好女儿形象的倪萍大姐居然就这么不声不响的移了。而且，据说在美国有两栋豪宅。一套在拉斯维加斯，另一套则是在洛杉矶。
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607222226" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 352226       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 1天前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607211849.shtml" target="boxun-mirror">紫禁城来鸿：大陆旅客命丧台湾中南海“淡然视之”请看博讯热点：缺德、没人性</a>
 </h2>
 <p><tr>
@@ -729,18 +748,6 @@
 <hr>
 <table width="620"><tr><td>
 <b></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/07/201607110139.shtml" target="boxun-mirror">房地产崩盘会引发中国经济崩？杨建利博士夏明教授如是说</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>房地产崩盘会引发中国经济崩？杨建利博士夏明教授如是说<br><font color="#000fC0">(<small>博讯北京时间2016年7月11日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607110139" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->     杨建利更多文章请看<a href="http://blog.boxun.com/my-cgi/post/display_all.cgi?cat=yangjianli">杨建利</a>专栏<br>
-     <br>
-    博闻社讯 近期中国媒体上有关房地产拐点来临，快要崩盘的预言不绝于耳，之前媒体多有报道：引用柴静的调查数据，目前中国空置房可容纳34亿人居住的鬼屋或者空置房。后我来查了一下可能是新规划城区可容纳34亿人居住。那么不管是哪个数字，都相当惊人。独立经济学家，玫瑰石顾问公司董事谢国忠在6月份说： 中 国的下一轮房地产下滑很快就要来临，6</td></tr></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
