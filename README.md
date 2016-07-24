@@ -19,6 +19,29 @@
             </tr>
 </table>
 <h2>
+	<a href="http://www.boxun.com/news/gb/china/2016/07/201607240949.shtml" target="boxun-mirror">视频：“709大抓捕”律师开审在即V记者采访谢阳的夫人请看博讯热点：警察、官员恶行</a>
+</h2>
+<p><tr>
+<td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
+
+                <br><b></b><center>视频：“709大抓捕”律师开审在即 V记者采访谢阳的夫人<br><font color="blue" size="2">请看博讯热点：<a href="/hot/jingcha.shtml">警察、官员恶行
+</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月24日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607240949" target="_new">支持此文作者/记者</a></small>)</font>
+</center>
+                <!--bodystart-->      【博闻社】 2015年7月9日，全国大规模抓捕良心律师，本社日前报道，“709大抓捕”律师8月前会开审并可能会当庭宣判。<br>
+    <br>
+    7月23日，天津二中院周围开始加强警戒，国保指示餐馆发现坐时间较长的顾客要及时汇报。法院附近的寺庙也关门谢客。但709被捕律师的家属仍未收到开庭通知。<br>
+    <br>
+    以下视频是V记者采访谢阳律师的夫人，本社和拍摄视频者没有任何联系，视频辗转从网上获得。<br>
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/Z8E8gd1k90g" frameborder="0" allowfullscreen></iframe><br>
+    <br>
+    709大抓捕更多报道：<a href="http://bowenpress.com/?s=709%E5%A4%A7%E6%8A%93%E6%8D%95">点击这里</a>
+ [博讯首发,转载请注明出处]- <a href="/cgi-bin/news/support.cgi?art_id=china201607240949" target="_new">支持此文作者/记者</a><!--bodyend-->(博讯 boxun.com) <br><!----> 2760949       
+<hr>
+<table width="620"><tr><td>
+<b></p>
+<p>
+	<small> ============== 2小时前</small>
+</p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607231739.shtml" target="boxun-mirror">紫禁城来鸿：“1+6”圆桌对话是李克强“最后一搏”？</a>
 </h2>
 <p><tr>
@@ -715,17 +738,6 @@
     <img src="http://www.boxun.com/news/images/2016/07/201607121914intl1.jpg" alt="海牙常设仲裁法庭“南海仲裁案裁决”全文 "><p><br><br><b>南海仲裁案（菲律宾共和国 v. 中华人民共和国）海牙，2016年7月12日</b><br>
     仲裁庭发布裁决</p>
 </td></tr></p>
-<p>
-	<small> ============== 12天前</small>
-</p><h2>
-	<a href="http://www.boxun.com/news/gb/china/2016/07/201607120605.shtml" target="boxun-mirror">独家：南海仲裁料不利习近平下令做好开战准备请看博讯热点：南沙、西沙争端</a>
-</h2>
-<p><tr><td class="F11" colspan="2" style="line-height:18pt; font-family:宋体; font-size: 12pt;padding:10px;border-top:0"> 
-
-                <br><b></b><center>独家：南海仲裁料不利 习近平下令做好开战准备<br><font color="blue" size="2">请看博讯热点：<a href="/hot/south_china_sea.shtml">南沙、西沙争端
-</a></font><br><font color="#000fC0">(<small>博讯北京时间2016年7月12日</small> <small>首发 - <a href="/cgi-bin/news/support.cgi?art_id=china201607120605" target="_new">支持此文作者/记者</a></small>)</font>
-</center>
-                <!--bodystart-->      【博闻社北京特别报道】来自北京军方消息人士对博闻社透露，针对南海仲裁可能出现的不利结果，以及美国可能借有关裁决在南海掀起新一轮挑衅，中央军委主席习近平已向军方发出「准备作战」的命令，要求军队「不惜一战」捍</td></tr></p>
 <p>
 	<small> ============== 12天前</small>
 </p>
