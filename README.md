@@ -77,7 +77,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/pubvp/2016/07/201607251905.shtml" target="boxun-mirror">博闻视频：如何看待南海仲裁引发中国“抵制美货”潮请看博讯热点：南沙、西沙争端</a>
 </h2>
@@ -116,7 +116,7 @@
 <table width="620"><tr><td>
 <b></p>
 <p>
-	<small> ============== 11小时前</small>
+	<small> ============== 12小时前</small>
 </p><h2>
 	<a href="http://www.boxun.com/news/gb/china/2016/07/201607240949.shtml" target="boxun-mirror">视频：“709大抓捕”律师开审在即V记者采访谢阳的夫人请看博讯热点：警察、官员恶行</a>
 </h2>
